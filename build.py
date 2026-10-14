@@ -379,12 +379,13 @@ def main():
     assets_dir = BASE / "assets"
     if assets_dir.is_dir():
         for d in sorted(assets_dir.iterdir()):
-            hero = d / "hero.jpg"
-            if hero.is_file():
-                dest = SITE / "assets" / d.name / "hero.jpg"
+            if not d.is_dir():
+                continue
+            for asset in sorted(d.glob("*.jpg")):
+                dest = SITE / "assets" / d.name / asset.name
                 dest.parent.mkdir(parents=True, exist_ok=True)
-                shutil.copy(hero, dest)
-                print(f"  hero: /assets/{d.name}/hero.jpg")
+                shutil.copy(asset, dest)
+                print(f"  asset: /assets/{d.name}/{asset.name}")
     logo = BASE / "assets" / "logo.png"
     if logo.is_file():
         dest = SITE / "assets" / "logo.png"

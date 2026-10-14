@@ -158,3 +158,6 @@ a{color:var(--terra-dark)}
 .brand{display:inline-flex;align-items:center;gap:10px}
 .brand-logo{border-radius:8px;flex:none}
 .footer-brand{display:flex;align-items:center;gap:8px}
+
+/* In-article images */
+.article-body img{width:100%;height:auto;border-radius:12px;margin:18px 0 6px;display:block}
