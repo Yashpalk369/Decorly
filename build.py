@@ -375,6 +375,16 @@ def main():
     write("/robots.txt", build_robots())
     write("/feed.xml", build_feed(ALL_POSTS))
     shutil.copy(BASE / "style.css", SITE / "style.css")
+    # hero images: assets/<slug>/hero.jpg -> site/assets/<slug>/hero.jpg
+    assets_dir = BASE / "assets"
+    if assets_dir.is_dir():
+        for d in sorted(assets_dir.iterdir()):
+            hero = d / "hero.jpg"
+            if hero.is_file():
+                dest = SITE / "assets" / d.name / "hero.jpg"
+                dest.parent.mkdir(parents=True, exist_ok=True)
+                shutil.copy(hero, dest)
+                print(f"  hero: /assets/{d.name}/hero.jpg")
     print(f"built {len(urls)} pages -> {SITE}")
 
     if "--check" in sys.argv:

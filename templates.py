@@ -1,6 +1,7 @@
 """Decorly HTML templates. All pages share header/nav/footer and SEO head blocks."""
 import html
 import json
+import os
 import config
 
 def esc(s):
@@ -113,7 +114,14 @@ def faq_ld(faq_items):
                            for q, a in faq_items]}
 
 def hero_art(post, big=True):
-    """CSS hero placeholder with a clearly-marked slot for the real image."""
+    """Real hero <img> when assets/<slug>/hero.jpg exists (copied to site/ at build), else CSS placeholder."""
+    slug = post["slug"]
+    hero_src = os.path.join(os.path.dirname(os.path.abspath(__file__)),
+                            "assets", slug, "hero.jpg")
+    if os.path.exists(hero_src):
+        cls = "hero-img" if big else "thumb-img"
+        return (f'<img class="{cls}" src="/assets/{esc(slug)}/hero.jpg" '
+                f'alt="{esc(post["title"])}" loading="lazy">')
     theme = post.get("hero", "hero-terra")
     motif = post.get("motif", "🏠")
     title_html = f'<div class="hero-title">{esc(post["title"])}</div>' if big else ""
