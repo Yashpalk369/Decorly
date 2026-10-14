@@ -153,3 +153,8 @@ a{color:var(--terra-dark)}
 /* Real hero images */
 .hero-img{width:100%;aspect-ratio:1200/630;object-fit:cover;display:block;border-radius:14px}
 .post-card .thumb-img{width:100%;aspect-ratio:16/9;object-fit:cover;display:block}
+
+/* Brand logo */
+.brand{display:inline-flex;align-items:center;gap:10px}
+.brand-logo{border-radius:8px;flex:none}
+.footer-brand{display:flex;align-items:center;gap:8px}

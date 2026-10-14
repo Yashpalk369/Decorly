@@ -24,6 +24,8 @@ def head(title, description, path, og_type="website", extra_head=""):
 <meta name="twitter:title" content="{esc(title)}">
 <meta name="twitter:description" content="{esc(description)}">
 <link rel="stylesheet" href="/style.css">
+<link rel="icon" type="image/png" href="/assets/logo.png">
+<link rel="apple-touch-icon" href="/assets/logo.png">
 <link rel="alternate" type="application/rss+xml" title="{esc(config.SITE_NAME)} RSS" href="{esc(config.SITE_URL)}/feed.xml">
 {extra_head}"""
 
@@ -32,7 +34,7 @@ def header(active=""):
         cls = ' class="active"' if key == active else ""
         return f'<a href="{path}"{cls}>{label}</a>'
     return f"""<header class="site-header"><nav class="nav" aria-label="Main navigation">
-<a class="brand" href="/">Decorly<small>{esc(config.TAGLINE)}</small></a>
+<a class="brand" href="/"><img class="brand-logo" src="/assets/logo.png" alt="Decorly logo" width="36" height="36">Decorly<small>{esc(config.TAGLINE)}</small></a>
 <div class="nav-links">
 {link("/", "Home", "home")}
 {link("/small-spaces/", "Small Spaces", "small-spaces")}
@@ -43,7 +45,7 @@ def header(active=""):
 
 def footer():
     return f"""<footer class="site-footer"><div class="footer-inner">
-<div><div class="footer-brand">Decorly</div>
+<div><div class="footer-brand"><img class="brand-logo" src="/assets/logo.png" alt="Decorly logo" width="30" height="30">Decorly</div>
 <p style="font-size:14.5px;margin-top:10px;max-width:280px">{esc(config.TAGLINE)}. Practical, budget-first decorating ideas for renters and small-space dwellers.</p></div>
 <div><h4>Browse</h4>
 <a href="/small-spaces/">Small Space Decor</a>

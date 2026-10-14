@@ -385,6 +385,12 @@ def main():
                 dest.parent.mkdir(parents=True, exist_ok=True)
                 shutil.copy(hero, dest)
                 print(f"  hero: /assets/{d.name}/hero.jpg")
+    logo = BASE / "assets" / "logo.png"
+    if logo.is_file():
+        dest = SITE / "assets" / "logo.png"
+        dest.parent.mkdir(parents=True, exist_ok=True)
+        shutil.copy(logo, dest)
+        print("  logo: /assets/logo.png")
     print(f"built {len(urls)} pages -> {SITE}")
 
     if "--check" in sys.argv:
