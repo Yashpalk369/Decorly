@@ -58,37 +58,6 @@ CATEGORIES = {
 }
 
 # Tier-2 trends (Pinterest Predicts 2026) — stub hubs until posts exist.
-TIER2 = {
-    "afrohemian": {
-        "name": "Afrohemian Decor",
-        "stat": "+220%",
-        "stat_label": "search growth",
-        "blurb": "Pinterest Predicts 2026: searches for afrobohemian home decor are up 220%, driven by Boomers and Gen X with real buying power. Think mudcloth textiles, woven baskets, carved wood, and rich earthy palettes.",
-        "upcoming": ["Afrohemian living room ideas", "Mudcloth pillow styling guide", "Woven basket wall decor ideas"],
-    },
-    "neo-deco": {
-        "name": "Neo Deco",
-        "stat": "+100%",
-        "stat_label": "'antique bar cart' searches",
-        "blurb": "Modern art deco is back: antique bar carts (+100%), red marble bathrooms (+80%), and brass accents (+35%). Glamour, geometry, and jewel tones — on a renter's budget.",
-        "upcoming": ["Neo deco bedroom ideas", "Brass light fixtures for small spaces", "Art deco bathroom ideas on a budget"],
-    },
-    "funhaus-maximalism": {
-        "name": "FunHaus Maximalism",
-        "stat": "+130%",
-        "stat_label": "'circus interior' searches",
-        "blurb": "Pinterest's headline 2026 shift: minimal neutrals are out, expressive layered color is in. Circus interiors (+130%), striped ceilings (+40%) — dopamine decor for people who want joy on their walls.",
-        "upcoming": ["Dopamine decor living room ideas", "Striped ceiling bedroom guide", "Colorful maximalist small apartment"],
-    },
-    "celestial-decor": {
-        "name": "Celestial Accents",
-        "stat": "+115%",
-        "stat_label": "'opalescent' searches",
-        "blurb": "Soft shimmer is trending: opalescent finishes (+115%) and alien-core aesthetics (+80%). Starburst lighting, iridescent vases, and pearlescent touches that catch the light.",
-        "upcoming": ["Iridescent decor accents", "Starburst chandelier styling", "Pearlescent vase styling ideas"],
-    },
-}
-
 # ---- frontmatter ----
 
 def read_md(path):
@@ -172,24 +141,6 @@ def build_hub(slug, cat):
     return T.page(cat["title"], cat["description"], f"/{slug}/", body,
                   active=slug, ld_blocks=ld)
 
-def build_tier2(slug, trend):
-    upcoming = "".join(f"<li>{T.esc(u)} — coming soon</li>" for u in trend["upcoming"])
-    body = f"""<div class="wrap"><div class="section">
-<div class="section-head"><h2>{T.esc(trend['name'])}</h2></div>
-<p style="color:var(--muted);max-width:700px;margin-bottom:8px">{T.esc(trend['blurb'])}</p>
-<div class="soon"><div class="stat">{T.esc(trend['stat'])}</div>
-<div>{T.esc(trend['stat_label'])}</div>
-<p style="margin-top:12px;color:var(--muted)">We're styling and photographing this trend now. Posts land here soon.</p></div>
-<h3 style="margin:24px 0 12px">On the way</h3>
-<ul style="margin-left:1.3em;color:var(--muted)">{upcoming}</ul>
-<div class="trend-list" style="margin-top:32px">
-<div class="trend-card"><h3>Meanwhile, browse what's live</h3>
-<p><a href="/small-spaces/">Small Space Decor</a> · <a href="/rental-friendly/">Rental-Friendly Decor</a> · <a href="/greenery-decor/">Plants &amp; Greenery</a></p></div>
-</div></div></div>"""
-    ld = [T.breadcrumb_ld([("Home", "/"), (trend["name"], f"/{slug}/")])]
-    return T.page(f"{trend['name']} Ideas & Trends (2026) | {config.SITE_NAME}",
-                  trend["blurb"][:155], f"/{slug}/", body, ld_blocks=ld)
-
 def build_home():
     latest = ALL_POSTS[:6]
     cards = "\n".join(T.post_card(p) for p in latest)
@@ -200,11 +151,6 @@ def build_home():
 <span class="motif">{cat['motif']}</span><h3>{T.esc(cat['name'])}</h3>
 <p>{T.esc(cat['description'][:120])}…</p>
 <span class="count">{n} post{'s' if n != 1 else ''} →</span></a>""")
-    trend_cards = []
-    for slug, trend in TIER2.items():
-        trend_cards.append(f"""<a class="cat-card" href="/{slug}/">
-<h3>{T.esc(trend['name'])}</h3><p>{T.esc(trend['blurb'][:110])}…</p>
-<span class="count">{T.esc(trend['stat'])} {T.esc(trend['stat_label'])} →</span></a>""")
     body = f"""<div class="hero"><div class="hero-inner">
 <h1>Beautiful homes on a <em>renter's budget</em></h1>
 <p>Practical, budget-first decorating ideas for small spaces, rentals, and plant lovers. No renovation required.</p>
@@ -215,8 +161,6 @@ def build_home():
 <div class="cat-grid">{"".join(cat_cards)}</div></div>
 <div class="section"><div class="section-head"><h2>Latest ideas</h2></div>
 <div class="post-grid">{cards}</div></div>
-<div class="section"><div class="section-head"><h2>2026 trends we're covering</h2></div>
-<div class="cat-grid">{"".join(trend_cards)}</div></div>
 </div>"""
     ld = [T.breadcrumb_ld([("Home", "/")]),
           {"@context": "https://schema.org", "@type": "WebSite",
@@ -359,10 +303,6 @@ def main():
     # category hubs
     for slug, cat in CATEGORIES.items():
         write(f"/{slug}/index.html", build_hub(slug, cat))
-        urls.append((f"/{slug}/", "2026-10-14"))
-    # tier-2 stubs
-    for slug, trend in TIER2.items():
-        write(f"/{slug}/index.html", build_tier2(slug, trend))
         urls.append((f"/{slug}/", "2026-10-14"))
     # static pages
     for path in sorted(PAGES_DIR.glob("*.md")):
