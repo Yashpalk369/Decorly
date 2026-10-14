@@ -16,37 +16,55 @@ But pattern choice matters enormously, especially in small rooms. The wrong patt
 
 ### 1. Grasscloth texture
 
+![Grasscloth texture](/assets/temporary-wallpaper-renters/idea-01.jpg)
+
 The safest, most versatile choice. Grasscloth-look peel-and-stick adds tactile warmth without a visible pattern repeat, so it never overwhelms. Works in bedrooms, living rooms, entryways — everywhere. If you're wallpapering for the first time, start here.
 
 ### 2. Thin vertical stripes
+
+![Thin vertical stripes](/assets/temporary-wallpaper-renters/idea-02.jpg)
 
 Stripes draw the eye up, making ceilings look taller — the oldest trick in the book, and it works. Keep stripes thin (under 2 inches) and low-contrast (cream on white, sage on cream) in small rooms. Bold wide stripes are for big rooms only.
 
 ### 3. Soft arches (the Pinterest classic)
 
+![Soft arches (the Pinterest classic)](/assets/temporary-wallpaper-renters/idea-03.jpg)
+
 The arch pattern — repeating soft curves in earthy tones — is everywhere for a reason: it's geometric enough to feel modern, soft enough to feel warm. Perfect behind a bed (it creates a faux headboard effect) or in a dining nook. Our [small bedroom ideas](/15-small-bedroom-ideas-under-100/) pair it with white bedding beautifully.
 
 ### 4. Botanical prints
+
+![Botanical prints](/assets/temporary-wallpaper-renters/idea-04.jpg)
 
 Large-scale leaves, palms, or eucalyptus prints bring the biophilic trend to your walls. Best in rooms that already have real plants — the print and the plants echo each other (see [bedroom plant styling](/bedroom-plant-styling-ideas/) for the living half of this look). Keep the background light so the room stays bright.
 
 ### 5. Faux shiplap or beadboard
 
+![Faux shiplap or beadboard](/assets/temporary-wallpaper-renters/idea-05.jpg)
+
 All the farmhouse texture with zero carpentry. Peel-and-stick shiplap planks in white brighten dark entryways and bathrooms. It's technically a "plank" product rather than wallpaper, but it applies and removes the same way.
 
 ### 6. Terrazzo or speckled patterns
+
+![Terrazzo or speckled patterns](/assets/temporary-wallpaper-renters/idea-06.jpg)
 
 Tiny multicolor speckles on a neutral ground — playful but not loud. Great for laundry areas, home offices, and kids' rooms. The small-scale pattern hides imperfect wall texture, which rentals have in abundance.
 
 ### 7. Muted chinoiserie panels
 
+![Muted chinoiserie panels](/assets/temporary-wallpaper-renters/idea-07.jpg)
+
 Oversized mural-style panels (not repeating rolls) with soft botanical or landscape scenes create a single statement wall that reads as art. One wall, one mural, done. This is the highest-impact option — and the priciest ($80–150 per wall), so save it for the room you live in most.
 
 ### 8. Linen-look solids
 
+![Linen-look solids](/assets/temporary-wallpaper-renters/idea-08.jpg)
+
 When you want texture without pattern: linen-effect peel-and-stick in warm white or greige. It reads as "expensive plaster" from a few feet away and never fights with your art or furniture. Ideal for living rooms with a lot going on already.
 
 ### 9. Bold pattern in a tiny space (powder room / closet)
+
+![Bold pattern in a tiny space (powder room / closet)](/assets/temporary-wallpaper-renters/idea-09.jpg)
 
 The exception to every "keep it subtle" rule: tiny rooms can take big patterns. A powder room, entry closet, or laundry nook in a bold floral or geometric becomes a jewel box. Small area = small commitment = small removal job later.
 

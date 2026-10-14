@@ -16,17 +16,25 @@ Every hack below follows one rule: if a guest can tell it's storage, it failed. 
 
 ### 1. The storage ottoman (not a coffee table)
 
+![The storage ottoman (not a coffee table)](/assets/small-living-room-storage-hacks/idea-01.jpg)
+
 A coffee table in a small living room is a wasted opportunity. A large storage ottoman ($60–90) holds blankets, board games, and remotes inside, serves as extra seating when guests come, and softens the room visually — no sharp corners eating shin space. Get one with a reversible tray top and it *is* your coffee table.
 
 ### 2. A console table behind the sofa
+
+![A console table behind the sofa](/assets/small-living-room-storage-hacks/idea-02.jpg)
 
 The 8-inch gap behind a sofa against a wall is dead space. A narrow console table ($40–60) fills it with a home for keys, mail, remotes, and a lamp — all the small things that otherwise colonize the coffee table. This one change visibly declutters most living rooms.
 
 ### 3. Side tables with doors, not open tables
 
+![Side tables with doors, not open tables](/assets/small-living-room-storage-hacks/idea-03.jpg)
+
 Open side tables display clutter. A small cabinet-style side table ($35–50) with a door hides chargers, coasters, reading glasses, and the TV remote graveyard. In a small room, every visible object adds visual noise — doors are silence.
 
 ### 4. A daybed-style sofa with under-seat storage
+
+![A daybed-style sofa with under-seat storage](/assets/small-living-room-storage-hacks/idea-04.jpg)
 
 If you're buying a sofa for a small living room anyway, get one with storage underneath or a chaise with a lift-up compartment. Blanket and pillow storage disappears entirely. Pair with our [studio apartment layout ideas](/studio-apartment-layout-ideas/) if your living room is also your bedroom.
 
@@ -34,13 +42,19 @@ If you're buying a sofa for a small living room anyway, get one with storage und
 
 ### 5. One tall narrow bookcase instead of a wide one
 
+![One tall narrow bookcase instead of a wide one](/assets/small-living-room-storage-hacks/idea-05.jpg)
+
 A 12-inch-deep, 6-foot-tall bookcase holds as much as a wide 3-foot unit but eats half the floor space. Put it in the dead corner beside the window. Style the top two shelves (books + one plant), use the bottom shelves for closed baskets — pretty on top, practical below.
 
 ### 6. Floating shelves above the sofa
 
+![Floating shelves above the sofa](/assets/small-living-room-storage-hacks/idea-06.jpg)
+
 The wall above the sofa is usually empty. Two floating shelves ($30) hold books, small plants, and decorative boxes — and decorative *boxes* are the key, because they store the ugly stuff (cables, batteries, remotes) inside pretty containers. Never store visibly ugly things on open shelves.
 
 ### 7. Over-the-door organizers (the good kind)
+
+![Over-the-door organizers (the good kind)](/assets/small-living-room-storage-hacks/idea-07.jpg)
 
 Forget the plastic shoe organizers. A linen over-the-door organizer with pockets ($20) on a closet or pantry door near the living room holds DVDs, game controllers, charging cables, and craft supplies invisibly. It hangs, it holds, it leaves no marks.
 
@@ -48,17 +62,25 @@ Forget the plastic shoe organizers. A linen over-the-door organizer with pockets
 
 ### 8. Decorative baskets as the only "bins"
 
+![Decorative baskets as the only "bins"](/assets/small-living-room-storage-hacks/idea-08.jpg)
+
 Three matching lidded baskets ($15–25 each) on a shelf or under a console table hold *everything*: throw blankets, kids' toys, pet supplies, magazines. Matching containers read as decor; mismatched bins read as storage. The matching is the hack.
 
 ### 9. A lidded tray on the coffee table/ottoman
+
+![A lidded tray on the coffee table/ottoman](/assets/small-living-room-storage-hacks/idea-09.jpg)
 
 The "landing strip" principle: give small homeless objects (remotes, coasters, lip balm, reading glasses) one beautiful tray to live on. A $20 wood or rattan tray corrals the scatter into a styled vignette. When guests come, the whole tray lifts away in one move.
 
 ### 10. Blanket ladder (decor that's secretly storage)
 
+![Blanket ladder (decor that's secretly storage)](/assets/small-living-room-storage-hacks/idea-10.jpg)
+
 A leaning blanket ladder ($30–40) displays 4–5 throw blankets as decor while keeping them accessible. It uses 6 inches of floor depth against a wall. Leaning = no mounting = renter-safe. Drape blankets artfully; the top rung gets the prettiest one.
 
 ### 11. Window seat storage (even without a window seat)
+
+![Window seat storage (even without a window seat)](/assets/small-living-room-storage-hacks/idea-11.jpg)
 
 No built-in window seat? A storage bench ($70–90) under the window creates one. Cushion on top for seating, cavernous storage inside for seasonal items, board games, or gift wrap. It also gives you the coveted "reading nook" for free.
 
@@ -66,13 +88,19 @@ No built-in window seat? A storage bench ($70–90) under the window creates one
 
 ### 12. The one-in-one-out rule
 
+![The one-in-one-out rule](/assets/small-living-room-storage-hacks/idea-12.jpg)
+
 Small living rooms can't absorb accumulation. Adopt one rule: anything new that enters the living room means something leaves. It's free, it's brutal, and it's the only storage hack that compounds over time.
 
 ### 13. Decant the ugly
 
+![Decant the ugly](/assets/small-living-room-storage-hacks/idea-13.jpg)
+
 Half of visible clutter is packaging: the wipe container, the tissue box, the cable modem. Decant into pretty containers — tissues into a $12 cover, wipes into a ceramic canister, the router into a ventilated basket ($25). You haven't stored anything; you've just made it invisible.
 
 ### 14. Audit the "someday" shelf
+
+![Audit the "someday" shelf](/assets/small-living-room-storage-hacks/idea-14.jpg)
 
 Every small living room has one: the shelf of things kept "just in case." Pull everything off once a year. If you haven't touched it in 12 months and it has no decorative value, it goes. Storage hacks can't fix keeping too much stuff — this is the prerequisite hack.
 

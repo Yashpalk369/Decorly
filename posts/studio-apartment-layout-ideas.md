@@ -24,11 +24,15 @@ Before the layouts, three rules that apply to all of them:
 
 ## Layout 1: The classic rectangle (bed at the far end)
 
+![The classic rectangle (bed at the far end)](/assets/studio-apartment-layout-ideas/idea-01.jpg)
+
 The most common studio shape: a long rectangle with the door at one end and windows at the other. Put the bed at the far window end, living area in the middle, and a small entry zone by the door.
 
 Why it works: the bed gets the best light and the most privacy (farthest from the door), while guests entering see the living area first. Separate the bed zone with a bookshelf perpendicular to the wall — it blocks the bed sightline from the door and gives you storage on both sides.
 
 ## Layout 2: The square studio (quadrant zoning)
+
+![The square studio (quadrant zoning)](/assets/studio-apartment-layout-ideas/idea-02.jpg)
 
 Square studios (roughly 20x20) resist the long-rectangle logic. Instead, divide into quadrants: sleeping in one corner, living in the opposite corner, kitchen/dining along one wall, work nook in the remaining corner.
 
@@ -36,11 +40,15 @@ The key buy here is a large area rug for the living quadrant — it defines the 
 
 ## Layout 3: The alcove studio (bed in the nook)
 
+![The alcove studio (bed in the nook)](/assets/studio-apartment-layout-ideas/idea-03.jpg)
+
 If your studio has an alcove, L-shape, or hallway nook — congratulations, that's your bedroom. Alcove studios are the easiest to make feel like one-bedrooms: hang a curtain across the alcove opening and you literally have a separate room.
 
 Measure the alcove before buying anything. Many fit a full bed but not a queen. A curtain on a ceiling-mounted track ($30) looks far better than a tension rod here and still comes down cleanly at move-out.
 
 ## Layout 4: The railroad studio (zones in sequence)
+
+![The railroad studio (zones in sequence)](/assets/studio-apartment-layout-ideas/idea-04.jpg)
 
 Long, narrow studios where you walk through one zone to reach the next. The sequence matters: entry → living → dining/work → sleeping at the far end. Never put the bed first — you'll walk past it fifty times a day and it will never feel like anything but a bedroom.
 
@@ -48,17 +56,23 @@ Use narrow console tables and wall-mounted shelves instead of deep furniture; in
 
 ## Layout 5: The loft studio (sleep up high)
 
+![The loft studio (sleep up high)](/assets/studio-apartment-layout-ideas/idea-05.jpg)
+
 If your studio has 10+ foot ceilings, a loft bed changes everything. Sleeping goes vertical, freeing the entire floor for living. This is the highest-impact layout change possible in a studio.
 
 Safety and lease notes: freestanding loft beds need no wall attachment (renter-safe), but check your lease for loft restrictions and your ceiling height — you need at least 33 inches between mattress top and ceiling to sit up. Budget $200–400 for a sturdy metal loft; this is not the place to cheap out.
 
 ## Layout 6: The divider studio (open-plan with a wall)
 
+![The divider studio (open-plan with a wall)](/assets/studio-apartment-layout-ideas/idea-06.jpg)
+
 No alcove? Make one. A freestanding room divider — open bookshelf, curtain on a ceiling track, or even a clothing rack with a curtain — splits any studio into "bedroom" and "everything else."
 
 The open bookshelf divider is the best version: it stores things on both sides, lets light through, and costs $60–100. Position it perpendicular to the wall, not floating in the middle — anchored dividers read as architecture, floating ones read as clutter.
 
 ## Layout 7: The convertible studio (furniture does double duty)
+
+![The convertible studio (furniture does double duty)](/assets/studio-apartment-layout-ideas/idea-07.jpg)
 
 For the smallest studios (under 400 sq ft), static zones waste space. Instead: a daybed that serves as the sofa, a drop-leaf table that's a desk by day and dining table by night, an ottoman with storage instead of a coffee table.
 

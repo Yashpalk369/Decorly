@@ -16,19 +16,27 @@ The golden rule of no-drill decorating: match the method to the weight. Light th
 
 ### 1. Picture-hanging strips (used correctly)
 
+![Picture-hanging strips (used correctly)](/assets/no-drill-wall-decor-renters/idea-01.jpg)
+
 Adhesive strips work — when people follow the instructions, which almost nobody does. The method: clean the wall with rubbing alcohol, press the strip to the wall for 30 seconds, wait **one full hour** before hanging the frame. Most failures are from skipping the wait.
 
 Use the right size: small strips hold 4 lbs per pair; large hold 16 lbs per pair. For anything over 8 lbs, use four pairs. They remove with a slow downward pull — never yank outward.
 
 ### 2. Washi tape frames
 
+![Washi tape frames](/assets/no-drill-wall-decor-renters/idea-02.jpg)
+
 For posters, prints, and kids' art: washi tape borders turn any paper into intentional wall decor. It comes in hundreds of patterns, costs $5–10, and peels off paper-clean. The trick is mitering the corners (45-degree folds) so it looks like a real frame, not a dorm room.
 
 ### 3. Removable adhesive hooks for lightweight art
 
+![Removable adhesive hooks for lightweight art](/assets/no-drill-wall-decor-renters/idea-03.jpg)
+
 Small canvas art, macramé pieces, and hanging planters under 3 lbs go on adhesive hooks beautifully. Cluster three small pieces on one hook grouping for a mini-gallery with zero holes. Keep a few spare hooks — they're the duct tape of renter decorating.
 
 ### 4. Velcro-style strips for gallery walls
+
+![Velcro-style strips for gallery walls](/assets/no-drill-wall-decor-renters/idea-04.jpg)
 
 Want a real gallery wall with no holes? Velcro-style picture strips let you build multi-frame arrangements that you can reposition endlessly. Plan the layout on the floor first, photograph it, then transfer to the wall. Keep frames under 5 lbs each and space strips generously.
 
@@ -36,13 +44,19 @@ Want a real gallery wall with no holes? Velcro-style picture strips let you buil
 
 ### 5. Lean large art on furniture
 
+![Lean large art on furniture](/assets/no-drill-wall-decor-renters/idea-05.jpg)
+
 The easiest no-drill move in existence: lean a large framed print on the dresser, console, or mantel against the wall. It looks effortlessly styled, costs nothing to "install," and you can rotate art seasonally in seconds. Go big — 24x36 minimum — small leaning frames look accidental.
 
 ### 6. Lean a full-length mirror
 
+![Lean a full-length mirror](/assets/no-drill-wall-decor-renters/idea-06.jpg)
+
 A full-length mirror leaned against the wall opposite a window doubles light and space (more in our [small bedroom ideas](/15-small-bedroom-ideas-under-100/)). Leaning is inherently renter-safe. Angle it slightly and secure the top with a small adhesive bumper so it can't slide.
 
 ### 7. Floor-standing shelves and ladders
+
+![Floor-standing shelves and ladders](/assets/no-drill-wall-decor-renters/idea-07.jpg)
 
 A leaning ladder shelf or narrow étagère gives you vertical display with zero wall contact beyond a lean. Style it with books, plants from our [bedroom plant styling guide](/bedroom-plant-styling-ideas/), and one decorative box per shelf. Anchor tall units with furniture straps to the wall using adhesive plates if you have kids or pets.
 
@@ -50,9 +64,13 @@ A leaning ladder shelf or narrow étagère gives you vertical display with zero 
 
 ### 8. Tension rods for fabric wall hangings
 
+![Tension rods for fabric wall hangings](/assets/no-drill-wall-decor-renters/idea-08.jpg)
+
 A tension rod inside a window frame, closet opening, or hallway nook holds tapestries, fabric panels, and lightweight quilts beautifully. Fabric on walls adds the texture and warmth that rentals lack — it's the closest thing to wallpaper with zero commitment.
 
 ### 9. Shower-rod curtain walls
+
+![Shower-rod curtain walls](/assets/no-drill-wall-decor-renters/idea-09.jpg)
 
 In a bedroom alcove or studio, a ceiling-to-floor curtain on a tension rod creates a soft wall divider that doubles as decor. Choose linen-look fabric; it reads as intentional design, not a sheet nailed up. See [studio layout ideas](/studio-apartment-layout-ideas/) for divider placement logic.
 
@@ -60,13 +78,19 @@ In a bedroom alcove or studio, a ceiling-to-floor curtain on a tension rod creat
 
 ### 10. The plate wall (with adhesive disc hangers)
 
+![The plate wall (with adhesive disc hangers)](/assets/no-drill-wall-decor-renters/idea-10.jpg)
+
 Adhesive disc hangers stick to the back of plates and hang on a single adhesive hook — a collected plate wall with zero holes. Thrift mismatched plates in a color family ($1–3 each) for a look that costs under $20 total and gets compliments constantly.
 
 ### 11. Washi tape geometric murals
 
+![Washi tape geometric murals](/assets/no-drill-wall-decor-renters/idea-11.jpg)
+
 Large-scale washi tape in a geometric pattern — arches, grids, color-blocked rectangles — creates a mural effect for $15. It peels off cleanly and photographs beautifully. The arch-over-the-bed design is all over Pinterest for a reason: it gives a headboard-less bed a focal point.
 
 ### 12. Prop art on every surface
+
+![Prop art on every surface](/assets/no-drill-wall-decor-renters/idea-12.jpg)
 
 The zero-installation gallery: art propped on bookshelves, dressers, kitchen counters, and the floor. Layer frames at different depths — tall in back, small in front. It looks curated and casual, and rearranging takes minutes. This is how stylists do it for photo shoots; your rental can look like that every day.
 

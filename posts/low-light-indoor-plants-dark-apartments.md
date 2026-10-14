@@ -20,41 +20,61 @@ Quick calibration, because plant tags lie. **Low light** means a spot 6–10 fee
 
 ### 1. Snake plant (Sansevieria)
 
+![Snake plant (Sansevieria)](/assets/low-light-indoor-plants-dark-apartments/idea-01.jpg)
+
 The undisputed champion of dark apartments. Snake plants tolerate near-darkness, need water only every 2–3 weeks, and their upright architectural leaves look expensive. A 2-foot snake plant in a simple pot is the single best $20 you can spend on apartment greenery.
 
 ### 2. ZZ plant (Zamioculcas zamiifolia)
+
+![ZZ plant (Zamioculcas zamiifolia)](/assets/low-light-indoor-plants-dark-apartments/idea-02.jpg)
 
 Glossy, sculptural, and nearly indestructible. ZZ plants store water in their rhizomes, so they forgive months of neglect, and they grow happily in offices with only fluorescent light — your dark bedroom is luxury by comparison. Slow-growing, so buy the size you want.
 
 ### 3. Golden pothos
 
+![Golden pothos](/assets/low-light-indoor-plants-dark-apartments/idea-03.jpg)
+
 The trailer every dark apartment needs. Pothos survives low light (leaves stay smaller and less variegated, but the plant lives), propagates in water for free, and drapes beautifully from shelves. One $12 plant becomes five within a year if you take cuttings.
 
 ### 4. Cast iron plant (Aspidistra)
+
+![Cast iron plant (Aspidistra)](/assets/low-light-indoor-plants-dark-apartments/idea-04.jpg)
 
 It earned the name. Cast iron plants survived Victorian parlors lit by gaslight — your north-facing living room is nothing. Broad dark-green leaves, extremely slow-growing, and unbothered by drafts, dust, and forgetful owners. Harder to find, worth the hunt.
 
 ### 5. Philodendron (heartleaf)
 
+![Philodendron (heartleaf)](/assets/low-light-indoor-plants-dark-apartments/idea-05.jpg)
+
 Pothos's softer cousin. Heartleaf philodendron trails just as willingly, tolerates the same low light, and has a slightly more delicate look that suits bedrooms. Mix it with pothos on the same shelf for varied texture with identical care.
 
 ### 6. Chinese evergreen (Aglaonema)
+
+![Chinese evergreen (Aglaonema)](/assets/low-light-indoor-plants-dark-apartments/idea-06.jpg)
 
 The most decorative low-light option. Silver-green patterned leaves that brighten dark corners visually even when the light is poor. Tolerates low light and low humidity — the two things dark apartments usually have. Avoid cold drafts.
 
 ### 7. Parlor palm (Chamaedorea elegans)
 
+![Parlor palm (Chamaedorea elegans)](/assets/low-light-indoor-plants-dark-apartments/idea-07.jpg)
+
 The classic Victorian parlor plant for a reason — it evolved as an understory plant in Mexican rainforests, meaning it's literally designed for shade. Adds soft, feathery texture that contrasts nicely with the stiff leaves of snake plants and ZZs. Likes its soil lightly moist.
 
 ### 8. Spider plant
+
+![Spider plant](/assets/low-light-indoor-plants-dark-apartments/idea-08.jpg)
 
 Nearly unkillable, endlessly propagatable (those baby "spiderettes" root in water), and one of the few low-light plants that actually looks full and lush rather than just surviving. Hang it or put it on a high shelf so the arching leaves can drape.
 
 ### 9. Peace lily
 
+![Peace lily](/assets/low-light-indoor-plants-dark-apartments/idea-09.jpg)
+
 The only flowering plant on this list. Peace lilies bloom even in low light and dramatically droop when thirsty — then perk up within hours of watering, so they literally tell you what they need. Note: mildly toxic to pets, so skip if you have curious cats.
 
 ### 10. Dracaena 'Janet Craig'
+
+![Dracaena 'Janet Craig'](/assets/low-light-indoor-plants-dark-apartments/idea-10.jpg)
 
 A compact, dark-green dracaena that shrugs off low light and irregular care. Its broad leaves read as lush and tropical even in a dim hallway. One of the best "fill a dark corner" plants because it stays neat and upright.
 
