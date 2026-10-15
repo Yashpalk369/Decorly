@@ -100,9 +100,8 @@ def build_post(post):
     related += [p for p in ALL_POSTS if p["slug"] != post["slug"]
                 and p["category"] != post["category"]]
     related = related[:3]
-    keep = ('<div class="keep-reading"><h2>Keep reading</h2><ul>' +
-            "".join(f'<li><a href="/{p["slug"]}/">{T.esc(p["title"])}</a></li>'
-                    for p in related) + "</ul></div>")
+    also_like = ('<div class="also-like"><h2>You may also like</h2><div class="post-grid">' +
+                 "".join(T.post_card_compact(p) for p in related) + "</div></div>")
 
     disclosure = ('<div class="disclosure"><strong>Affiliate disclosure:</strong> '
                   "Decorly is reader-supported. When you buy through links on "
@@ -123,7 +122,7 @@ def build_post(post):
 <div class="article-body">
 {body_html}
 {disclosure}
-{keep}
+{also_like}
 </div></article>"""
     return T.page(post["title"] + " | " + config.SITE_NAME,
                   post["description"], f"/{post['slug']}/", body,
