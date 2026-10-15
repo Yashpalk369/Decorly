@@ -20,7 +20,8 @@ html{scroll-behavior:smooth}
 body{
   font-family:-apple-system,BlinkMacSystemFont,"Segoe UI",Roboto,"Helvetica Neue",Arial,sans-serif;
   background:var(--cream);color:var(--ink);line-height:1.7;font-size:17px;
-  -webkit-font-smoothing:antialiased;
+  -webkit-font-smoothing:antialiased;overflow-x:clip;
+  -webkit-tap-highlight-color:transparent;
 }
 img{max-width:100%;height:auto}
 a{color:var(--terra-dark)}
@@ -53,7 +54,7 @@ a{color:var(--terra-dark)}
 .section-head h2{font-family:var(--serif);font-size:28px;letter-spacing:-.3px;font-weight:700}
 
 /* visual category cards — image-led, Pinterest-style */
-.cat-visual-grid{display:grid;grid-template-columns:repeat(auto-fit,minmax(280px,1fr));gap:20px}
+.cat-visual-grid{display:grid;grid-template-columns:repeat(auto-fit,minmax(min(100%,280px),1fr));gap:20px}
 .cat-visual{position:relative;display:block;border-radius:var(--radius);overflow:hidden;text-decoration:none;aspect-ratio:4/3;box-shadow:0 2px 10px rgba(0,0,0,.06);transition:transform .15s,box-shadow .15s}
 .cat-visual:hover{transform:translateY(-3px);box-shadow:0 12px 32px rgba(0,0,0,.14)}
 .cat-visual img{width:100%;height:100%;object-fit:cover;display:block}
@@ -63,7 +64,7 @@ a{color:var(--terra-dark)}
 .cat-visual-label em{font-style:normal;font-size:13px;font-weight:700;text-transform:uppercase;letter-spacing:.8px;opacity:.85}
 
 /* pinterest-style post cards */
-.pin-grid{grid-template-columns:repeat(auto-fill,minmax(280px,1fr))}
+.pin-grid{grid-template-columns:repeat(auto-fill,minmax(min(100%,280px),1fr))}
 .pin-card .thumb{aspect-ratio:4/3}
 .pin-card .body{padding:18px}
 .pin-card h3{font-family:var(--serif);font-size:19px;font-weight:700}
@@ -71,7 +72,7 @@ a{color:var(--terra-dark)}
 .section-head a{font-size:15px;font-weight:600;white-space:nowrap}
 
 /* post cards */
-.post-grid{display:grid;grid-template-columns:repeat(auto-fill,minmax(300px,1fr));gap:22px}
+.post-grid{display:grid;grid-template-columns:repeat(auto-fill,minmax(min(100%,300px),1fr));gap:22px}
 .post-card{background:var(--card);border:1px solid var(--line);border-radius:var(--radius);overflow:hidden;text-decoration:none;color:inherit;display:flex;flex-direction:column;transition:transform .15s,box-shadow .15s}
 .post-card:hover{transform:translateY(-3px);box-shadow:0 10px 30px rgba(0,0,0,.08)}
 .post-card .thumb{aspect-ratio:16/9;position:relative;overflow:hidden}
@@ -151,13 +152,39 @@ a{color:var(--terra-dark)}
 .footer-bottom{max-width:var(--max);margin:0 auto;padding:20px;border-top:1px solid #453f37;font-size:13px;color:#a89e90;display:flex;justify-content:space-between;gap:12px;flex-wrap:wrap}
 
 /* ---------- responsive ---------- */
+@media(max-width:900px){
+  .hero-inner{padding:56px 20px 48px}
+  .section{padding:44px 0 6px}
+}
+/* phones */
 @media(max-width:640px){
-  body{font-size:16px}
-  .hero-inner{padding:44px 20px 40px}
-  .nav{gap:12px}
-  .nav-links{margin-left:0}
+  body{font-size:16px;line-height:1.65}
+  .nav{padding:12px 16px;gap:8px}
+  .brand{font-size:20px}
+  .brand small{font-size:10px}
+  .nav-links{margin-left:0;width:100%;flex-wrap:nowrap;overflow-x:auto;-webkit-overflow-scrolling:touch;scrollbar-width:none}
+  .nav-links::-webkit-scrollbar{display:none}
+  .nav-links a{padding:12px 14px;font-size:14.5px;white-space:nowrap}
+  .hero-inner{padding:44px 18px 40px}
+  .hero-eyebrow{font-size:11.5px;letter-spacing:1.2px}
+  .hero-cta{padding:14px 28px;font-size:15.5px}
   .section{padding:36px 0 4px}
+  .section-head h2{font-size:24px}
+  .cat-visual-grid{grid-template-columns:1fr;gap:16px}
+  .cat-visual{aspect-ratio:16/10}
+  .post-grid,.pin-grid{grid-template-columns:1fr;gap:18px}
+  .article-head{padding:36px 18px 0}
+  .article-body{padding:28px 18px 16px}
   .article-body h2{font-size:23px}
+  .article-body img{border-radius:10px}
+  .keep-reading{padding:22px}
+  .footer-inner{padding:40px 18px 24px;gap:24px}
+  .footer-bottom{flex-direction:column;gap:6px}
+}
+/* very small phones */
+@media(max-width:380px){
+  .hero-inner h1{font-size:31px}
+  .hero-cta{display:block;text-align:center}
 }
 
 /* Real hero images */
