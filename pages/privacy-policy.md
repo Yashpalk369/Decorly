@@ -8,7 +8,7 @@ description: Decorly's privacy policy — what data we collect, how we use it, a
 
 *Last updated: October 14, 2026*
 
-Decorly ("we", "our") respects your privacy. This policy explains what information we collect when you visit decorly.co and how we use it.
+Decorly ("we", "our") respects your privacy. This policy explains what information we collect when you visit decorly.homes and how we use it.
 
 ## Information we collect
 
@@ -32,7 +32,7 @@ We do not sell your personal information. We do not share it with third parties 
 
 ## Your rights
 
-Depending on where you live, you may have the right to access, correct, or delete personal data we hold about you, and to object to certain processing. Contact us at hello@decorly.co and we will respond within 30 days.
+Depending on where you live, you may have the right to access, correct, or delete personal data we hold about you, and to object to certain processing. Contact us at hello@decorly.homes and we will respond within 30 days.
 
 ## Children's privacy
 
@@ -44,4 +44,4 @@ If we change this policy, we'll update the date above. Continued use of the site
 
 ## Contact
 
-Questions about this policy: hello@decorly.co
+Questions about this policy: hello@decorly.homes

@@ -21,4 +21,4 @@ We write for the rest of us: renters, apartment dwellers, and anyone decorating 
 
 Decorly is reader-supported. When you buy through links on our pages, we may earn an affiliate commission at no extra cost to you — that's how we keep the lights on. We only recommend products we'd buy ourselves, and affiliate relationships never decide what we cover. Sponsored content, if we ever run it, will always be labeled.
 
-Questions, corrections, or a rental win to share? Reach us at hello@decorly.co.
+Questions, corrections, or a rental win to share? Reach us at hello@decorly.homes.

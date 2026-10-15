@@ -1,6 +1,6 @@
 # Decorly — static blog scaffold
 
-A complete static home-decor blog for the domain **decorly.co** (not bought yet —
+A complete static home-decor blog for the domain **decorly.homes** (not bought yet —
 the site is fully working before the domain exists). Brand: *Decorly — Beautiful
 homes on a renter's budget.*
 
@@ -53,8 +53,8 @@ Twitter cards, canonical URL, breadcrumb JSON-LD. Posts also get Article
    - Output directory: **`site`**
    - Deploy. You'll get a `decorly.vercel.app` URL — the site works fully on it.
 
-3. **Buy the domain & point DNS** (after buying decorly.co, ~$5/yr at Spaceship)
-   - In Vercel: project → Settings → Domains → add `decorly.co` and `www.decorly.co`
+3. **Buy the domain & point DNS** (after buying decorly.homes, ~$5/yr at Spaceship)
+   - In Vercel: project → Settings → Domains → add `decorly.homes` and `www.decorly.homes`
    - Vercel shows the DNS records to add. At your registrar:
      - `A` record `@` → `76.76.21.21` (Vercel's IP — confirm the exact value Vercel shows)
      - `CNAME` record `www` → `cname.vercel-dns.com`
@@ -99,7 +99,7 @@ Twitter cards, canonical URL, breadcrumb JSON-LD. Posts also get Article
 
 ## Changing the domain
 
-One line in `config.py`: `SITE_URL = "https://decorly.co"`. Rebuild, push.
+One line in `config.py`: `SITE_URL = "https://decorly.homes"`. Rebuild, push.
 Canonicals, sitemap, RSS, and OG tags all regenerate from it.
 
 ## Verification (last run: 2026-10-14)
@@ -111,8 +111,8 @@ Canonicals, sitemap, RSS, and OG tags all regenerate from it.
 
 ## Still to do (owner)
 
-- [ ] Buy decorly.co; point DNS at Vercel (step 3 above)
+- [ ] Buy decorly.homes; point DNS at Vercel (step 3 above)
 - [ ] Apply for Amazon Associates; set real `AMAZON_TAG`
 - [ ] Add 8 real hero images (`assets/<slug>/hero.jpg`)
 - [ ] Set up Pinterest account + boards; pin plan is 2–3 fresh pins per post
-- [ ] Optional: replace `hello@decorly.co` contact email once mailbox exists
+- [ ] Optional: replace `hello@decorly.homes` contact email once mailbox exists
