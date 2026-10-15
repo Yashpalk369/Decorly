@@ -143,24 +143,28 @@ def build_hub(slug, cat):
 
 def build_home():
     latest = ALL_POSTS[:6]
-    cards = "\n".join(T.post_card(p) for p in latest)
+    cards = "\n".join(T.post_card_compact(p) for p in latest)
+    # representative real photo per category (hero images, verified to exist)
+    cat_img = {
+        "small-spaces": "15-small-bedroom-ideas-under-100",
+        "rental-friendly": "no-drill-wall-decor-renters",
+        "greenery-decor": "bedroom-plant-styling-ideas",
+    }
     cat_cards = []
     for slug, cat in CATEGORIES.items():
         n = len([p for p in ALL_POSTS if p["category"] == slug])
-        cat_cards.append(f"""<a class="cat-card" href="/{slug}/">
-<span class="motif">{cat['motif']}</span><h3>{T.esc(cat['name'])}</h3>
-<p>{T.esc(cat['description'][:120])}…</p>
-<span class="count">{n} post{'s' if n != 1 else ''} →</span></a>""")
+        cat_cards.append(T.cat_visual_card(slug, cat, cat_img[slug], n))
     body = f"""<div class="hero"><div class="hero-inner">
+<p class="hero-eyebrow">Budget decor for renters &amp; small spaces</p>
 <h1>Beautiful homes on a <em>renter's budget</em></h1>
 <p>Practical, budget-first decorating ideas for small spaces, rentals, and plant lovers. No renovation required.</p>
-<div class="hero-badges"><span class="badge">🏠 Small spaces</span><span class="badge">🔑 Renter-friendly</span><span class="badge">🌿 Greenery</span></div>
+<a class="hero-cta" href="#latest">Explore the latest ideas ↓</a>
 </div></div>
 <div class="wrap">
-<div class="section"><div class="section-head"><h2>Browse by room &amp; style</h2></div>
-<div class="cat-grid">{"".join(cat_cards)}</div></div>
-<div class="section"><div class="section-head"><h2>Latest ideas</h2></div>
-<div class="post-grid">{cards}</div></div>
+<div class="section"><div class="section-head"><h2>Start with your space</h2></div>
+<div class="cat-visual-grid">{"".join(cat_cards)}</div></div>
+<div class="section" id="latest"><div class="section-head"><h2>Latest ideas</h2><a href="/feed.xml">Follow via RSS →</a></div>
+<div class="post-grid pin-grid">{cards}</div></div>
 </div>"""
     ld = [T.breadcrumb_ld([("Home", "/")]),
           {"@context": "https://schema.org", "@type": "WebSite",

@@ -136,3 +136,20 @@ def post_card(post):
 <p>{esc(post['description'])}</p>
 <span class="date">{esc(post['date_pretty'])}</span>
 </div></a>"""
+
+def post_card_compact(post):
+    """Pinterest-style card: image + kicker + title only, no paragraph."""
+    return f"""<a class="post-card pin-card" href="/{post['slug']}/">
+<div class="thumb">{hero_art(post, big=False)}</div>
+<div class="body">
+<span class="kicker">{esc(post['cat_name'])}</span>
+<h3>{esc(post['title'])}</h3>
+<span class="date">{esc(post['date_pretty'])}</span>
+</div></a>"""
+
+def cat_visual_card(slug, cat, img_slug, n):
+    """Image-led category card: real photo with overlaid label."""
+    return f"""<a class="cat-visual" href="/{slug}/">
+<img src="/assets/{esc(img_slug)}/hero.jpg" alt="{esc(cat['name'])}" loading="lazy">
+<span class="cat-visual-label"><strong>{esc(cat['name'])}</strong>
+<em>{n} idea{'s' if n != 1 else ''} →</em></span></a>"""
