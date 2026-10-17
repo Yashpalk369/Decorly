@@ -23,7 +23,10 @@ def head(title, description, path, og_type="website", extra_head=""):
   gtag('config', '{mid}');
 </script>
 """
-    return f"""{ga}<meta charset="UTF-8">
+    gsv = ""
+    if getattr(config, "GOOGLE_SITE_VERIFICATION", ""):
+        gsv = f'<meta name="google-site-verification" content="{config.GOOGLE_SITE_VERIFICATION}">\n'
+    return f"""{ga}{gsv}<meta charset="UTF-8">
 <meta name="viewport" content="width=device-width, initial-scale=1.0">
 <title>{esc(title)}</title>
 <meta name="description" content="{esc(description)}">

@@ -14,5 +14,8 @@ AMAZON_TAG = "decorly-20"
 # Google Analytics 4 measurement ID. Injected as the gtag.js snippet on every page.
 GA_MEASUREMENT_ID = "G-FKL6VMXCF0"
 
+# Google Search Console site verification token. Injected as a meta tag on every page.
+GOOGLE_SITE_VERIFICATION = "3SxmeiBROAdRg73C_AbsxRRHnRD4V0wNvtrJRBfiIzc"
+
 # Contact shown on about/privacy pages (replace with a real one before launch).
 CONTACT_EMAIL = "hello@decorly.homes"
