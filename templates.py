@@ -77,6 +77,39 @@ def footer():
 <span>Made for renters, by renters.</span>
 </div></footer>"""
 
+def newsletter_band():
+    """Full-width warm CTA band for the homepage (placed after Latest ideas)."""
+    action = getattr(config, "EMAIL_FORM_ACTION", "") or "#"
+    return f"""<section class="newsletter-band" aria-labelledby="nl-band-title">
+<!-- EMAIL SIGNUP: placeholder action. The provider's subscribe form action goes in the
+     action="" attribute of the <form> tag below — set EMAIL_FORM_ACTION in config.py
+     (recommend Buttondown). Human step: create the provider account first; this form stores nothing until wired. -->
+<h2 id="nl-band-title">One budget decor idea in your inbox, every week</h2>
+<p>Join the Decorly letter — the week's best renter-friendly ideas, small-space tricks, and plant styling tips. Free, no spam, unsubscribe anytime.</p>
+<form class="newsletter-form" action="{esc(action)}" method="post">
+<label class="visually-hidden" for="nl-band-email">Email address</label>
+<input id="nl-band-email" type="email" name="email" placeholder="you@example.com" autocomplete="email" required>
+<button type="submit">Subscribe</button>
+</form>
+<p class="newsletter-note">Free forever &middot; Unsubscribe anytime</p>
+</section>"""
+
+def newsletter_inline():
+    """Compact inline signup form for the end of post pages."""
+    action = getattr(config, "EMAIL_FORM_ACTION", "") or "#"
+    return f"""<aside class="newsletter-inline" aria-labelledby="nl-inline-title">
+<!-- EMAIL SIGNUP: placeholder action. The provider's subscribe form action goes in the
+     action="" attribute of the <form> tag below — set EMAIL_FORM_ACTION in config.py
+     (recommend Buttondown). Human step: create the provider account first; this form stores nothing until wired. -->
+<h3 id="nl-inline-title">Want more ideas like this?</h3>
+<p>Get the Decorly letter — one budget decor idea in your inbox every week. Free.</p>
+<form class="newsletter-form" action="{esc(action)}" method="post">
+<label class="visually-hidden" for="nl-inline-email">Email address</label>
+<input id="nl-inline-email" type="email" name="email" placeholder="you@example.com" autocomplete="email" required>
+<button type="submit">Subscribe</button>
+</form>
+</aside>"""
+
 def page(title, description, path, body, active="", og_type="website", extra_head="", ld_blocks=None):
     """Assemble a complete HTML page."""
     ld = ""

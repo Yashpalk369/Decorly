@@ -122,6 +122,7 @@ def build_post(post):
 <div class="article-body">
 {body_html}
 {disclosure}
+{T.newsletter_inline()}
 {also_like}
 </div></article>"""
     return T.page(post["title"] + " | " + config.SITE_NAME,
@@ -164,6 +165,7 @@ def build_home():
 <div class="cat-visual-grid">{"".join(cat_cards)}</div></div>
 <div class="section" id="latest"><div class="section-head"><h2>Latest ideas</h2><a href="/feed.xml">Follow via RSS →</a></div>
 <div class="post-grid pin-grid">{cards}</div></div>
+{T.newsletter_band()}
 </div>"""
     ld = [T.breadcrumb_ld([("Home", "/")]),
           {"@context": "https://schema.org", "@type": "WebSite",

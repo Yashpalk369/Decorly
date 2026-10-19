@@ -14,6 +14,8 @@ Decorly ("we", "our") respects your privacy. This policy explains what informati
 
 **Information you give us:** If you contact us by email, we receive your email address and message content. We use it only to respond.
 
+**Newsletter:** If you sign up for our email newsletter, we collect your email address to send you decorating ideas. We never sell subscriber data, and you can unsubscribe at any time with the link in any email. While the signup form is not yet connected to an email provider, it stores nothing.
+
 **Information collected automatically:** Like most websites, our hosting provider logs basic technical data (pages visited, browser type, approximate location, referring site) for security and analytics. We do not use this to identify you personally.
 
 **Cookies:** We use a minimal set of cookies required for the site to function. If we add analytics or advertising partners in the future (for example, a display ad network), those partners may set their own cookies as described in their policies, and this page will be updated.

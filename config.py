@@ -19,3 +19,11 @@ GOOGLE_SITE_VERIFICATION = "3SxmeiBROAdRg73C_AbsxRRHnRD4V0wNvtrJRBfiIzc"
 
 # Contact shown on about/privacy pages (replace with a real one before launch).
 CONTACT_EMAIL = "hello@decorly.homes"
+
+# Email newsletter signup.
+# Human step: create the provider account first (recommend Buttondown — simple,
+# cheap, API-friendly), then paste its subscribe form action URL below.
+# While empty, the signup forms on the homepage and post pages render with a
+# clearly-marked placeholder action that stores nothing.
+EMAIL_PROVIDER = ""
+EMAIL_FORM_ACTION = ""

@@ -188,6 +188,32 @@ a{color:var(--terra-dark)}
   .hero-cta{display:block;text-align:center}
 }
 
+/* ---------- newsletter signup ---------- */
+.visually-hidden{position:absolute!important;width:1px;height:1px;padding:0;margin:-1px;overflow:hidden;clip:rect(0,0,0,0);white-space:nowrap;border:0}
+.newsletter-band{background:linear-gradient(135deg,#8e2f3f 0%,#67222f 100%);border-radius:var(--radius);padding:46px 32px;text-align:center;color:#faf3e6;margin:48px 0 8px}
+.newsletter-band h2{font-family:var(--serif);font-size:clamp(24px,3.5vw,32px);font-weight:700;letter-spacing:-.3px;margin-bottom:10px}
+.newsletter-band p{font-size:16.5px;color:#e9d3ae;max-width:580px;margin:0 auto 22px}
+.newsletter-form{display:flex;gap:10px;max-width:470px;margin:0 auto}
+.newsletter-form input[type=email]{flex:1;min-width:0;padding:13px 20px;border:1px solid rgba(255,255,255,.28);border-radius:999px;background:rgba(255,255,255,.12);color:#fff;font-size:16px;font-family:inherit}
+.newsletter-form input[type=email]::placeholder{color:rgba(250,243,230,.62)}
+.newsletter-form input[type=email]:focus{outline:2px solid var(--gold);outline-offset:1px;border-color:transparent}
+.newsletter-form button{padding:13px 30px;border:0;border-radius:999px;background:var(--gold);color:#3a0e18;font-weight:800;font-size:16px;font-family:inherit;cursor:pointer;transition:background .15s,transform .15s;white-space:nowrap}
+.newsletter-form button:hover{background:#e7b85a;transform:translateY(-2px)}
+.newsletter-note{font-size:13px!important;color:rgba(250,243,230,.68)!important;margin:14px auto 0!important}
+.newsletter-inline{background:var(--sand);border:1px solid var(--line);border-radius:var(--radius);padding:30px 28px;margin:2.6em 0;text-align:center}
+.newsletter-inline h3{font-family:var(--serif);font-size:22px;font-weight:700;letter-spacing:-.3px;margin-bottom:8px}
+.newsletter-inline p{font-size:15.5px;color:var(--muted);margin-bottom:18px}
+.newsletter-inline .newsletter-form input[type=email]{background:#fff;border-color:var(--line);color:var(--ink)}
+.newsletter-inline .newsletter-form input[type=email]::placeholder{color:#a89e90}
+.newsletter-inline .newsletter-form button{background:var(--terra);color:#fff}
+.newsletter-inline .newsletter-form button:hover{background:var(--terra-dark)}
+@media(max-width:640px){
+  .newsletter-band{padding:34px 22px;margin:36px 0 6px}
+  .newsletter-form{flex-direction:column}
+  .newsletter-form button{width:100%}
+  .newsletter-inline{padding:24px 20px}
+}
+
 /* Real hero images */
 .hero-img{width:100%;aspect-ratio:1200/630;object-fit:cover;display:block;border-radius:14px}
 .post-card .thumb-img{width:100%;aspect-ratio:16/9;object-fit:cover;display:block}
