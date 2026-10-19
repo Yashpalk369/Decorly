@@ -10,7 +10,7 @@ motif: 🧺
 
 Afrohemian decor — the blend of African craft traditions and bohemian warmth — is Pinterest's fastest-growing home trend of 2026, with searches up 220%. Mudcloth textiles, woven seagrass baskets, carved wood, and rich earthy palettes: it's bold, soulful, and surprisingly easy to do on a budget.
 
-The best part for renters in small apartments? Afrohemian style is built from small, portable pieces. No renovation, no heavy furniture, no commitment — just textiles, baskets, and wood accents that move with you. Here are nine finds, all under $25, that bring the look home.
+The best part for renters in small apartments? Afrohemian style is built from small, portable pieces. No renovation, no heavy furniture, no commitment — just textiles, baskets, and wood accents that move with you. Here are nine finds, all under $25, that bring the look home — and if your whole home is one room, our [studio apartment layout guide](/studio-apartment-layout-ideas/) shows how to zone it.
 
 ## 1. Mudcloth throw pillow covers
 
@@ -30,7 +30,7 @@ Flat woven baskets hung as a wall cluster are the Afrohemian answer to a gallery
 
 **Why it works:** baskets add texture and dimension without visual weight, which matters in small rooms where framed art can feel heavy. The natural fibers pull the whole earthy palette together.
 
-**Where it fits:** above a sofa, over a bed, or on a narrow hallway wall. Hang with a single removable adhesive hook per basket — zero holes, full style. [Shop seagrass wall baskets](https://www.amazon.com/s?k=woven+seagrass+wall+baskets+set+of+3&tag={{AMAZON_TAG}})
+**Where it fits:** above a sofa, over a bed, or on a narrow hallway wall. Hang with a single removable adhesive hook per basket — zero holes, full style. (More damage-free hanging ideas in our [no-drill wall decor guide](/no-drill-wall-decor-renters/).) [Shop seagrass wall baskets](https://www.amazon.com/s?k=woven+seagrass+wall+baskets+set+of+3&tag={{AMAZON_TAG}})
 
 ## 3. Carved wooden accent stool
 
@@ -40,7 +40,7 @@ A small carved or turned-wood stool ($18–25) is the hardest-working piece on t
 
 **Why it works:** carved wood brings the handcrafted, collected-over-time feeling that defines Afrohemian style. One real-wood piece elevates everything around it, including flat-pack furniture.
 
-**Where it fits:** beside the sofa with a plant or candle on top, or in a bedroom corner as a nightstand. [Shop carved wooden stools](https://www.amazon.com/s?k=carved+wooden+accent+stool+acacia&tag={{AMAZON_TAG}})
+**Where it fits:** beside the sofa with a plant or candle on top, or in a [bedroom corner](/15-small-bedroom-ideas-under-100/) as a nightstand. [Shop carved wooden stools](https://www.amazon.com/s?k=carved+wooden+accent+stool+acacia&tag={{AMAZON_TAG}})
 
 ## 4. Woven basket planter
 

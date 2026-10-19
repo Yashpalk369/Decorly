@@ -8,7 +8,7 @@ hero: hero-moss
 motif: 🪴
 ---
 
-North-facing windows. A bedroom that gets twenty minutes of sun. A living room shaded by the building next door. If your apartment is dark, you've probably been told plants aren't for you. That's wrong — you just need the right plants.
+North-facing windows. A bedroom that gets twenty minutes of sun. A living room shaded by the building next door. If your apartment is dark, you've probably been told plants aren't for you. That's wrong — you just need the right plants (and our [winter plant care guide](/winterize-indoor-plants-renter-guide/) keeps them alive through the darkest months).
 
 These ten genuinely tolerate low light. Not "bright indirect light" marketing-speak — actual dim corners. Every one is renter-friendly (they all live in pots), budget-friendly (most under $25), and forgiving of the occasional forgotten watering.
 

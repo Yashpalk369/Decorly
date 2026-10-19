@@ -18,7 +18,7 @@ Before the layouts, three rules that apply to all of them:
 
 **Rule 1: Every zone needs a boundary.** A rug, a bookshelf, a curtain, a lighting change — something that tells your brain "the bedroom ends here, the living room starts." Without boundaries, a studio feels like one big messy room.
 
-**Rule 2: The bed is the problem child.** Beds are huge and they scream "bedroom." Every good studio layout either hides the bed, zones it hard, or makes it do double duty. This is 80% of studio design.
+**Rule 2: The bed is the problem child.** Beds are huge and they scream "bedroom." Every good studio layout either hides the bed, zones it hard, or makes it do double duty — our [small bedroom ideas under $100](/15-small-bedroom-ideas-under-100/) are built for exactly this problem. This is 80% of studio design.
 
 **Rule 3: Sightlines matter more than square feet.** When you walk in the door, what do you see? If it's an unmade bed, the whole apartment feels like a bedroom. Arrange so the entry sightline hits your nicest zone — usually the living area.
 
@@ -74,7 +74,7 @@ The open bookshelf divider is the best version: it stores things on both sides, 
 
 ![The convertible studio (furniture does double duty)](/assets/studio-apartment-layout-ideas/idea-07.jpg)
 
-For the smallest studios (under 400 sq ft), static zones waste space. Instead: a daybed that serves as the sofa, a drop-leaf table that's a desk by day and dining table by night, an ottoman with storage instead of a coffee table.
+For the smallest studios (under 400 sq ft), static zones waste space. Instead: a daybed that serves as the sofa, a drop-leaf table that's a desk by day and dining table by night, an ottoman with storage instead of a coffee table. For renters who want personality in the living zone, [dopamine decor](/dopamine-decor-small-living-rooms/) shows how bold colour works in small spaces.
 
 The daybed is the hero piece — dressed with throw pillows by day it reads as a sofa; the bed is simply never "put away." This layout demands discipline (make the bed every morning — it *is* your sofa), but it makes tiny studios genuinely livable.
 
@@ -96,7 +96,7 @@ As far from the front door as possible, ideally near the windows. The entry sigh
 
 ### How do I separate the bed area without building walls?
 
-An open bookshelf placed perpendicular to the wall is the best divider — storage on both sides, light passes through, no installation. Alternatives: ceiling-track curtains ($30, renter-safe), tall plants in a row, or a folding screen. Avoid fully opaque dividers in small studios; they block light and make the space feel smaller.
+An open bookshelf placed perpendicular to the wall is the best divider — storage on both sides, light passes through, no installation. Alternatives: ceiling-track curtains ($30, renter-safe), tall plants in a row, or a folding screen. More ideas for the living side of the room in our [small living room storage hacks](/small-living-room-storage-hacks/). Avoid fully opaque dividers in small studios; they block light and make the space feel smaller.
 
 ### Is a room divider worth it in a 400 sq ft studio?
 

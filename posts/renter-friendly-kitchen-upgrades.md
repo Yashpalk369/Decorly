@@ -16,7 +16,7 @@ Roughly ordered by impact per dollar. The first three alone transform most renta
 
 ![Peel-and-stick backsplash tiles](/assets/renter-friendly-kitchen-upgrades/idea-01.jpg)
 
-The single highest-impact rental kitchen upgrade. Peel-and-stick subway tile or mosaic sheets ($25–40 for a typical rental backsplash area) go over existing tile or bare wall in an afternoon, and peel off cleanly with a hairdryer on move-out day.
+The single highest-impact rental kitchen upgrade. [Peel-and-stick](/temporary-wallpaper-renters/) subway tile or mosaic sheets ($25–40 for a typical rental backsplash area) go over existing tile or bare wall in an afternoon, and peel off cleanly with a hairdryer on move-out day.
 
 Tips that matter: clean the wall with degreaser first (kitchen walls are greasy even when they look clean), and buy 10% extra for cuts around outlets. The thicker vinyl tiles look dramatically better than the thin sticker sheets — worth the extra $10.
 
@@ -70,7 +70,7 @@ If your dish rack currently eats two square feet of counter, an over-the-sink ro
 
 ![Cabinet-door organizers (no drilling)](/assets/renter-friendly-kitchen-upgrades/idea-08.jpg)
 
-The insides of cabinet doors are free real estate. Adhesive or over-the-door organizers hold spices, wraps, cleaning supplies, and lids — all without a single screw. A $15 set of two door-mounted spice racks can empty an entire cabinet shelf.
+The insides of cabinet doors are free real estate. Adhesive or over-the-door organizers hold spices, wraps, cleaning supplies, and lids — all without a single screw. (More damage-free mounting ideas in our [no-drill wall decor guide](/no-drill-wall-decor-renters/).) A $15 set of two door-mounted spice racks can empty an entire cabinet shelf.
 
 Use the removable-adhesive kind, not the screw-in kind. And don't overload them; adhesive has limits, and a spice avalanche at 2am is a rite of passage you can skip.
 

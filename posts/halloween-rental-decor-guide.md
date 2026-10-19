@@ -8,7 +8,7 @@ hero: hero-terra
 motif: 🎃
 ---
 
-Halloween decorating in a rental feels like a trap: most of the good ideas involve nails, paint, or carving up the one decent pumpkin you bought. But here's the truth — the coziest, most put-together Halloween homes aren't the ones with the most stuff. They're the ones with a clear plan, a warm palette, and everything hung with removable hooks.
+Halloween decorating in a rental feels like a trap: most of the good ideas involve nails, paint, or carving up the one decent pumpkin you bought. But here's the truth — the coziest, most put-together Halloween homes aren't the ones with the most stuff. They're the ones with a clear plan, a warm palette, and everything hung with removable hooks. If you'd rather shop than DIY, our [Halloween decor finds under $15](/halloween-decor-finds-under-15/) are the cheapest way to fill the list.
 
 This guide walks you through decorating your rental for Halloween in six steps, for $50 total, with zero damage to walls, doors, or your security deposit. Every step is renter-safe, reversible in minutes, and built around one warm fall palette (terracotta, cream, warm black) so the whole place looks intentional instead of random.
 
@@ -18,7 +18,7 @@ This guide walks you through decorating your rental for Halloween in six steps, 
 
 Your entryway is what guests — and you, every single day — see first. Decorating just this zone delivers 60% of the Halloween feeling for 10% of the effort, which matters when you're on a budget.
 
-Set a small wooden bench, stool, or even a sturdy crate by your door. Line it with three to five mini pumpkins ($5–8 for a bag at any grocery store). Add a felt bat garland on the wall above it using removable adhesive hooks — bats read "Halloween" instantly and the whole garland costs under $10.
+Set a small wooden bench, stool, or even a sturdy crate by your door. Line it with three to five mini pumpkins ($5–8 for a bag at any grocery store). Add a felt bat garland on the wall above it using [removable adhesive hooks](/no-drill-wall-decor-renters/) — bats read "Halloween" instantly and the whole garland costs under $10.
 
 The renter rules here: nothing on the door itself that needs screws (use an over-the-door wreath hanger instead), and keep the walkway clear — landlords and fire codes both care about that. Stick to one small zone, and resist the urge to scatter decorations down the whole hallway. A tight, intentional entryway beats a house full of random spooky clutter every time.
 
@@ -56,7 +56,7 @@ This one arrangement carries the whole living area. It's also the only Halloween
 
 ![Cream wall with felt bat garland and paper pumpkin banner hung with removable hooks](/assets/halloween-rental-decor-guide/idea-05.jpg)
 
-Walls are where renters get into trouble, but they're also where Halloween decorating pays off most. The solution is garlands hung with removable adhesive hooks — they hold up to a few pounds each, come off cleanly, and cost about $3 for a pack.
+Walls are where renters get into trouble, but they're also where Halloween decorating pays off most. The solution is garlands hung with removable adhesive hooks — see our [no-drill wall decor guide](/no-drill-wall-decor-renters/) for weight limits and clean-removal tricks — they hold up to a few pounds each, come off cleanly, and cost about $3 for a pack.
 
 Pick one wall — ideally the one your sofa faces or the one behind it — and layer two garlands: a felt bat garland ($8) across the top, and a paper pumpkin or leaf banner ($5) hanging slightly lower. Stagger their heights so they don't look like one flat line. The layering is what makes it look designed.
 

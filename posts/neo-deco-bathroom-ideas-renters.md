@@ -8,7 +8,7 @@ hero: hero-gold
 motif: 🛁
 ---
 
-Neo Deco is Pinterest's 2026 answer to boring bathrooms: the glamour of 1920s art deco — brass, geometry, jewel tones, arches — translated for real life and real budgets. And here's the good news for renters: deco style is almost entirely surface-level. Mirrors, textiles, hardware swaps, and peel-and-stick finishes deliver the whole look without touching a single tile or pipe.
+Neo Deco is Pinterest's 2026 answer to boring bathrooms: the glamour of 1920s art deco — brass, geometry, jewel tones, arches — translated for real life and real budgets. And here's the good news for renters: deco style is almost entirely surface-level. Mirrors, textiles, hardware swaps, and [peel-and-stick finishes](/temporary-wallpaper-renters/) deliver the whole look without touching a single tile or pipe.
 
 Every idea below is fully removable, costs under $40, and takes an afternoon at most. When the lease ends, the bathroom goes back to beige and your deposit stays intact.
 
@@ -24,7 +24,7 @@ The fastest deco transformation going: self-adhesive tile decals in fan, scallop
 
 ![Arched brass mirror hung above a rental bathroom sink](/assets/neo-deco-bathroom-ideas-renters/idea-02.jpg)
 
-The arch is Neo Deco's signature shape, and a mirror is the cheapest way to get it. An arched mirror with a slim brass frame ($25–40) hung with heavy-duty removable strips transforms a plain builder-grade vanity into something that looks designed.
+The arch is Neo Deco's signature shape, and a mirror is the cheapest way to get it. An arched mirror with a slim brass frame ($25–40) hung with heavy-duty removable strips transforms a plain builder-grade vanity into something that looks designed. (Our [no-drill wall decor guide](/no-drill-wall-decor-renters/) covers hanging heavy pieces without holes.)
 
 **Renter tip:** use two sets of large removable hanging strips rated for the mirror's weight, and press for the full 30 seconds. When you move, dental floss slid behind the strip releases the adhesive cleanly.
 

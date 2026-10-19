@@ -16,7 +16,7 @@ The golden rule of dopamine decorating in a small space: commit to colour in lay
 
 ![Small living room with one bold terracotta peel-and-stick wallpaper accent wall](/assets/dopamine-decor-small-living-rooms/idea-01.jpg)
 
-A single saturated wall — terracotta, mustard, deep teal, cherry red — does more for a small living room than any other single change. It gives the eye somewhere to land, makes neutral furniture look deliberate, and photographs beautifully. And yes, you can do it in a rental: peel-and-stick wallpaper has become genuinely good, with thick, forgiving panels that reposition without tearing.
+A single saturated wall — terracotta, mustard, deep teal, cherry red — does more for a small living room than any other single change. It gives the eye somewhere to land, makes neutral furniture look deliberate, and photographs beautifully. And yes, you can do it in a rental: [peel-and-stick wallpaper](/temporary-wallpaper-renters/) has become genuinely good, with thick, forgiving panels that reposition without tearing.
 
 Pick the wall your sofa sits against or the one you see first when you walk in. Measure twice, order one extra roll, and start from the least visible corner while you learn. A bold botanical or stripe pattern in a warm palette doubles the dopamine hit — pattern plus colour is the maximalist sweet spot.
 
@@ -48,7 +48,7 @@ This is the cheapest idea on the list. Charity shops sell cushion covers for a f
 
 One lonely frame on a big wall whispers "temporary". Twenty frames in mixed sizes, colours, and styles shout "someone joyful lives here" — and a gallery wall is the single best way to fill vertical space in a small living room without eating a centimetre of floor. Mix free printable art, postcards, charity-shop paintings, family photos, and one weird thing you love.
 
-The renter-friendly hanging method matters: adhesive picture-hanging strips hold frames up to several kilos and remove without marks when you pull the tab correctly (slowly, straight down, never outward). Lay the arrangement on the floor first, photograph it, then transfer it to the wall working from the centre outward.
+The renter-friendly hanging method matters: [adhesive picture-hanging strips](/no-drill-wall-decor-renters/) hold frames up to several kilos and remove without marks when you pull the tab correctly (slowly, straight down, never outward). Lay the arrangement on the floor first, photograph it, then transfer it to the wall working from the centre outward.
 
 **Renter tip:** keep every frame within one large invisible rectangle — the "contained chaos" trick. Wildly different art inside a disciplined overall shape looks maximalist; scattered randomly it just looks messy.
 
@@ -68,7 +68,7 @@ For the artwork itself, free museum print collections offer high-resolution down
 
 Rug layering is the maximalist's answer to the boring rental carpet or the too-small rug you already own. A 120×170 cm vintage-style or boldly patterned rug laid at an angle over a larger neutral jute or sisal rug adds colour, pattern, and that collected-over-time richness — for less than the cost of one proper-sized statement rug.
 
-In a small living room, let the colourful top rug sit under the front legs of the sofa and the coffee table; the neutral base rug underneath extends the "zone" visually so the seating area feels generous. Slightly crooked is fine — actually, slightly crooked is the point. Perfectly aligned rugs read catalogue; artfully askew reads home.
+In a small living room, let the colourful top rug sit under the front legs of the sofa and the coffee table; the neutral base rug underneath extends the "zone" visually so the seating area feels generous — the same zoning logic behind our [studio apartment layout ideas](/studio-apartment-layout-ideas/). Slightly crooked is fine — actually, slightly crooked is the point. Perfectly aligned rugs read catalogue; artfully askew reads home.
 
 **Renter tip:** a thin non-slip rug pad between the layers stops everything migrating across hard floors and protects the landlord's flooring underneath. Cut it slightly smaller than the top rug so it stays invisible.
 
@@ -116,7 +116,7 @@ Keep every bulb warm (2700K) — cool white light makes bold colours look harsh 
 
 ### What is dopamine decor exactly?
 
-Dopamine decor is a joyful, maximalist decorating style built around colour, pattern, and objects that make you happy — the opposite of restrained beige minimalism. Pinterest's 2026 trend data backs the shift: searches for expressive, colourful interiors like "circus interior" are up 130% as people decorate for joy rather than resale value.
+Dopamine decor is a joyful, maximalist decorating style built around colour, pattern, and objects that make you happy — the opposite of restrained beige minimalism. Pinterest's 2026 trend data backs the shift: searches for expressive, colourful interiors like "circus interior" are up 130% as people decorate for joy rather than resale value. Another 2026 breakout, [Afrohemian decor](/afrohemian-decor-finds-under-25/), rides the same wave with earthy crafts and bold textiles.
 
 ### Won't bold colours make my small living room feel smaller?
 

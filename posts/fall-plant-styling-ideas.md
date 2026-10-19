@@ -90,7 +90,7 @@ Fall light is the whole mood, and the cheapest way to get it is candles tucked b
 
 Fall is reading season, and plants make the best reading nook. Pull your armchair near a window, surround it with your tallest plants (they're the walls of the nook), add a chunky knit throw and a floor cushion, and you've built an autumn retreat from things you already own. The plants do the decorating; the throw does the cozy.
 
-**Small-space trick:** in a studio, this nook doubles as your plant display — group plants by height behind and beside the chair and the corner reads as a deliberate green wall instead of scattered pots.
+**Small-space trick:** in [a studio](/studio-apartment-layout-ideas/), this nook doubles as your plant display — group plants by height behind and beside the chair and the corner reads as a deliberate green wall instead of scattered pots.
 
 ## 11. Fill a wooden bowl with gourds and air plants
 
@@ -118,13 +118,13 @@ Almost nothing if you already own houseplants. Every idea on this list stays und
 
 No — nearly all of them are temporary styling, not repotting. Plants stay in their own pots, get borrowed for an evening or a season, then go back. The only things to watch: keep real candle flames away from leaves and dried botanicals, and don't leave succulents in unlined pumpkins longer than two weeks (the moisture can rot them).
 
-### Can I do fall plant styling in a dark apartment?
+### Can I do fall plant styling in a [dark apartment](/low-light-indoor-plants-dark-apartments/)?
 
 Yes — lean on the ideas that don't need light to look good. Foraged branch arrangements, dried wheat bundles, amber glass vases, fairy lights, and candle clusters all work in low light. Save the living-plant displays for whatever bright spots you have, and let the dried and foraged elements carry the dark corners.
 
 ### When should I switch from summer to fall plant styling?
 
-Late September through October is the sweet spot — you want the styling up while the light is turning golden. Most of these ideas transition naturally into Thanksgiving, so you won't need to redecorate again in November. Pack the fall-specific bits away after Thanksgiving and your plants go back to everyday styling.
+Late September through October is the sweet spot — you want the styling up while the light is turning golden. Most of these ideas transition naturally into [Thanksgiving](/thanksgiving-plant-centerpiece-guide/), so you won't need to redecorate again in November. Pack the fall-specific bits away after Thanksgiving and your plants go back to everyday styling — then hand them over to our [winter plant care guide](/winterize-indoor-plants-renter-guide/) for the cold months.
 
 ### What if I don't own any houseplants?
 

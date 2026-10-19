@@ -44,7 +44,7 @@ If you're buying a sofa for a small living room anyway, get one with storage und
 
 ![One tall narrow bookcase instead of a wide one](/assets/small-living-room-storage-hacks/idea-05.jpg)
 
-A 12-inch-deep, 6-foot-tall bookcase holds as much as a wide 3-foot unit but eats half the floor space. Put it in the dead corner beside the window. Style the top two shelves (books + one plant), use the bottom shelves for closed baskets — pretty on top, practical below.
+A 12-inch-deep, 6-foot-tall bookcase holds as much as a wide 3-foot unit but eats half the floor space. Put it in the dead corner beside the window. Style the top two shelves (books + one plant — our [low-light plant picks](/low-light-indoor-plants-dark-apartments/) survive the gloomiest corners), use the bottom shelves for closed baskets — pretty on top, practical below.
 
 ### 6. Floating shelves above the sofa
 

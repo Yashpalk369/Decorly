@@ -42,7 +42,7 @@ Large-scale leaves, palms, or eucalyptus prints bring the biophilic trend to you
 
 ![Faux shiplap or beadboard](/assets/temporary-wallpaper-renters/idea-05.jpg)
 
-All the farmhouse texture with zero carpentry. Peel-and-stick shiplap planks in white brighten dark entryways and bathrooms. It's technically a "plank" product rather than wallpaper, but it applies and removes the same way.
+All the farmhouse texture with zero carpentry. Peel-and-stick shiplap planks in white brighten dark entryways and [bathrooms](/neo-deco-bathroom-ideas-renters/) — see our Neo Deco bathroom ideas for the full renter-bathroom playbook. It's technically a "plank" product rather than wallpaper, but it applies and removes the same way.
 
 ### 6. Terrazzo or speckled patterns
 

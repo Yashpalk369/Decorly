@@ -10,9 +10,9 @@ motif: 🎄
 
 Christmas in a rental doesn't have to mean choosing between festive and your security deposit. Every idea here costs $15 or less, needs zero drilling, zero nails, and zero landlord permission — and all of it comes down in January without a trace. The secret to great renter Christmas decor is thinking in layers: warm light, natural textures, and a few bold focal points do more than a dozen cheap plastic ornaments ever will.
 
-Start with what you already own — throws, candles, glass jars, houseplants — then add the holiday layer on top. Most of these ideas use supplies from the pound shop, the supermarket, or your own recycling bin. Let's make your rental look like a Christmas card.
+Start with what you already own — throws, candles, glass jars, [houseplants](/fall-plant-styling-ideas/) — then add the holiday layer on top. Most of these ideas use supplies from the pound shop, the supermarket, or your own recycling bin. Let's make your rental look like a Christmas card.
 
-## 1. Drape a garland with adhesive hooks — no drilling needed
+## 1. Drape a garland with [adhesive hooks](/no-drill-wall-decor-renters/) — no drilling needed
 
 ![Christmas garland draped over an apartment doorway hung with adhesive hooks](/assets/renter-friendly-christmas-decor-ideas/idea-01.jpg)
 
@@ -114,7 +114,7 @@ First impressions set the tone: a festive doormat ($8–12) plus a lantern fille
 Usually yes — there's rarely a lease clause against it. The real constraints are space and mess: a full-size tree sheds needles into carpet you'll be charged for, and it dominates a small flat. A mini tree or a potted living tree you keep afterwards is the renter-smart move.
 
 **How do I hang Christmas lights without drilling?**
-Adhesive hooks rated for the weight, suction cups on glass, and over-the-door hangers cover 95% of renter needs. For rooflines or balconies, gutter clips or railing hooks need no screws. Always check the hook's weight rating and let adhesive cure the full recommended time.
+[Adhesive hooks](/no-drill-wall-decor-renters/) rated for the weight, suction cups on glass, and over-the-door hangers cover 95% of renter needs. For rooflines or balconies, gutter clips or railing hooks need no screws. Always check the hook's weight rating and let adhesive cure the full recommended time.
 
 **Will Command hooks damage my paint when removed?**
 Used correctly, no — that's the whole point of them. The key is pulling the tab straight down slowly (never yanking outward), and not exceeding the weight rating. In very old or already-flaking paint, test one in a hidden spot first.

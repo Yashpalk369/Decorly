@@ -18,7 +18,7 @@ This seven-step guide assumes a standard rental: a single domestic oven, limited
 
 Your oven is the bottleneck, so the menu must be engineered around it. Write out every dish with its oven temperature and time, then work backwards: anything that can be made ahead, should be. Cranberry sauce, pie dough, stuffing base, mashed potato prep, and most desserts are all better made a day or two early — and they taste better for the rest.
 
-The golden rule for a single oven: the turkey (or your main) gets the oven on the day, and everything else gets the stovetop, the microwave, or room temperature. Mashed potatoes stay hot in a slow cooker, gravy reheats in a saucepan, rolls warm in the microwave under a damp towel. Print the schedule and stick it on the fridge — Thanksgiving morning is no time for mental maths.
+The golden rule for a single oven: the turkey (or your main) gets the oven on the day, and everything else gets the stovetop, the microwave, or room temperature. Mashed potatoes stay hot in a slow cooker, gravy reheats in a saucepan, rolls warm in the microwave under a damp towel. (More [renter-friendly kitchen upgrades](/renter-friendly-kitchen-upgrades/) make small kitchens work harder year-round.) Print the schedule and stick it on the fridge — Thanksgiving morning is no time for mental maths.
 
 ## Step 2: Rethink the bird for a small oven
 
@@ -54,6 +54,8 @@ Allow about 60 cm of table edge per person — elbows need room. Seat couples an
 
 ## Step 6: Style the table with zero-damage tricks
 
+For the centerpiece itself, our [Thanksgiving plant centerpiece guide](/thanksgiving-plant-centerpiece-guide/) builds a lush table arrangement from houseplants you already own.
+
 ![Thanksgiving table styled with linen runner, candles and autumn details](/assets/thanksgiving-rental-hosting-guide/idea-06.jpg)
 
 Rental tables are usually the first casualty of hosting — heat rings, scratches, candle wax. The fix is layers: a tablecloth or runner as the base (linen-look cotton is cheap and washable), placemats or chargers under every plate, and trivets or folded tea towels under every hot dish. No hot dish ever touches bare table — make this a rule and announce it cheerfully.
@@ -84,7 +86,7 @@ Layers and rules: tablecloth plus placemats plus trivets under every hot dish, f
 
 ### What's the cheapest way to make a rental feel festive for Thanksgiving?
 
-A £5 bag of small pumpkins and pinecones, supermarket eucalyptus stems, LED pillar candles you reuse at Christmas, a kraft-paper runner with handwritten place cards, and a big-batch punch. Under £25 total, everything reusable, and it looks abundant in photos — which is half the point.
+A £5 bag of small pumpkins and pinecones, supermarket eucalyptus stems, LED pillar candles you reuse at Christmas (see our [renter-friendly Christmas decor ideas](/renter-friendly-christmas-decor-ideas/)), a kraft-paper runner with handwritten place cards, and a big-batch punch. Under £25 total, everything reusable, and it looks abundant in photos — which is half the point.
 
 ### Should I ask guests to bring dishes?
 

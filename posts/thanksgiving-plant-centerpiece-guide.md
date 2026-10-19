@@ -8,9 +8,9 @@ hero: hero-gold
 motif: 🍂
 ---
 
-Thanksgiving tables are made for abundance, but florist centrepieces are priced for it too — a single professional arrangement can cost $75 or more, and it dies in a week. Here's the better plan: build your centrepiece from houseplants you already own and branches you forage for free. The result looks lush, expensive, and editorial, costs almost nothing, and every plant goes back to its pot when the guests leave.
+Thanksgiving tables are made for abundance, but florist centrepieces are priced for it too — a single professional arrangement can cost $75 or more, and it dies in a week. Here's the better plan: build your centrepiece from [houseplants](/fall-plant-styling-ideas/) you already own and branches you forage for free. The result looks lush, expensive, and editorial, costs almost nothing, and every plant goes back to its pot when the guests leave.
 
-This is a genuinely renter-friendly project: no drilling, no staining the table, no permanent anything. Give yourself about an hour, ideally the morning of or the day before Thanksgiving, and follow these six steps.
+This is a genuinely renter-friendly project: no drilling, no staining the table, no permanent anything. Give yourself about an hour, ideally the morning of or the day before Thanksgiving, and follow these six steps. (Hosting the whole dinner too? Our [Thanksgiving hosting guide](/thanksgiving-rental-hosting-guide/) covers the menu and seating plan.)
 
 ## Step 1: Shop your own plant collection first
 

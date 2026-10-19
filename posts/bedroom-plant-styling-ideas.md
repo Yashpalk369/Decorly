@@ -138,7 +138,7 @@ Absolutely. Snake plants, ZZ plants, and pothos survive in very low light — th
 
 ### How do I keep plants renter-friendly (no damage)?
 
-Use saucers or trays under every pot to prevent water rings, adhesive hooks instead of nails for hanging plants, and tension rods instead of drilled brackets. When you move, plants are the easiest decor to take with you — unlike wallpaper or paint, they pack into boxes.
+Use saucers or trays under every pot to prevent water rings, [adhesive hooks](/no-drill-wall-decor-renters/) instead of nails for hanging plants, and tension rods instead of drilled brackets. When you move, plants are the easiest decor to take with you — unlike wallpaper or paint, they pack into boxes.
 
 ### Do bedroom plants help with sleep?
 

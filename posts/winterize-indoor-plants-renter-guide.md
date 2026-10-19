@@ -8,7 +8,7 @@ hero: hero-sage
 motif: 🌿
 ---
 
-Every October, the same quiet plant tragedy plays out in rentals everywhere: the heating clicks on, the windows start weeping condensation, and houseplants that thrived all summer begin dropping yellow leaves. Winter is the hardest season for indoor plants — less light, dry heated air, cold drafts — and renters get the worst of it, with single-glazed windows, radiators under every sill, and no control over the thermostat.
+Every October, the same quiet plant tragedy plays out in rentals everywhere: the heating clicks on, the windows start weeping condensation, and houseplants that thrived all summer begin dropping yellow leaves. Enjoy the golden weeks first with our [fall plant styling ideas](/fall-plant-styling-ideas/) — then get them ready for the cold. Winter is the hardest season for indoor plants — less light (see our [low-light plant picks](/low-light-indoor-plants-dark-apartments/) for what thrives in dark apartments), dry heated air, cold drafts — and renters get the worst of it, with single-glazed windows, radiators under every sill, and no control over the thermostat.
 
 The good news: winterizing your plants takes one focused afternoon and costs almost nothing. These seven steps are built for rented flats — no drilling, no permanent changes, no arguing with your landlord about the heating. Do them now, and your plants will cruise through to spring instead of barely surviving.
 

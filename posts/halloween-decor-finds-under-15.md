@@ -8,7 +8,7 @@ hero: hero-umber
 motif: 🎃
 ---
 
-Halloween is thirteen days away, which means the good cheap stuff is about to sell out. The trick to decorating a small apartment for Halloween isn't buying more — it's buying small, buying removable, and buying things that earn their square footage. Every find on this list costs under $15, leaves zero damage (your deposit is safe), and works in a studio or one-bedroom where a six-foot skeleton simply isn't happening.
+Halloween is thirteen days away, which means the good cheap stuff is about to sell out. The trick to decorating a small apartment for Halloween isn't buying more — it's buying small, buying removable, and buying things that earn their square footage. Every find on this list costs under $15, leaves zero damage (your deposit is safe), and works in a [studio](/studio-apartment-layout-ideas/) or one-bedroom where a six-foot skeleton simply isn't happening.
 
 ## 1. Flameless LED pumpkin lanterns (set of 3)
 
@@ -84,7 +84,7 @@ One small black cat — a $8–12 ceramic figurine or a plush — perched on a b
 
 ![Halloween hanging door sign with spooky lettering on an apartment door](/assets/halloween-decor-finds-under-15/idea-08.jpg)
 
-A hanging door sign ($7–10) on a removable adhesive hook is the renter's wreath — "Happy Halloween" lettering, a witch-hat design, or a spooky welcome message that hangs on the inside or outside of your door. No nails, no damage, full curb appeal.
+A hanging door sign ($7–10) on a removable adhesive hook is [the renter's wreath](/halloween-rental-decor-guide/) — see our full Halloween rental decor guide for more door-and-entry ideas. — "Happy Halloween" lettering, a witch-hat design, or a spooky welcome message that hangs on the inside or outside of your door. No nails, no damage, full curb appeal.
 
 **Why it works:** the door is the first thing guests (and trick-or-treaters) see, and it's the easiest surface to decorate in a rental. One sign does the work of an entire porch display, which you don't have in an apartment anyway.
 
@@ -110,7 +110,7 @@ Keep everything removable and everything under $15, and when November arrives th
 
 ### Can I decorate for Halloween in a rental without losing my deposit?
 
-Yes — every item on this list is damage-free: static clings, removable decals, battery lights, and pieces that sit on surfaces. Avoid anything that needs nails, screws, or adhesive that isn't explicitly removable. When in doubt, use a removable hook and test decals on an inconspicuous spot first.
+Yes — every item on this list is [damage-free](/no-drill-wall-decor-renters/): static clings, removable decals, battery lights, and pieces that sit on surfaces. Avoid anything that needs nails, screws, or adhesive that isn't explicitly removable. When in doubt, use a removable hook and test decals on an inconspicuous spot first.
 
 ### How early should I buy Halloween decor?
 
@@ -126,7 +126,7 @@ Light and one statement wall. A $7 string of orange lights plus a $6 sheet of ba
 
 ### Can I reuse any of this for Thanksgiving or Christmas?
 
-The orange string lights and LED candles transition straight into Thanksgiving. The black cat figurine and candy bowl work year-round as regular decor. Pillow covers, bat decals, and window clings are Halloween-only — but they all store flat in a single box.
+The orange string lights and LED candles transition straight into [Thanksgiving](/thanksgiving-rental-hosting-guide/) — our hosting guide shows how to carry the look through November. The black cat figurine and candy bowl work year-round as regular decor. Pillow covers, bat decals, and window clings are Halloween-only — but they all store flat in a single box.
 
 ### Are LED pumpkins safe around kids and pets?
 
