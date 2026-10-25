@@ -1,0 +1,8 @@
+# Decorly published topics (slug | topic | date | style | category)
+# NOTE: this file was missing at the 2026-10-25 run; recreated from that run onward.
+# Earlier runs (2026-10-10 to 2026-10-24) are in git history; only 2026-10-25+ is logged here.
+2026-10-25 | small-apartment-balcony-winter-ideas | 9 Small Apartment Balcony Ideas for Winter That Actually Get Used | A Listicle | small-spaces
+2026-10-25 | cozy-reading-nook-small-apartment-guide | How to Create a Cozy Reading Nook in a Small Apartment | B Guide | small-spaces
+2026-10-25 | renter-friendly-thanksgiving-decor-ideas | 10 Renter-Friendly Thanksgiving Decor Ideas Under $20 | A Listicle | rental-friendly
+2026-10-25 | cozy-throw-blankets-renters-under-25 | 9 Cozy Throw Blankets Under $25 for Renters | C Roundup | rental-friendly
+2026-10-25 | keep-poinsettias-alive-guide | How to Keep Poinsettias Alive Through Christmas (and Beyond) | B Guide | greenery-decor

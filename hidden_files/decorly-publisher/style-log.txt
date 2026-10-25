@@ -1,0 +1,9 @@
+# Last article style per category (rotate: never the same style twice in a row per category)
+# NOTE: this file was missing at the 2026-10-25 run; last styles before that run were reconstructed from post dates/styles:
+#   small-spaces last = C Roundup (2026-10-24 iridescent-decor-accents-under-25)
+#   rental-friendly last = B Guide (2026-10-24 mudcloth-pillow-styling-guide)
+#   greenery-decor last = C Roundup (2026-10-23 holiday-plant-gifts-under-20)
+# 2026-10-25 run (2/2/1 split):
+small-spaces: B Guide (2026-10-25 cozy-reading-nook-small-apartment-guide; also A Listicle small-apartment-balcony-winter-ideas same day)
+rental-friendly: C Roundup (2026-10-25 cozy-throw-blankets-renters-under-25; also A Listicle renter-friendly-thanksgiving-decor-ideas same day)
+greenery-decor: B Guide (2026-10-25 keep-poinsettias-alive-guide)
