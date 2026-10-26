@@ -108,6 +108,14 @@ First impressions set the tone: a festive doormat ($8–12) plus a lantern fille
 
 **Small-space win:** the entryway is usually dead space in a rental — decorating it adds Christmas spirit without taking a centimetre from your living areas. A $3 pine-scented reed diffuser by the door completes the illusion.
 
+## Shop this look: renter-friendly Christmas
+
+- **Stocking holders that need no mantel** — weighted stands, no holes anywhere. [Shop stocking holders no mantel](https://www.amazon.com/s?k=stocking+holders+no+mantel&tag={{AMAZON_TAG}})
+- **Heavy-duty adhesive hooks** — the backbone of damage-free decorating. [Shop heavy-duty adhesive hooks](https://www.amazon.com/s?k=heavy+duty+adhesive+hooks+christmas&tag={{AMAZON_TAG}})
+- **Pre-lit Christmas garland** — instant mantel-piece on any shelf. [Shop pre-lit garlands](https://www.amazon.com/s?k=pre-lit+christmas+garland&tag={{AMAZON_TAG}})
+- **Tabletop Christmas tree** — a full tree for a flat without floor space. [Shop tabletop christmas trees](https://www.amazon.com/s?k=tabletop+christmas+tree&tag={{AMAZON_TAG}})
+- **Battery fairy lights** — light anywhere, no socket hunt. [Shop battery fairy lights](https://www.amazon.com/s?k=battery+fairy+lights+christmas&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 **Can I put up a real Christmas tree in a rental?**

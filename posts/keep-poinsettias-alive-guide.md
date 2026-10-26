@@ -72,6 +72,14 @@ Reblooming takes one trick: from late September, the plant needs 14 hours of uni
 
 **Even if reblooming sounds like too much:** keeping the plant alive as a green houseplant through the year is a win on its own. The green form is an attractive foliage plant, and it costs you nothing but a windowsill.
 
+## Shop this look: keeping poinsettias alive
+
+- **Small indoor watering can** — small pots need a small, precise pour. [Shop small watering cans](https://www.amazon.com/s?k=small+indoor+watering+can&tag={{AMAZON_TAG}})
+- **Liquid houseplant food** — a weak feed keeps the colour coming. [Shop liquid plant food](https://www.amazon.com/s?k=liquid+houseplant+food&tag={{AMAZON_TAG}})
+- **Decorative pot covers** — hide the nursery pot, keep the drainage. [Shop decorative pot covers](https://www.amazon.com/s?k=decorative+plant+pot+covers&tag={{AMAZON_TAG}})
+- **Grow light bulb** — winter light levels, without a new lamp. [Shop grow light bulbs](https://www.amazon.com/s?k=grow+light+bulb+for+indoor+plants&tag={{AMAZON_TAG}})
+- **Soil moisture meter** — poinsettias hate wet feet — check first. [Shop soil moisture meters](https://www.amazon.com/s?k=soil+moisture+meter+for+houseplants&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 **Why are my poinsettia's leaves falling off?**

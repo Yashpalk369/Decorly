@@ -92,6 +92,14 @@ A felt tree wall hanging ($12–15) with sewn-on pockets works as tree, advent c
 
 **Family pick:** toddlers can rearrange felt ornaments endlessly without breaking anything, which is more than can be said for baubles at grabbing height. Adults: use the pockets for an actual advent countdown and skip buying a separate calendar.
 
+## Shop this look: small-space Christmas trees
+
+- **Slim pencil Christmas tree** — full height, half the footprint. [Shop slim pencil trees](https://www.amazon.com/s?k=slim+pencil+christmas+tree&tag={{AMAZON_TAG}})
+- **Tabletop Christmas tree** — a real tree on a sideboard. [Shop tabletop christmas trees](https://www.amazon.com/s?k=small+tabletop+christmas+tree&tag={{AMAZON_TAG}})
+- **Shatterproof ornaments** — cat-proof and toddler-proof baubles. [Shop shatterproof ornaments](https://www.amazon.com/s?k=shatterproof+christmas+ornaments&tag={{AMAZON_TAG}})
+- **Christmas tree collar** — tidier than a skirt, no tripping. [Shop tree collars](https://www.amazon.com/s?k=christmas+tree+collar&tag={{AMAZON_TAG}})
+- **Christmas tree storage bag** — next year starts untangled. [Shop tree storage bags](https://www.amazon.com/s?k=christmas+tree+storage+bag&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 **What size Christmas tree fits a small apartment?**

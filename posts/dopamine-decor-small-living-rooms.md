@@ -112,6 +112,14 @@ Keep every bulb warm (2700K) — cool white light makes bold colours look harsh 
 
 **Renter tip:** save every original bulb and shade in a labelled box. Swapping them back takes ten minutes on moving day, and warm bulbs make viewings-free evenings so much better that you'll never go back.
 
+## Shop this look: dopamine decor
+
+- **Colourful throw pillow covers** — the cheapest colour injection in the room. [Shop colourful pillow covers](https://www.amazon.com/s?k=colorful+throw+pillow+covers&tag={{AMAZON_TAG}})
+- **Bold abstract art prints** — one big print beats a fussy gallery wall. [Shop colourful art prints](https://www.amazon.com/s?k=colorful+abstract+art+prints&tag={{AMAZON_TAG}})
+- **Bright small area rug** — grounds the colour scheme underfoot. [Shop bright area rugs](https://www.amazon.com/s?k=bright+colorful+small+area+rug&tag={{AMAZON_TAG}})
+- **Coloured glass vases** — colour even when the flowers are gone. [Shop coloured glass vases](https://www.amazon.com/s?k=colored+glass+vases&tag={{AMAZON_TAG}})
+- **Bright curtains** — colour at the window, visible from everywhere. [Shop bright curtains](https://www.amazon.com/s?k=bright+colorful+curtains&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### What is dopamine decor exactly?

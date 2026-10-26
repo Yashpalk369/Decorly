@@ -102,6 +102,14 @@ Use a railing planter or a narrow trough so the herbs don't eat floor space, and
 
 **The payoff:** stepping onto your balcony to snip rosemary for roast potatoes in December is the moment a winter balcony stops being a project and starts being a habit. That is the whole point.
 
+## Shop this look: winter balcony living
+
+- **Outdoor balcony string lights** — the single biggest winter upgrade. [Shop outdoor string lights](https://www.amazon.com/s?k=outdoor+balcony+string+lights&tag={{AMAZON_TAG}})
+- **Weatherproof outdoor blanket** — actually sitting out in December. [Shop outdoor blankets](https://www.amazon.com/s?k=weatherproof+outdoor+blanket&tag={{AMAZON_TAG}})
+- **Small outdoor rug** — warmer feet, defined space. [Shop small outdoor rugs](https://www.amazon.com/s?k=small+outdoor+rug+balcony&tag={{AMAZON_TAG}})
+- **Battery outdoor lanterns** — candlelight without a flame outdoors. [Shop battery lanterns](https://www.amazon.com/s?k=battery+outdoor+lanterns&tag={{AMAZON_TAG}})
+- **Waterproof cushion covers** — cushions that survive a winter shower. [Shop outdoor cushion covers](https://www.amazon.com/s?k=waterproof+outdoor+cushion+covers&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 **Can I really use a small balcony in winter, or is it just for looks?**

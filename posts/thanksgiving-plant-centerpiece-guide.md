@@ -60,6 +60,14 @@ The final layer is light. Tuck three to five candles of varying heights into the
 
 Underneath it all, a simple runner pulls the whole table together. A strip of linen, a length of kraft paper you can write guests' names on, or even a neutral throw folded lengthwise — anything long and low-contrast. Then stand back from the doorway one last time. If it looks abundant from there, it will photograph beautifully, which is half the point of Thanksgiving.
 
+## Shop this look: plant centerpieces
+
+- **Glass bud vases** — single stems, maximum effect. [Shop glass bud vases](https://www.amazon.com/s?k=glass+bud+vases&tag={{AMAZON_TAG}})
+- **Dried pampas grass** — height without wilting by dinner. [Shop dried pampas grass](https://www.amazon.com/s?k=dried+pampas+grass&tag={{AMAZON_TAG}})
+- **Unscented taper candles** — candlelight that never fights the food. [Shop taper candles](https://www.amazon.com/s?k=unscented+taper+candles&tag={{AMAZON_TAG}})
+- **Brass taper candle holders** — warm metal against the greenery. [Shop brass candle holders](https://www.amazon.com/s?k=brass+taper+candle+holders&tag={{AMAZON_TAG}})
+- **Linen table runner** — the base every centerpiece needs. [Shop linen table runners](https://www.amazon.com/s?k=linen+table+runner&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### Will my houseplants survive being in a centrepiece?

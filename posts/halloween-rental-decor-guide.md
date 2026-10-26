@@ -86,6 +86,14 @@ Here's roughly where the money goes, if you're buying everything new:
 
 Total: $47–62. Buy the pumpkins at a grocery store instead of a craft shop, reuse last year's lights, and you're comfortably under $50. Every non-perishable item stores in one small box and comes back out next October.
 
+## Shop this look: renter-friendly Halloween
+
+- **Pumpkin string lights** — the whole look in one string. [Shop pumpkin string lights](https://www.amazon.com/s?k=pumpkin+string+lights+halloween&tag={{AMAZON_TAG}})
+- **Removable bat wall decals** — bats on the wall, nothing on the deposit. [Shop bat wall decals](https://www.amazon.com/s?k=halloween+bat+wall+decals+removable&tag={{AMAZON_TAG}})
+- **Battery tea light candles** — flicker with no flame and no wax. [Shop battery tea lights](https://www.amazon.com/s?k=battery+tea+light+candles&tag={{AMAZON_TAG}})
+- **Halloween window clings** — spooky from the street, gone in November. [Shop halloween window clings](https://www.amazon.com/s?k=halloween+window+clings&tag={{AMAZON_TAG}})
+- **Halloween garland** — one swag dresses a whole doorway. [Shop halloween garlands](https://www.amazon.com/s?k=halloween+garland+indoor&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### How do I hang Halloween decorations in a rental without damaging walls?

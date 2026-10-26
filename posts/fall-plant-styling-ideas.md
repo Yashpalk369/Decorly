@@ -108,6 +108,14 @@ A $6 string of warm-white fairy lights woven through the branches of your larges
 
 **Do it right:** use battery-operated lights with a timer (6 hours on, 18 off is standard) so you never have to remember. Warm white only — cool white reads as office lighting and kills the cozy instantly. This single trick makes a bigger difference than any other item on this list.
 
+## Shop this look: fall plant styling
+
+- **Terracotta plant pots** — the autumn look in one material. [Shop terracotta pots](https://www.amazon.com/s?k=terracotta+plant+pots&tag={{AMAZON_TAG}})
+- **Macrame plant hangers** — height without a single shelf. [Shop macrame plant hangers](https://www.amazon.com/s?k=macrame+plant+hangers&tag={{AMAZON_TAG}})
+- **Long-spout watering can** — precise watering for crowded shelves. [Shop long-spout watering cans](https://www.amazon.com/s?k=long+spout+watering+can+indoor&tag={{AMAZON_TAG}})
+- **Fine-mist plant sprayer** — daily misting without drowning leaves. [Shop plant misters](https://www.amazon.com/s?k=fine+mist+plant+sprayer&tag={{AMAZON_TAG}})
+- **Small indoor plant stands** — tiered height for a windowsill collection. [Shop small plant stands](https://www.amazon.com/s?k=small+indoor+plant+stands&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### How much does fall plant styling cost?

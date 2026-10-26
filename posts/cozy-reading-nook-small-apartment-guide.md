@@ -72,6 +72,14 @@ Protect the ritual from the flat's other jobs. If the nook chair becomes the pla
 
 **Start tonight:** pick the corner, drag the chair over, put a lamp behind it and read one chapter. The nook doesn't need to be finished to be used — in fact, reading in it half-finished is how you learn what it still needs.
 
+## Shop this look: a reading nook that gets used
+
+- **Arc floor lamp** — overhead light without a ceiling fitting. [Shop arc floor lamps for reading](https://www.amazon.com/s?k=arc+floor+lamp+for+reading&tag={{AMAZON_TAG}})
+- **Chunky knit throw blanket** — the layer that makes the chair inviting. [Shop chunky knit throws](https://www.amazon.com/s?k=chunky+knit+throw+blanket&tag={{AMAZON_TAG}})
+- **Reading pillow with arms** — back support for a full hour of reading. [Shop reading pillows](https://www.amazon.com/s?k=reading+pillow+with+arms&tag={{AMAZON_TAG}})
+- **C-shaped side table** — slides over the chair arm for tea and a book. [Shop c-shaped side tables](https://www.amazon.com/s?k=c-shaped+side+table+small&tag={{AMAZON_TAG}})
+- **Clip-on book light** — a third light level that costs nothing to run. [Shop clip-on book lights](https://www.amazon.com/s?k=clip+on+book+light&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 **How much space do I really need for a reading nook?**

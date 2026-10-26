@@ -92,6 +92,14 @@ Once the practical problems are solved, the entryway deserves one purely cozy to
 
 Keep it to one or two touches, not five. In a small space, a single warm light and a wreath do more than a crowded display, and they survive the daily traffic of coats and boots because they sit above it — on the wall, on the shelf, on the door — rather than in it.
 
+## Shop this look: winter entryway that works
+
+- **Boot tray** — melting snow stops at the door. [Shop boot trays](https://www.amazon.com/s?k=boot+tray+for+entryway&tag={{AMAZON_TAG}})
+- **Heavy-duty adhesive wall hooks** — coats up, walls untouched. [Shop adhesive wall hooks](https://www.amazon.com/s?k=heavy+duty+adhesive+wall+hooks&tag={{AMAZON_TAG}})
+- **Woven entryway basket** — scarves and gloves in one grab. [Shop woven baskets](https://www.amazon.com/s?k=woven+entryway+basket&tag={{AMAZON_TAG}})
+- **Small entryway bench** — somewhere to sit and pull boots on. [Shop small entryway benches](https://www.amazon.com/s?k=small+entryway+bench&tag={{AMAZON_TAG}})
+- **Winter doormat** — the first line of defence against grit. [Shop winter doormats](https://www.amazon.com/s?k=winter+doormat&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 **How do I keep a small entryway from smelling damp in winter?**

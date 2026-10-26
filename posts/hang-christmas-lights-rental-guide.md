@@ -68,6 +68,14 @@ Takedown is where deposits are lost, so take it slowly. For adhesive clips, pull
 
 Then store the lights properly, because you will buy them again next year if you do not. Wrap each string around a piece of cardboard or a purpose-made reel, rather than stuffing it in a bag where it tangles into a knot that takes an hour to undo. Keep the clips with the lights in the same box, labelled by room, and next December the whole job takes half the time — which is the real gift of doing it properly this year.
 
+## Shop this look: hanging lights without damage
+
+- **Adhesive light clips** — the clip the whole guide depends on. [Shop adhesive light clips](https://www.amazon.com/s?k=adhesive+christmas+light+clips&tag={{AMAZON_TAG}})
+- **Warm white LED string lights** — the classic glow, low heat, low bills. [Shop warm white string lights](https://www.amazon.com/s?k=warm+white+led+christmas+string+lights&tag={{AMAZON_TAG}})
+- **Outdoor-rated string lights** — balcony-safe in winter weather. [Shop outdoor string lights](https://www.amazon.com/s?k=outdoor+christmas+string+lights&tag={{AMAZON_TAG}})
+- **Christmas light storage reel** — next December takes half the time. [Shop light storage reels](https://www.amazon.com/s?k=christmas+light+storage+reel&tag={{AMAZON_TAG}})
+- **Outlet timer for lights** — lights on at dusk, off at bedtime, automatically. [Shop outlet light timers](https://www.amazon.com/s?k=outlet+timer+for+christmas+lights&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 **Will adhesive light clips damage rental walls?**

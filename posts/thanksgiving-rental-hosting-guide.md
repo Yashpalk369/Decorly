@@ -70,6 +70,14 @@ The unglamorous step that saves your deposit: plan the cleanup before the party.
 
 The morning after, work top to bottom: clear and wipe the table first (red wine and cranberry stain fast — salt on a fresh red-wine spill buys you time), then the kitchen, then floors. Return borrowed items within two days, washed. A rental that hosted eight people for Thanksgiving and shows zero evidence the next day is the ultimate renter flex — and your deposit stays exactly where it belongs.
 
+## Shop this look: hosting Thanksgiving in a rental
+
+- **Thanksgiving tablecloth** — covers a multitude of table sins. [Shop thanksgiving tablecloths](https://www.amazon.com/s?k=thanksgiving+tablecloth&tag={{AMAZON_TAG}})
+- **Cloth dinner napkins** — instantly more grown-up than paper. [Shop cloth napkins](https://www.amazon.com/s?k=cloth+dinner+napkins&tag={{AMAZON_TAG}})
+- **Serving platter** — one big platter serves the whole table. [Shop serving platters](https://www.amazon.com/s?k=serving+platter&tag={{AMAZON_TAG}})
+- **Fall placemats** — place settings that look intentional. [Shop fall placemats](https://www.amazon.com/s?k=fall+placemats&tag={{AMAZON_TAG}})
+- **Stackable guest chairs** — seating for everyone, stored anywhere after. [Shop stackable guest chairs](https://www.amazon.com/s?k=stackable+guest+chairs&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### Can I really host Thanksgiving with only one small oven?

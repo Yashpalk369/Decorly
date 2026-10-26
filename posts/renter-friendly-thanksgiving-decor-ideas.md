@@ -112,6 +112,14 @@ This is a particularly good idea for ground-floor and street-facing rentals, whe
 
 **Removal:** painter's tape peels off glass cleanly, and the leaves fold flat into an envelope for next year. Zero damage, zero storage problem.
 
+## Shop this look: Thanksgiving table dressing
+
+- **Fall tablecloth** — the base layer the whole table builds on. [Shop fall tablecloths](https://www.amazon.com/s?k=fall+tablecloth&tag={{AMAZON_TAG}})
+- **Autumn cloth napkins** — washable, and they look the part. [Shop autumn cloth napkins](https://www.amazon.com/s?k=autumn+cloth+napkins&tag={{AMAZON_TAG}})
+- **Taper candle holders** — height and candlelight for pennies. [Shop taper candle holders](https://www.amazon.com/s?k=taper+candle+holders&tag={{AMAZON_TAG}})
+- **Faux eucalyptus stems** — greenery that lasts past the weekend. [Shop faux eucalyptus stems](https://www.amazon.com/s?k=faux+eucalyptus+stems&tag={{AMAZON_TAG}})
+- **Fall table runner** — one runner pulls the whole table together. [Shop fall table runners](https://www.amazon.com/s?k=fall+table+runner&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 **How can I decorate for Thanksgiving without damaging my rental?**

@@ -84,6 +84,14 @@ Double-potting means placing the plant's nursery pot inside a larger decorative 
 
 Keep the moss damp, not soaking, and replace it every few months when it starts to break down. This method works best for plants that like consistently moist air but not wet roots, because the moisture stays outside the inner pot — the plant's soil is never waterlogged by the moss. It is also the most decorative of all the methods here, which makes it a good choice for a plant that sits front and centre in your living room.
 
+## Shop this look: humidity without a machine
+
+- **Pebble trays for plants** — evaporating water right under the leaves. [Shop pebble trays](https://www.amazon.com/s?k=pebble+trays+for+houseplants&tag={{AMAZON_TAG}})
+- **Continuous mist spray bottle** — a fine mist that actually reaches leaves. [Shop mist spray bottles](https://www.amazon.com/s?k=continuous+mist+spray+bottle+plants&tag={{AMAZON_TAG}})
+- **Indoor hygrometer** — know the humidity before guessing. [Shop indoor hygrometers](https://www.amazon.com/s?k=indoor+hygrometer+for+plants&tag={{AMAZON_TAG}})
+- **Tiered plant stands** — grouping plants raises local humidity. [Shop tiered plant stands](https://www.amazon.com/s?k=tiered+plant+stands+indoor&tag={{AMAZON_TAG}})
+- **Soil moisture meter** — water when the soil says so, not the calendar. [Shop soil moisture meters](https://www.amazon.com/s?k=soil+moisture+meter+for+houseplants&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 **How do I know if my flat is too dry for my plants?**

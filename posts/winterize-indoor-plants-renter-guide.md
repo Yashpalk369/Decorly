@@ -68,6 +68,14 @@ In rentals, the warmest spot is often the worst: directly above a radiator. Blas
 
 Finally, resist the urge to repot. Winter-repotted plants sit in damp, oversized soil for months and sulk. If a plant is badly root-bound, slip-pot it (whole root ball into a slightly bigger pot, no root disturbance) — otherwise, make a repotting list for March and leave everyone alone until then.
 
+## Shop this look: winter-proofing houseplants
+
+- **Clip-on grow light** — light for the darkest corner, no new lamp. [Shop clip-on grow lights](https://www.amazon.com/s?k=clip+on+grow+light+for+plants&tag={{AMAZON_TAG}})
+- **Door draft stopper** — cold air stops at the door, not the leaves. [Shop draft stoppers](https://www.amazon.com/s?k=door+draft+stopper&tag={{AMAZON_TAG}})
+- **Window insulation film** — warmer glass for plants on the sill. [Shop window insulation film](https://www.amazon.com/s?k=window+insulation+film&tag={{AMAZON_TAG}})
+- **Humidity tray for plants** — a shallow tray of water under the pot. [Shop humidity trays](https://www.amazon.com/s?k=humidity+tray+for+plants&tag={{AMAZON_TAG}})
+- **Indoor thermometer with humidity** — see the room the way the plant feels it. [Shop indoor thermometers](https://www.amazon.com/s?k=indoor+thermometer+with+humidity&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 **Do indoor plants really go dormant in winter?**

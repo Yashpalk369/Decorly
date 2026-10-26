@@ -108,6 +108,14 @@ If your window has even a 40 cm deep sill or a radiator cover beneath it, you ha
 
 **Why it wins:** it turns dead space into the flat's favourite seat, and every element (cushions, throw, lights) gets used year-round. For the plant side of the nook, our [winter windowsill garden guide](/winter-windowsill-garden-guide/) shows how to keep greenery thriving right beside it.
 
+## Shop this look: Christmas window dressing
+
+- **LED fairy string lights** — the glow that makes the whole window read as dressed. [Shop window fairy lights](https://www.amazon.com/s?k=window+fairy+string+lights&tag={{AMAZON_TAG}})
+- **Suction-cup window hooks** — hang lights and garlands with zero marks. [Shop suction cup window hooks](https://www.amazon.com/s?k=suction+cup+hooks+for+windows&tag={{AMAZON_TAG}})
+- **Christmas window clings** — instant snowflakes, fully removable. [Shop christmas window clings](https://www.amazon.com/s?k=christmas+window+clings+snowflakes&tag={{AMAZON_TAG}})
+- **Battery-operated window candles** — a warm sill glow with no trailing wires. [Shop battery window candles](https://www.amazon.com/s?k=battery+operated+window+candles+christmas&tag={{AMAZON_TAG}})
+- **Tension rod for windows** — the no-drill way to hang stockings in a window. [Shop tension rods for windows](https://www.amazon.com/s?k=tension+rods+for+windows&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 **Will fairy lights or garlands damage my window frames?**
