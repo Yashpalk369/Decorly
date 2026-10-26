@@ -16,7 +16,7 @@ The best part for renters in small apartments? Afrohemian style is built from sm
 
 ![Black and cream mudcloth throw pillow covers on a terracotta sofa](/assets/afrohemian-decor-finds-under-25/idea-01.jpg)
 
-Mudcloth (bogolan) pillows are the signature Afrohemian piece — graphic black-and-cream patterns that anchor a whole room. Buy the covers, not the inserts: a set of two mudcloth-style covers runs $12–18, and you probably already own pillow inserts to put inside.
+[Mudcloth (bogolan) pillows](/mudcloth-pillow-styling-guide/) are the signature Afrohemian piece — graphic black-and-cream patterns that anchor a whole room. Buy the covers, not the inserts: a set of two mudcloth-style covers runs $12–18, and you probably already own pillow inserts to put inside.
 
 **Why it works:** the high-contrast pattern reads as intentional design even in a plain rental living room. One strong pattern beats five weak ones.
 

@@ -32,7 +32,7 @@ Grouping also makes care easier: you water, mist and check them all in one place
 
 ![Humidity-loving houseplants thriving in a bright bathroom](/assets/humidify-houseplants-without-humidifier/idea-03.jpg)
 
-The bathroom is the most humid room in any flat, thanks to showers and baths, and it is the natural home for ferns, calatheas, peace lilies and other humidity lovers. A plant on a bathroom windowsill or a shelf gets a daily steam bath without any equipment at all, and it looks wonderful there — a fern in a bathroom feels like a boutique hotel.
+The [bathroom](/neo-deco-bathroom-ideas-renters/) is the most humid room in any flat, thanks to showers and baths, and it is the natural home for ferns, calatheas, peace lilies and other humidity lovers. A plant on a bathroom windowsill or a shelf gets a daily steam bath without any equipment at all, and it looks wonderful there — a fern in a bathroom feels like a boutique hotel.
 
 The catch is light. Many bathrooms have small or frosted windows, so choose plants that tolerate lower light, or keep the humidity lovers in the bathroom only through the driest months and move them back to brighter rooms in spring. If your bathroom has no window at all, a plant will still enjoy the humidity but will slowly starve for light — rotate it out every couple of weeks.
 
@@ -40,7 +40,7 @@ The catch is light. Many bathrooms have small or frosted windows, so choose plan
 
 ![Houseplants on a kitchen windowsill benefiting from cooking steam](/assets/humidify-houseplants-without-humidifier/idea-04.jpg)
 
-Cooking produces steam all winter — kettles, pots, dishwashers — and plants near the kitchen benefit from it for free. A windowsill above or beside the sink, or a shelf near the cooking area, gives herbs and trailing plants a regular humidity boost, and the warmth of the kitchen helps too, as long as plants are not right beside the hob where heat and grease damage leaves.
+Cooking produces steam all winter — kettles, pots, dishwashers — and plants [near the kitchen](/renter-friendly-kitchen-upgrades/) benefit from it for free. A windowsill above or beside the sink, or a shelf near the cooking area, gives herbs and trailing plants a regular humidity boost, and the warmth of the kitchen helps too, as long as plants are not right beside the hob where heat and grease damage leaves.
 
 This is the ideal spot for kitchen herbs, which want both humidity and frequent harvesting. Keep plants away from direct cooking splashes and from the blast of an extractor fan, which dries leaves as fast as steam humidifies them, and wipe leaves occasionally to remove any grease film.
 
@@ -56,7 +56,7 @@ The rules are simple. Mist in the morning, never in the evening, so leaves dry b
 
 ![A bowl of water beside a radiator near houseplants in a winter apartment](/assets/humidify-houseplants-without-humidifier/idea-06.jpg)
 
-Radiators dry the air by heating it, but that same heat can work for you: a bowl of water placed near — not on — a radiator evaporates steadily all day, gently humidifying the room. It is the low-tech version of a humidifier, using the heat source that is already running, and it costs nothing.
+Radiators dry the air by heating it, but that same heat can work for you: a bowl of water placed near — not on — a [radiator](/winter-proof-drafty-rental-guide/) evaporates steadily all day, gently humidifying the room. It is the low-tech version of a humidifier, using the heat source that is already running, and it costs nothing.
 
 Place the bowl where it will not be knocked over, keep it topped up, and do not put it directly on the radiator, where the water heats too fast and the bowl can crack or scorch. A wide, shallow bowl evaporates faster than a deep narrow one, because evaporation happens at the surface. This method raises whole-room humidity slightly, so it pairs well with grouping plants near the bowl.
 

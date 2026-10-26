@@ -56,7 +56,7 @@ Storage is the second half of this step. A nook without books nearby is a nook y
 
 ![A reading chair dressed with a chunky knit throw, a cushion and a soft rug](/assets/cozy-reading-nook-small-apartment-guide/idea-05.jpg)
 
-Textiles are what turn a chair into a nook. A throw blanket draped over one arm, a cushion that supports your lower back, and a small rug underfoot that warms the floor — these three things signal "stay a while" in a way furniture alone never does. Choose a throw you can wash easily, because a reading throw gets coffee, crumbs and cat hair in equal measure, and a washable one actually gets used instead of admired from afar.
+Textiles are what turn a chair into a nook. A [throw blanket](/cozy-throw-blankets-renters-under-25/) draped over one arm, a cushion that supports your lower back, and a small rug underfoot that warms the floor — these three things signal "stay a while" in a way furniture alone never does. Choose a throw you can wash easily, because a reading throw gets coffee, crumbs and cat hair in equal measure, and a washable one actually gets used instead of admired from afar.
 
 Think in seasons. A chunky knit throw and a wool cushion carry you through winter; swap them for a light cotton throw and a linen cushion in summer and the nook feels fresh without buying anything new. This is also where your flat's colour story gets to be personal: the nook is the one spot that can be unapologetically yours — a bold cushion, a pattern you love — even if the rest of the flat plays it safe. Our [small living room storage guide](/small-living-room-storage-hacks/) has more ideas for keeping these layers tidy when they are not in use.
 

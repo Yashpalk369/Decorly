@@ -72,7 +72,7 @@ A winter windowsill garden doesn't need fussing — it needs a short, consistent
 
 **Water less, check more.** Short days mean slow growth, and slow growth means plants drink far less. Check the top 3–5 cm of soil with your finger; water only when dry. In December that might mean fortnightly for a snake plant. Always use room-temperature water — cold water shocks warm roots.
 
-**Humidify the cheap way.** Heating drops indoor air to desert dryness, and crispy brown leaf tips are the classic symptom. Set pots on trays of pebbles with water just below the pebble tops; as it evaporates, it humidifies the air around the leaves. Grouping plants close together helps too — they share each other's transpiration.
+**Humidify the cheap way.** Heating drops indoor air to desert dryness, and crispy brown leaf tips are the classic symptom. Set pots on [trays of pebbles](/humidify-houseplants-without-humidifier/) with water just below the pebble tops; as it evaporates, it humidifies the air around the leaves. Grouping plants close together helps too — they share each other's transpiration.
 
 **Rotate weekly, wipe monthly.** A quarter-turn every Sunday keeps growth even. Once a month, wipe leaves with a damp cloth — winter dust blocks the already-scarce light, and clean leaves photosynthesise noticeably better.
 

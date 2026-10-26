@@ -8,7 +8,7 @@ hero: hero-gold
 motif: 💡
 ---
 
-Brass is having its biggest moment in years — searches for brass accents are up 35%, and the Neo Deco wave has pushed warm metals from "grandma's chandelier" to the defining finish of 2026 interiors. The best part for small-space dwellers: brass reads as jewelry for a room. A little goes a long way, which means one $30 fixture can make a whole studio feel considered.
+Brass is having its biggest moment in years — searches for brass accents are up 35%, and the [Neo Deco wave](/neo-deco-bedroom-ideas-renters/) has pushed warm metals from "grandma's chandelier" to the defining finish of 2026 interiors. The best part for small-space dwellers: brass reads as jewelry for a room. A little goes a long way, which means one $30 fixture can make a whole studio feel considered.
 
 Every pick below costs under $40, suits a small footprint, and — critically for renters — needs no hardwiring. Plug-in, battery, or simple swap: your deposit stays exactly where it is.
 

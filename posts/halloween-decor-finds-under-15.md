@@ -56,7 +56,7 @@ Covers, not pillows: a set of two Halloween pillow covers ($9–13) swaps onto t
 
 A 20-foot string of orange LED fairy lights ($7–11) is Halloween's answer to Christmas lights — drape them over a bookshelf, around a window frame, or through your houseplants and the whole room glows autumn. Battery operation means no outlet hunting behind rental furniture.
 
-**Why it works:** colored light changes a room's entire mood for the price of a pizza. Orange is warm enough to live with all month (unlike purple or green, which get old fast), and the lights transition straight into Thanksgiving.
+**Why it works:** colored light changes a room's entire mood for the price of a pizza. Orange is warm enough to live with all month (unlike purple or green, which get old fast), and the lights transition straight into [Thanksgiving](/renter-friendly-thanksgiving-decor-ideas/).
 
 **Where it fits:** bookshelf edges, curtain rods, headboards, or woven through a large plant. Use the built-in timer so they glow at dusk automatically. [Shop orange fairy lights](https://www.amazon.com/s?k=battery+operated+orange+fairy+string+lights&tag={{AMAZON_TAG}})
 

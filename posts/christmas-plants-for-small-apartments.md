@@ -118,7 +118,7 @@ Not a plant to keep — a styling move. A bundle of cut winterberry stems ($10�
 Some are, some aren't. Pet-safe picks from this list: Norfolk pine, rosemary, Christmas cactus, frosty fern, and dwarf Alberta spruce. Keep poinsettias, amaryllis, paperwhites, cyclamen, and winterberry out of reach — they're mildly to moderately toxic if chewed. When in doubt, hang the plant or put it in a closed room.
 
 **How long will a poinsettia actually last?**
-With bright indirect light, no draughts, and careful watering (only when the top inch is dry), a poinsettia holds its colour for 2–3 months. The number-one killer is overwatering in a foil-wrapped pot with no drainage — poke holes in the foil or remove it.
+With bright indirect light, no draughts, and careful watering (only when the top inch is dry), a [poinsettia](/keep-poinsettias-alive-guide/) holds its colour for 2–3 months. The number-one killer is overwatering in a foil-wrapped pot with no drainage — poke holes in the foil or remove it.
 
 **Can I keep a Norfolk pine alive all year?**
 Easily — it's a houseplant that happens to look like a Christmas tree. Bright indirect light, regular misting or a humidifier nearby, and even watering keep it happy. It hates sudden moves and dry radiator heat, so find its spot in January and leave it there.

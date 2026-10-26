@@ -50,7 +50,7 @@ Faux fur is the luxury pick at a budget price ($18–25), and it changes a room'
 
 **Why it works:** it is the only throw on this list that decorates even when nobody is using it. Folded neatly, it looks like a design choice; most throws just look like blankets.
 
-**Where it fits:** the armchair you want guests to notice, the foot of the bed, or over a plain sofa that needs rescuing. [Shop faux fur throws](https://www.amazon.com/s?k=faux+fur+throw+blanket+cream&tag={{AMAZON_TAG}})
+**Where it fits:** the armchair you want guests to notice, the [foot of the bed](/15-small-bedroom-ideas-under-100/), or over a plain sofa that needs rescuing. [Shop faux fur throws](https://www.amazon.com/s?k=faux+fur+throw+blanket+cream&tag={{AMAZON_TAG}})
 
 ## 5. Terracotta check throw
 
@@ -86,7 +86,7 @@ Sage green is the colour of the moment for a reason: it calms a room down. A sag
 
 ![A reversible two-tone throw blanket in cream and rust folded over a sofa](/assets/cozy-throw-blankets-renters-under-25/idea-08.jpg)
 
-A reversible throw is two blankets for the price of one, and that matters in a small flat where storage is tight. Cream on one side, rust or mustard on the other ($17–23): flip it with the season, flip it when one side needs washing, flip it when you redecorate — the throw adapts instead of being replaced.
+A reversible throw is two blankets for the price of one, and that matters in a small flat where [storage is tight](/small-living-room-storage-hacks/). Cream on one side, rust or mustard on the other ($17–23): flip it with the season, flip it when one side needs washing, flip it when you redecorate — the throw adapts instead of being replaced.
 
 **Why it works:** flexibility beats perfection. A throw that works in two colour schemes outlasts a throw that only works in one, and in a rental where the next flat's palette is unknown, that is real value.
 

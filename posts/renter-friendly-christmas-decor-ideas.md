@@ -96,7 +96,7 @@ Free is the best budget. Pinecones, interesting bare branches, and evergreen spr
 
 ![Christmas stockings hung from a tension rod in a rental apartment](/assets/renter-friendly-christmas-decor-ideas/idea-11.jpg)
 
-No fireplace? No problem. A spring tension rod ($6–8) wedged inside a window frame, an alcove, or even a wide bookshelf becomes an instant stocking rail — no screws, no adhesive, no damage. Hang stockings with S-hooks, add a small garland swag across the rod, and you've got the mantel moment without the mantel.
+No fireplace? No problem. A spring tension rod ($6–8) wedged inside a window frame, an alcove, or even a wide bookshelf becomes an instant stocking rail — no screws, no adhesive, no damage. Hang [stockings](/christmas-stocking-holders-no-mantel/) with S-hooks, add a small garland swag across the rod, and you've got the mantel moment without the mantel.
 
 **Also works for:** advent calendars, Christmas cards (clip them along the rod with mini pegs), and lightweight bunting. The rod comes down in January and lives in a cupboard the rest of the year.
 
@@ -106,7 +106,7 @@ No fireplace? No problem. A spring tension rod ($6–8) wedged inside a window f
 
 First impressions set the tone: a festive doormat ($8–12) plus a lantern filled with fairy lights and a few pine sprigs turns even a grim rental hallway into a Christmas welcome. It's the cheapest "wow" in this whole list, and it's the decor you see every single time you come home.
 
-**Small-space win:** the entryway is usually dead space in a rental — decorating it adds Christmas spirit without taking a centimetre from your living areas. A $3 pine-scented reed diffuser by the door completes the illusion.
+**Small-space win:** the [entryway](/small-apartment-winter-entryway-ideas/) is usually dead space in a rental — decorating it adds Christmas spirit without taking a centimetre from your living areas. A $3 pine-scented reed diffuser by the door completes the illusion.
 
 ## Shop this look: renter-friendly Christmas
 
@@ -121,7 +121,7 @@ First impressions set the tone: a festive doormat ($8–12) plus a lantern fille
 **Can I put up a real Christmas tree in a rental?**
 Usually yes — there's rarely a lease clause against it. The real constraints are space and mess: a full-size tree sheds needles into carpet you'll be charged for, and it dominates a small flat. A mini tree or a potted living tree you keep afterwards is the renter-smart move.
 
-**How do I hang Christmas lights without drilling?**
+**How do I [hang Christmas lights](/hang-christmas-lights-rental-guide/) without drilling?**
 [Adhesive hooks](/no-drill-wall-decor-renters/) rated for the weight, suction cups on glass, and over-the-door hangers cover 95% of renter needs. For rooflines or balconies, gutter clips or railing hooks need no screws. Always check the hook's weight rating and let adhesive cure the full recommended time.
 
 **Will Command hooks damage my paint when removed?**

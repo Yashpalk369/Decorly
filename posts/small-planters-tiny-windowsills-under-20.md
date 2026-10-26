@@ -48,7 +48,7 @@ A suction-cup planter sticks directly to the window glass, which means it uses n
 
 Sometimes the simplest answer is the right one: a slim ceramic pot, 10–12 cm across, with a drainage hole and a matching saucer. Ceramic looks better than plastic, holds a plant steady in a breeze from an open window, and a row of matching pots turns a windowsill into a display rather than a jumble.
 
-**Why it works:** matching pots are the cheapest way to make a plant collection look curated. Buy one style in two or three sizes, and the whole sill reads as designed. The saucer is non-negotiable — a pot without one will stain a painted sill within a season, and that stain comes out of your deposit.
+**Why it works:** matching pots are the cheapest way to make a [plant collection](/bedroom-plant-styling-ideas/) look curated. Buy one style in two or three sizes, and the whole sill reads as designed. The saucer is non-negotiable — a pot without one will stain a painted sill within a season, and that stain comes out of your deposit.
 
 **Where it fits:** any windowsill, in rows of two or three. [Shop small ceramic pots with saucers](https://www.amazon.com/s?k=small+ceramic+pots+with+saucers&tag={{AMAZON_TAG}})
 
@@ -58,7 +58,7 @@ Sometimes the simplest answer is the right one: a slim ceramic pot, 10–12 cm a
 
 A macramé hanger suspends a plant from a hook above the window, which means the plant gets the window's light without taking a centimetre of sill. Trailing plants — pothos, string of hearts, spider plants — look their best hanging, and a macramé hanger adds texture and warmth that a plastic pot never will.
 
-**Why it works:** it uses vertical space, which is the one dimension a small flat has in abundance. A hook in the window frame or the ceiling above the window holds the hanger, and the plant can be lowered for watering and lifted back up — no sill space sacrificed at all.
+**Why it works:** it uses vertical space, which is the one dimension a small flat has in abundance. A [hook in the window frame](/no-drill-wall-decor-renters/) or the ceiling above the window holds the hanger, and the plant can be lowered for watering and lifted back up — no sill space sacrificed at all.
 
 **Where it fits:** windows with a frame or ceiling strong enough for a small hook, especially living rooms. [Shop macramé hanging planters](https://www.amazon.com/s?k=macrame+hanging+planter&tag={{AMAZON_TAG}})
 

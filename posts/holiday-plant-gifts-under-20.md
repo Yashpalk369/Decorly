@@ -76,7 +76,7 @@ The practical gift plant people never buy themselves: a full-spectrum LED bulb (
 
 ![Set of three small ceramic planters in cream, terracotta and sage on a wooden table](/assets/holiday-plant-gifts-under-20/idea-07.jpg)
 
-Three small ceramic planters in coordinated colours ($14–20 for the set) are the gift that upgrades every plant the recipient already owns. Most plant lovers have healthy plants sitting in ugly nursery pots — this fixes that in one box. Look for sets with drainage holes and saucers; without drainage, they're just decoration.
+Three [small ceramic planters](/small-planters-tiny-windowsills-under-20/) in coordinated colours ($14–20 for the set) are the gift that upgrades every plant the recipient already owns. Most plant lovers have healthy plants sitting in ugly nursery pots — this fixes that in one box. Look for sets with drainage holes and saucers; without drainage, they're just decoration.
 
 **Why it works:** it's the rare plant gift that suits experts and beginners equally, and it can't die. Even the most plant-saturated friend has a nursery pot that needs replacing.
 

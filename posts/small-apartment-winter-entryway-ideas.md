@@ -16,7 +16,7 @@ Winter changes the maths. Every person in the flat now brings in twice the gear,
 
 ![A wall-mounted hook rail with winter coats and scarves in a small apartment hallway](/assets/small-apartment-winter-entryway-ideas/idea-01.jpg)
 
-One row of hooks is never enough in winter, because coats are bulkier and every person adds a scarf and a hat. A rail with hooks at two heights — adult height and a lower row for children, bags or dog leads — doubles capacity without taking a centimetre of floor space. Mount it with screws if your landlord allows, or with heavy-duty adhesive strips rated for the weight of wet coats.
+One row of hooks is never enough in winter, because coats are bulkier and every person adds a scarf and a hat. A rail with hooks at two heights — adult height and a lower row for children, bags or dog leads — doubles capacity without taking a centimetre of floor space. Mount it with screws if your landlord allows, or with heavy-duty [adhesive strips](/no-drill-wall-decor-renters/) rated for the weight of wet coats.
 
 The trick is spacing: hooks 15–20 cm apart stop coats from bunching into one damp mass that never dries. If your hallway is narrow, a rail on the wall opposite the door works better than one beside it, because coats hang flat against the wall instead of brushing everyone who walks past.
 
@@ -64,7 +64,7 @@ Staggered hooks also look better than a single row in a small space, because the
 
 ![A narrow shoe bench with storage for winter boots in a small apartment entryway](/assets/small-apartment-winter-entryway-ideas/idea-07.jpg)
 
-Sitting down to put on winter boots is not a luxury; it is the difference between boots going on properly and being kicked off in the hallway. A bench no deeper than 30 cm with shoe storage underneath gives you a seat and a home for shoes in one piece of furniture, and in a small flat that double duty is everything.
+Sitting down to put on winter boots is not a luxury; it is the difference between boots going on properly and being kicked off in the hallway. A bench no deeper than 30 cm with [shoe storage](/small-living-room-storage-hacks/) underneath gives you a seat and a home for shoes in one piece of furniture, and in a small flat that double duty is everything.
 
 Look for a bench with an open base or slatted shelf rather than a closed cupboard — boots need airflow to dry, and a closed cupboard turns into a damp, smelly box by January. A cushion on top makes it a perch rather than just a shelf, and a cushion in a washable cover survives the season.
 
@@ -88,7 +88,7 @@ This works for couples as well as families, because it stops the slow migration 
 
 ![A cozy small apartment entryway with warm lighting a wreath and a candle](/assets/small-apartment-winter-entryway-ideas/idea-10.jpg)
 
-Once the practical problems are solved, the entryway deserves one purely cozy touch — because it is the first thing you see when you come home from the cold. A small plug-in lamp or a battery candle on the console, a seasonal wreath on the door, and a scent you associate with home (a candle, a reed diffuser, a simmering spice sachet) turn a functional hallway into a welcome.
+Once the practical problems are solved, the entryway deserves one purely cozy touch — because it is the first thing you see when you come home from the cold. A small plug-in lamp or a battery candle on the console, a [seasonal wreath](/renter-friendly-christmas-decor-ideas/) on the door, and a scent you associate with home (a candle, a reed diffuser, a simmering spice sachet) turn a functional hallway into a welcome.
 
 Keep it to one or two touches, not five. In a small space, a single warm light and a wreath do more than a crowded display, and they survive the daily traffic of coats and boots because they sit above it — on the wall, on the shelf, on the door — rather than in it.
 
