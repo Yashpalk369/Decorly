@@ -9,7 +9,7 @@ AUTHOR = "Decorly"
 
 # Amazon Associates tracking ID. Replace with the real tag once approved.
 # Used in posts via {{AMAZON_TAG}} placeholders.
-AMAZON_TAG = "decorly-20"
+AMAZON_TAG = "thespicedspoo-20"
 
 # Google Analytics 4 measurement ID. Injected as the gtag.js snippet on every page.
 GA_MEASUREMENT_ID = "G-FKL6VMXCF0"
