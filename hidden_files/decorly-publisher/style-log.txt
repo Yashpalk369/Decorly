@@ -7,3 +7,7 @@
 small-spaces: B Guide (2026-10-25 cozy-reading-nook-small-apartment-guide; also A Listicle small-apartment-balcony-winter-ideas same day)
 rental-friendly: C Roundup (2026-10-25 cozy-throw-blankets-renters-under-25; also A Listicle renter-friendly-thanksgiving-decor-ideas same day)
 greenery-decor: B Guide (2026-10-25 keep-poinsettias-alive-guide)
+# 2026-10-26 run (2/2/1 split):
+small-spaces: C Roundup (2026-10-26 christmas-stocking-holders-no-mantel); also A Listicle small-apartment-winter-entryway-ideas same day
+greenery-decor: A Listicle (2026-10-26 humidify-houseplants-without-humidifier); also C Roundup small-planters-tiny-windowsills-under-20 same day
+rental-friendly: B Guide (2026-10-26 hang-christmas-lights-rental-guide)
