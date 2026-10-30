@@ -19,3 +19,11 @@ greenery-decor: A Listicle (2026-10-27 christmas-cactus-blooming-mistakes); also
 small-spaces: A Listicle (2026-10-28 small-apartment-fireplace-alternatives); also B Guide holiday-gift-wrapping-station-small-apartment-guide same day
 rental-friendly: B Guide (2026-10-28 remove-holiday-decor-rental-no-damage-guide); also A Listicle store-christmas-decor-small-rental-ideas same day
 greenery-decor: C Roundup (2026-10-28 amaryllis-bulb-kits-under-25)
+# 2026-10-29 run (2/1/2 split):
+small-spaces: A Listicle (2026-10-29 small-apartment-advent-calendar-display-ideas); also C Roundup christmas-throw-pillow-covers-small-apartments-under-20 same day
+rental-friendly: B Guide (2026-10-29 pet-proof-christmas-decor-rental-guide)
+greenery-decor: A Listicle (2026-10-29 pet-safe-christmas-plants); also B Guide keep-cut-christmas-greenery-fresh-guide same day
+# 2026-10-30 run (1/2/2 split):
+small-spaces: A Listicle (2026-10-30 small-apartment-christmas-kitchen-decor-ideas)
+rental-friendly: A Listicle (2026-10-30 renter-friendly-christmas-garland-ideas); also C Roundup renter-friendly-christmas-doormats-under-25 same day
+greenery-decor: A Listicle (2026-10-30 trailing-plants-small-apartment-winter-ideas); also C Roundup hanging-planters-small-apartments-under-25 same day
