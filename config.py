@@ -17,6 +17,9 @@ GA_MEASUREMENT_ID = "G-FKL6VMXCF0"
 # Google Search Console site verification token. Injected as a meta tag on every page.
 GOOGLE_SITE_VERIFICATION = "3SxmeiBROAdRg73C_AbsxRRHnRD4V0wNvtrJRBfiIzc"
 
+# Pinterest domain verification token. Injected as a meta tag on every page.
+PINTEREST_DOMAIN_VERIFICATION = "2c7b6768b347de0512468bb5f2b478ee"
+
 # Contact shown on about/privacy pages (replace with a real one before launch).
 CONTACT_EMAIL = "hello@decorly.homes"
 
