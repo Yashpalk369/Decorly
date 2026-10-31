@@ -27,3 +27,7 @@ greenery-decor: A Listicle (2026-10-29 pet-safe-christmas-plants); also B Guide 
 small-spaces: A Listicle (2026-10-30 small-apartment-christmas-kitchen-decor-ideas)
 rental-friendly: A Listicle (2026-10-30 renter-friendly-christmas-garland-ideas); also C Roundup renter-friendly-christmas-doormats-under-25 same day
 greenery-decor: A Listicle (2026-10-30 trailing-plants-small-apartment-winter-ideas); also C Roundup hanging-planters-small-apartments-under-25 same day
+# 2026-10-31 run (2/2/1 split):
+small-spaces: B Guide (2026-10-31 small-apartment-christmas-no-buy-decor-guide); also A Listicle small-apartment-christmas-bedroom-decor-ideas same day
+rental-friendly: A Listicle (2026-10-31 renter-friendly-christmas-centerpiece-ideas); also B Guide child-proof-christmas-decor-rental-guide same day
+greenery-decor: B Guide (2026-10-31 water-houseplants-holiday-travel-guide)
