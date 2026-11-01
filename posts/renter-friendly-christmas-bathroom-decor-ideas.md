@@ -118,14 +118,14 @@ The thread running through all ten ideas is not really about Christmas at all â€
 
 ## Frequently Asked Questions
 
-**Can I hang fairy lights in a bathroom safely?**
+### Can I hang fairy lights in a bathroom safely?
 Yes, if you use battery-powered lights and keep them away from water. Hang them around the mirror with suction-cup hooks or small Command hooks made for smooth surfaces, never run mains lights near a bath, shower, or taps, and choose lights with a timer so they switch themselves off. Remove the hooks in January by pulling the tab slowly, exactly as the instructions say.
 
-**Will suction hooks damage bathroom tiles or mirrors?**
+### Will suction hooks damage bathroom tiles or mirrors?
 Good suction hooks made for glass and smooth tile peel straight off and leave no mark, but cheap ones can leave a ring if they sit for weeks in steam. Use hooks rated for bathrooms, test one for a day before hanging a full string of lights, and wipe the surface before you stick them on so they grip properly and come off cleanly.
 
-**How do I remove Command hooks from tiles without damage?**
+### How do I remove Command hooks from tiles without damage?
 Follow the removal instructions exactly: hold the hook, pull the adhesive tab slowly straight down along the wall, and keep pulling until it releases. Never yank the hook off the wall or peel it sideways, which is what damages paint and leaves residue. If a tab snaps, warm it gently with a hairdryer and roll the residue off with your thumb.
 
-**What is the cheapest way to decorate a rental bathroom for Christmas?**
+### What is the cheapest way to decorate a rental bathroom for Christmas?
 Start with the swaps that cost nothing or nearly nothing: a festive hand towel, a pine-scented soap, a sprig of greenery, and a basket of rolled towels you already own. Those four ideas together cost less than a single large decoration, they need no fixings at all, and they make the bathroom feel festive the moment a guest walks in.

@@ -110,17 +110,17 @@ Start with the moisture meter if you buy just one kit, add the grow light if you
 
 ## Frequently Asked Questions
 
-**How often should I water houseplants in winter?**
+### How often should I water houseplants in winter?
 Less often than in summer — usually every two to three weeks for most houseplants, but always check the soil first. A moisture meter is the easiest way to be sure, since the top of the soil can look dry while the roots are still wet.
 
-**Do houseplants really need a grow light in winter?**
+### Do houseplants really need a grow light in winter?
 Not all of them, but plants in north-facing rooms or flats with small windows benefit greatly. A clip-on lamp for a few extra hours a day keeps light-hungry plants growing instead of stalling until spring.
 
-**What is the cheapest way to raise humidity for houseplants?**
+### What is the cheapest way to raise humidity for houseplants?
 A pebble tray under the pot is the cheapest effective method, and grouping plants together helps too, since they share the moisture they release. A bathroom with natural light is a free humidity boost for ferns and calatheas.
 
-**Should I repot houseplants in winter?**
+### Should I repot houseplants in winter?
 Usually it is better to wait until spring, but repot immediately if a plant is root-bound, waterlogged, or in a pot with no drainage — waiting can do more harm than a careful winter repot.
 
-**Are plant care kits good gifts for new plant parents?**
+### Are plant care kits good gifts for new plant parents?
 Yes — especially a moisture meter set or a book-and-journal bundle, because they solve the two problems beginners struggle with most: knowing when to water and learning what each plant needs.

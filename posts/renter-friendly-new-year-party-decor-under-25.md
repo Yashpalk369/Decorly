@@ -90,14 +90,14 @@ The thread running through all nine finds is not really about New Year's Eve at 
 
 ## Frequently Asked Questions
 
-**Can I hang New Year party decor in a rental without losing my deposit?**
+### Can I hang New Year party decor in a rental without losing my deposit?
 Yes, as long as nothing pierces or permanently sticks to the walls. Use removable adhesive hooks, tension rods, and peel-and-stick banners, drape garlands over curtain rods and furniture, and test any adhesive on a hidden patch of wall first. Avoid nails, screws, and strong tape on painted surfaces.
 
-**What is the easiest damage-free New Year party decoration?**
+### What is the easiest damage-free New Year party decoration?
 Battery fairy lights, because they need no fixings at all — drape them over shelves, curtain rods, and mirrors, or coil them in jars. They transform a room instantly, cost very little, and come down in minutes with nothing left behind.
 
-**How do I stop confetti damaging my rental?**
+### How do I stop confetti damaging my rental?
 Keep confetti sealed inside balloons or inside glass jars rather than scattering it loose on floors or tables. Loose confetti gets trodden into carpet and is almost impossible to clean fully, while sealed confetti gives you the same sparkle with none of the clean-up.
 
-**When should I take New Year party decor down in a rental?**
+### When should I take New Year party decor down in a rental?
 Within the first week of January, before balloons sag, tape hardens, and adhesive becomes harder to remove cleanly. Most damage-free decor comes down in under half an hour, and removing it promptly is the simplest way to protect your walls, floors, and deposit.

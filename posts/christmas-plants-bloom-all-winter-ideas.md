@@ -98,20 +98,20 @@ The real joy of winter-flowering plants is that they change the feel of a flat f
 
 ## Frequently Asked Questions
 
-**Which Christmas plant blooms the longest?**
+### Which Christmas plant blooms the longest?
 The phalaenopsis orchid usually wins, with flowers lasting two to three months on a single stem. Christmas cactus and anthurium are close behind, and cyclamen can flower continuously for months if kept cool and deadheaded regularly.
 
-**Do winter-flowering plants need special light?**
+### Do winter-flowering plants need special light?
 Most of them need bright indirect light — a windowsill that gets daylight but not harsh midday sun. The exception is kalanchoe, which loves the brightest spot you have, and cyclamen, which is happy in a cooler, less sunny position. None of them need a grow light in an ordinary bright flat.
 
-**How often should I water Christmas plants?**
+### How often should I water Christmas plants?
 It depends on the plant, but the golden rule is to check the compost before watering. Succulents like Christmas cactus and kalanchoe want to dry out between waterings, while amaryllis and paperwhites want steady moisture once growing. Overwatering kills more houseplants in winter than underwatering, so when in doubt, wait a day.
 
-**Are these plants safe around pets?**
+### Are these plants safe around pets?
 Some are not. Amaryllis, cyclamen, kalanchoe, and paperwhites are toxic to cats and dogs if eaten, so keep them out of reach of curious pets. Christmas cactus, African violet, and phalaenopsis orchids are generally considered pet-friendly, but always check before buying if you have animals that nibble leaves.
 
-**Can I keep these plants after Christmas?**
+### Can I keep these plants after Christmas?
 Yes — almost all of them are perennials that will flower again next year with basic care. Amaryllis and cyclamen need a rest period after flowering, Christmas cactus and orchids just need normal care, and hellebores will come back bigger every winter. Only paperwhites are usually treated as one-season plants, though you can plant the bulbs outside afterwards.
 
-**What is the cheapest winter-flowering plant to start with?**
+### What is the cheapest winter-flowering plant to start with?
 Kalanchoe and cyclamen are usually the cheapest in the shops, often just a few pounds, and paperwhite bulbs bought in a multi-pack work out very cheaply per plant. All three give you weeks of flowers for less than the price of a bouquet.

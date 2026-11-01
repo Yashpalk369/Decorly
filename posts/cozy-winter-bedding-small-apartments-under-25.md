@@ -108,14 +108,14 @@ The real secret of winter bedding in a small apartment is that warmth comes from
 
 ## Frequently Asked Questions
 
-**How can I make my bed warmer in winter without buying a new duvet?**
+### How can I make my bed warmer in winter without buying a new duvet?
 Layer instead of replacing. Add a flannel flat sheet closest to your body, a fleece or thermal blanket in the middle, and a throw at the foot of the bed. Three light layers trap more warm air than one heavy duvet, cost far less, and let you adjust to milder nights by removing a layer.
 
-**What is the warmest budget bedding material for a small apartment?**
+### What is the warmest budget bedding material for a small apartment?
 Brushed microfibre and flannel are the warmest budget options, because their fuzzy surfaces trap warm air and feel warm on contact. Fleece is the best mid-layer for its weight, and a waffle-weave cover adds warmth through its air-trapping texture. Avoid plain flat cotton in winter — it feels cold and lets heat escape.
 
-**Do I need an electric blanket to stay warm in a rental?**
+### Do I need an electric blanket to stay warm in a rental?
 No. A non-electric thermal blanket reflects your own body heat and feels heated without a plug, a socket, or any landlord permission. Layered with a flannel sheet and a fleece blanket, it keeps most people warm even in a draughty rental bedroom, with no added electricity cost.
 
-**How do I store extra winter bedding in a small apartment?**
+### How do I store extra winter bedding in a small apartment?
 Choose layers that fold small — fleece and thermal blankets compress to almost nothing. Store them in a basket by the bed, under the bed in a flat box, or on top of a wardrobe in a vacuum bag. A throw folded at the foot of the bed needs no storage at all, which is why it is such a good small-space buy.
