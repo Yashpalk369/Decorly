@@ -8,7 +8,7 @@ hero: hero-umber
 motif: 🎃
 ---
 
-Halloween is thirteen days away, which means the good cheap stuff is about to sell out. The trick to decorating a small apartment for Halloween isn't buying more — it's buying small, buying removable, and buying things that earn their square footage. Every find on this list costs under $15, leaves zero damage (your deposit is safe), and works in a [studio](/studio-apartment-layout-ideas/) or one-bedroom where a six-foot skeleton simply isn't happening.
+Halloween stock sells out fast, so the smart move is to shop early. The trick to decorating a small apartment for Halloween isn't buying more — it's buying small, buying removable, and buying things that earn their square footage. Every find on this list costs under $15, leaves zero damage (your deposit is safe), and works in a [studio](/studio-apartment-layout-ideas/) or one-bedroom where a six-foot skeleton simply isn't happening.
 
 ## 1. Flameless LED pumpkin lanterns (set of 3)
 
@@ -114,7 +114,7 @@ Yes — every item on this list is [damage-free](/no-drill-wall-decor-renters/):
 
 ### How early should I buy Halloween decor?
 
-Now — mid-October. The under-$15 sweet spot sells out first, and prices climb in the final week. Buying early also means you actually enjoy the decorations for the full season instead of panic-buying on October 30th.
+Buy early — by mid-October. The under-$15 sweet spot sells out first, and prices climb in the final week. Buying early also means you actually enjoy the decorations for the full season instead of panic-buying on October 30th.
 
 ### How do I decorate a studio apartment for Halloween without clutter?
 
