@@ -26,7 +26,7 @@ Where it fits: on the back of a bedroom or living-room door, or on the inside of
 
 Why it works: twenty-four small envelopes on a length of twine is the cheapest advent display there is, and it drapes beautifully along a picture rail, a curtain rod, or a length of removable adhesive hooks. Each envelope can hold a tiny treat, a joke, or a plan for the day — a walk to see the lights, a film night, a batch of biscuits — which makes it feel personal in a way a shop-bought calendar never does.
 
-Where it fits: along the top of a bookshelf, across a window frame, or in a zigzag down a narrow hallway wall. Use mini wooden pegs rather than tape so the envelopes open and close cleanly, number them with a marker or stickers, and keep the garland high enough that it does not tangle with everyday life. When December ends, the envelopes fold flat into an envelope of their own for next year.
+Where it fits: along the top of a bookshelf, across a window frame, or in a zigzag down a narrow [hallway](/decorate-small-apartment-hallway-christmas-guide/) wall. Use mini wooden pegs rather than tape so the envelopes open and close cleanly, number them with a marker or stickers, and keep the [garland](/renter-friendly-christmas-garland-ideas/) high enough that it does not tangle with everyday life. When December ends, the envelopes fold flat into an envelope of their own for next year.
 
 ## 3. A tabletop mini tree with numbered ornaments
 
@@ -34,7 +34,7 @@ Where it fits: along the top of a bookshelf, across a window frame, or in a zigz
 
 Why it works: if you already have a tabletop tree, it can be your advent calendar too. Hang twenty-four small numbered ornaments or tags on it and remove one a day, or add one a day so the tree slowly fills up — either way the tree changes daily, which keeps it interesting all month instead of static from the first weekend of December.
 
-Where it fits: on a side table, a windowsill, or the top of a chest of drawers. This is the best option for apartments with almost no free wall, because it uses a surface that is already decorated. Keep the ornaments small and light so they do not drag the branches down, and pair the daily ornament with a tiny treat in a bowl beside the tree for the full countdown experience.
+Where it fits: on a side table, a [windowsill](/winter-windowsill-garden-guide/), or the top of a chest of drawers. This is the best option for apartments with almost no free wall, because it uses a surface that is already decorated. Keep the ornaments small and light so they do not drag the branches down, and pair the daily ornament with a tiny treat in a bowl beside the tree for the full countdown experience.
 
 ## 4. A magnetic board on the fridge
 
@@ -88,7 +88,7 @@ Where it fits: above a sofa, above a bed, or along a hallway. Check the weight r
 
 ![A decorative tray on a coffee table holding numbered advent boxes and candles in a small apartment](/assets/small-apartment-advent-calendar-display-ideas/idea-10.jpg)
 
-Why it works: not every advent display needs a wall. A tray on a coffee table corrals twenty-four tiny boxes into one neat, movable display that can be lifted out of the way when guests come or the table is needed for dinner. The tray makes it look deliberate rather than cluttered, and a candle and a sprig of greenery turn it into a centrepiece.
+Why it works: not every advent display needs a wall. A tray on a coffee table corrals twenty-four tiny boxes into one neat, movable display that can be lifted out of the way when guests come or the table is needed for dinner. The tray makes it look deliberate rather than cluttered, and a candle and a sprig of greenery turn it into a [centrepiece](/renter-friendly-christmas-centerpiece-ideas/).
 
 Where it fits: a coffee table, a dining table centre, or an ottoman tray. Use boxes small enough that all twenty-four fit on one tray — matchbox size is ideal — and number them clearly so the daily hunt is short. This is the best option for renters with strict wall rules, since it uses no fixings at all, and it packs away into a single box in January.
 

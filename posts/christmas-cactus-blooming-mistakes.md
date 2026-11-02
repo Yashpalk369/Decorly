@@ -18,7 +18,7 @@ Christmas cactus (Schlumbergera) is not a desert cactus at all. It comes from th
 
 Why it stops blooms: Christmas cactus evolved in dappled forest shade, and direct sun scorches its segments, turning them red or purple and stressing the plant so badly it puts all its energy into survival instead of flowers. A sunburned cactus rarely blooms well, because it is spending the autumn repairing damage rather than setting buds.
 
-What to do instead: give it bright indirect light — a north- or east-facing windowsill, or a spot a metre back from a south-facing window with a sheer curtain. Red or purple segments are the plant telling you it is getting too much sun; move it, and the green usually returns within weeks. In winter, when the sun is weak, a little more light is fine, but never a full day of direct midday sun.
+What to do instead: give it bright indirect light — a north- or east-facing [windowsill](/winter-windowsill-garden-guide/), or a spot a metre back from a south-facing window with a sheer curtain. Red or purple segments are the plant telling you it is getting too much sun; move it, and the green usually returns within weeks. In winter, when the sun is weak, a little more light is fine, but never a full day of direct midday sun.
 
 ## 2. Watering it like a desert cactus
 
@@ -74,7 +74,7 @@ What to do instead: once you see buds, do not move the plant, do not turn it, an
 
 Why it stops blooms: the bud period is the one time this plant must not dry out. A cactus that has tolerated a dry summer happily will drop its buds at the first drought in autumn, because buds are expensive for the plant to maintain and the first thing it sacrifices when water is scarce.
 
-What to do instead: during bud formation and flowering, check the soil twice a week and water before it dries out completely — the top centimetre dry, not the whole pot. Keep the plant away from radiators and hot air vents, which dry the soil and the air around the buds. A pebble tray of water under the pot helps with humidity, provided the pot itself does not sit in the water.
+What to do instead: during bud formation and flowering, check the soil twice a week and water before it dries out completely — the top centimetre dry, not the whole pot. Keep the plant away from radiators and hot air vents, which dry the soil and the air around the buds. A pebble tray of water under the pot helps with [humidity](/humidify-houseplants-without-humidifier/), provided the pot itself does not sit in the water.
 
 ## 9. Expecting flowers from a Thanksgiving cactus in December
 

@@ -76,7 +76,7 @@ Budget tip: pillowcase pairs are often sold for a few dollars, so this is the ea
 
 ![A quilted bedspread in warm earthy tones covering a studio apartment bed by day](/assets/cozy-winter-bedding-small-apartments-under-25/idea-07.jpg)
 
-Why it works: in a studio, the bed is also the sofa, the reading nook, and the backdrop of every video call, so it needs to look good all day and feel warm all night. A quilted bedspread does both jobs: by day it is a tidy, made-bed look that hides your duvet, and by night it is an extra insulating layer on top of everything else. Quilting also stops the filling shifting around, so it stays evenly warm.
+Why it works: in a studio, the bed is also the sofa, the [reading nook](/cozy-reading-nook-small-apartment-guide/), and the backdrop of every video call, so it needs to look good all day and feel warm all night. A quilted bedspread does both jobs: by day it is a tidy, made-bed look that hides your duvet, and by night it is an extra insulating layer on top of everything else. Quilting also stops the filling shifting around, so it stays evenly warm.
 
 Where it fits: spread over the whole bed in a studio or bedsit, where it turns the sleeping area into a daybed with one move — add two cushions and it reads as a sofa. Choose a warm, earthy tone that matches your room, because in a studio the bedspread is effectively the largest single colour block in the flat.
 
@@ -115,7 +115,7 @@ Layer instead of replacing. Add a flannel flat sheet closest to your body, a fle
 Brushed microfibre and flannel are the warmest budget options, because their fuzzy surfaces trap warm air and feel warm on contact. Fleece is the best mid-layer for its weight, and a waffle-weave cover adds warmth through its air-trapping texture. Avoid plain flat cotton in winter — it feels cold and lets heat escape.
 
 ### Do I need an electric blanket to stay warm in a rental?
-No. A non-electric thermal blanket reflects your own body heat and feels heated without a plug, a socket, or any landlord permission. Layered with a flannel sheet and a fleece blanket, it keeps most people warm even in a draughty rental bedroom, with no added electricity cost.
+No. A non-electric thermal blanket reflects your own body heat and feels heated without a plug, a socket, or any landlord permission. Layered with a flannel sheet and a fleece blanket, it keeps most people warm even in a [draughty](/winter-proof-drafty-rental-guide/) rental bedroom, with no added electricity cost.
 
 ### How do I store extra winter bedding in a small apartment?
 Choose layers that fold small — fleece and thermal blankets compress to almost nothing. Store them in a basket by the bed, under the bed in a flat box, or on top of a wardrobe in a vacuum bag. A throw folded at the foot of the bed needs no storage at all, which is why it is such a good small-space buy.

@@ -26,7 +26,7 @@ Where it fits: over the living room doorway, the bedroom door, or the front door
 
 Why it works: if your rental has stairs — even a short flight in a duplex or a maisonette — the banister is a ready-made garland runway. Wrapping garland along it turns the most ordinary part of the flat into a Christmas feature, and the banister itself does all the supporting, so no hooks are needed at all.
 
-Where it fits: wound loosely around the handrail, secured with ribbon ties or twist ties at intervals, with fairy lights woven through. Keep the garland on the outside of the rail, not the hand side, so the rail stays grippable — safety first, especially on stairs. If you only have a short rail, a single swag between the newel post and the wall is enough.
+Where it fits: wound loosely around the handrail, secured with ribbon ties or twist ties at intervals, with [fairy lights](/hang-christmas-lights-rental-guide/) woven through. Keep the garland on the outside of the rail, not the hand side, so the rail stays grippable — safety first, especially on stairs. If you only have a short rail, a single swag between the newel post and the wall is enough.
 
 ## 3. Across a shelf or picture ledge
 
@@ -48,7 +48,7 @@ Where it fits: around a hallway mirror, a bedroom mirror, or a bathroom mirror i
 
 ![Christmas garland draped over a wooden headboard with soft lighting in a cozy rental bedroom](/assets/renter-friendly-christmas-garland-ideas/idea-05.jpg)
 
-Why it works: the bedroom is the room most people forget at Christmas, and a headboard garland fixes that in one move. It makes the bed the festive centrepiece of the room, it is visible the moment you walk in, and it costs nothing in floor space — the one thing a small rental bedroom cannot spare.
+Why it works: the bedroom is the room most people forget at Christmas, and a headboard garland fixes that in one move. It makes the bed the festive [centrepiece](/renter-friendly-christmas-centerpiece-ideas/) of the room, it is visible the moment you walk in, and it costs nothing in floor space — the one thing a small rental bedroom cannot spare.
 
 Where it fits: draped along the top of a wooden or upholstered headboard, fixed with ribbon ties to the headboard posts or small hooks on the wall behind. Choose a slim garland for a headboard, not a thick one, so it does not shed needles into the bed, and skip fairy lights right above pillows unless they are battery-operated and cool to the touch. Take it down before it starts shedding, not after.
 
@@ -88,7 +88,7 @@ Where it fits: down the centre of a dining table, on top of a plain runner to pr
 
 ![Christmas garland wrapped along an apartment balcony railing with outdoor fairy lights](/assets/renter-friendly-christmas-garland-ideas/idea-10.jpg)
 
-Why it works: a balcony garland is Christmas for the street as well as for you — it is the one garland your neighbours actually see, and it makes coming home in the dark feel like arriving somewhere festive. It also uses outdoor space that otherwise sits empty all winter, which in a small flat is a genuine win.
+Why it works: a [balcony](/small-apartment-balcony-winter-ideas/) garland is Christmas for the street as well as for you — it is the one garland your neighbours actually see, and it makes coming home in the dark feel like arriving somewhere festive. It also uses outdoor space that otherwise sits empty all winter, which in a small flat is a genuine win.
 
 Where it fits: wound along the balcony railing with zip ties or ribbon, using outdoor-rated garland and lights. Check your lease first — some buildings restrict balcony decor — and use weatherproof lights with an outdoor-rated extension if you plug in rather than using batteries. Bring the garland in during storms, and take it down promptly in January before winter weather turns it into a soggy mess.
 

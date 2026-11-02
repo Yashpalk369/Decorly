@@ -48,7 +48,7 @@ Where it fits: on the top shelf of a bookcase, with vines allowed to fall down t
 
 ![A trailing plant in a bright bathroom with humidity-loving vines near a window](/assets/trailing-plants-small-apartment-winter-ideas/idea-05.jpg)
 
-Why it works: bathrooms are the most humid rooms in a flat, and in winter, when heating dries every other room out, that humidity is gold for trailing plants. Philodendrons, pothos, and spider plants all love bathroom humidity, and a trailing plant in a bathroom turns the least glamorous room into a little jungle retreat.
+Why it works: bathrooms are the most humid rooms in a flat, and in winter, when heating dries every other room out, that [humidity](/humidify-houseplants-without-humidifier/) is gold for trailing plants. Philodendrons, pothos, and spider plants all love bathroom humidity, and a trailing plant in a bathroom turns the least glamorous room into a little jungle retreat.
 
 Where it fits: on a high bathroom shelf, hanging from the ceiling, or trailing from the top of a cabinet. The plant needs some light, so a bathroom with a window is ideal; a windowless bathroom will need a plant that tolerates low light, like pothos, and even that will grow slowly. Keep vines away from the shower spray itself — humidity is good, a constant soaking is not.
 
@@ -74,13 +74,13 @@ Where it fits: on a kitchen shelf near the window, or hanging by the sink where 
 
 Why it works: hallways are the most neglected spaces in small flats — narrow, dark, and purely functional. A trailing plant on a console table turns a hallway from a corridor into an entrance, and the vines falling down the side of the table draw the eye forward into the flat instead of letting it stop at the front door.
 
-Where it fits: on a narrow console or a wall-mounted shelf in the hallway, with vines trailing down beside the table legs. Hallways are often low-light, so choose a tolerant plant like pothos or philodendron, and accept slow winter growth rather than forcing it with extra water. A small mirror above the console doubles the plant's impact by reflecting the vines.
+Where it fits: on a narrow console or a wall-mounted shelf in the hallway, with vines trailing down beside the table legs. Hallways are often [low-light](/low-light-indoor-plants-dark-apartments/), so choose a tolerant plant like pothos or philodendron, and accept slow winter growth rather than forcing it with extra water. A small mirror above the console doubles the plant's impact by reflecting the vines.
 
 ## 9. Macrame hanger plus fairy lights
 
 ![A trailing plant in a macrame hanger with warm fairy lights in a winter living room](/assets/trailing-plants-small-apartment-winter-ideas/idea-09.jpg)
 
-Why it works: a macrame hanger is the classic trailing-plant home, and in winter it gains a second act: woven with a string of warm fairy lights, it becomes a living lamp. The lights warm up the whole corner, the vines soften the light, and the combination is the cosiest thing you can hang in a small flat in December — no fireplace required.
+Why it works: a macrame hanger is the classic trailing-plant home, and in winter it gains a second act: woven with a string of warm [fairy lights](/hang-christmas-lights-rental-guide/), it becomes a living lamp. The lights warm up the whole corner, the vines soften the light, and the combination is the cosiest thing you can hang in a small flat in December — [no fireplace](/small-apartment-fireplace-alternatives/) required.
 
 Where it fits: hanging from a ceiling hook in a living room corner, by a reading chair, or beside the sofa. Use battery-operated fairy lights that stay cool, and keep the lights on the hanger and the pot, not tangled through the vines themselves, where they are hard to remove and can damage new growth. This is also a genuinely good winter gift: a hanger, a pothos cutting, and a set of lights, all for under $25.
 

@@ -8,7 +8,7 @@ hero: hero-moss
 motif: 🌺
 ---
 
-Everyone knows the poinsettia. It is the plant on every supermarket display in December, and it is lovely — but it is far from the only plant that flowers in winter. If your flat already has a poinsettia, or if you simply fancy something different this year, there is a whole cast of winter bloomers that will flower from December right through to February and beyond, often for less money and with far less fuss. Many of them are small enough for a windowsill, happy in a rented flat with no special kit, and cheap enough to buy as a treat rather than an investment.
+Everyone knows the [poinsettia](/keep-poinsettias-alive-guide/). It is the plant on every supermarket display in December, and it is lovely — but it is far from the only plant that flowers in winter. If your flat already has a poinsettia, or if you simply fancy something different this year, there is a whole cast of winter bloomers that will flower from December right through to February and beyond, often for less money and with far less fuss. Many of them are small enough for a [windowsill](/winter-windowsill-garden-guide/), happy in a rented flat with no special kit, and cheap enough to buy as a treat rather than an investment.
 
 The trick with winter-flowering plants is understanding why they bloom when everything else is resting. Short days and cool rooms trigger flowering in many of them, which is exactly what a British winter — or any northern winter — delivers for free. That means you are not fighting the season; you are working with it. A bright windowsill, a pot with drainage, and a watering can are genuinely all you need for most of the plants below. Here are ten that earn their place, in the order you are most likely to find them in the shops.
 
@@ -16,7 +16,7 @@ The trick with winter-flowering plants is understanding why they bloom when ever
 
 ![A Christmas cactus in full pink bloom in a terracotta pot on a bright windowsill](/assets/christmas-plants-bloom-all-winter-ideas/idea-01.jpg)
 
-The Christmas cactus is the winter bloomer that asks for the least and gives the most. It flowers because the nights get longer, so a room that is not flooded with artificial light in the evening will see it burst into pink, red, or white flowers just in time for the festive season. It is a succulent, so it stores water in its flat green segments and forgives the occasional forgotten watering — ideal if you are busy or away for a few days over Christmas.
+The [Christmas cactus](/christmas-cactus-blooming-mistakes/) is the winter bloomer that asks for the least and gives the most. It flowers because the nights get longer, so a room that is not flooded with artificial light in the evening will see it burst into pink, red, or white flowers just in time for the festive season. It is a succulent, so it stores water in its flat green segments and forgives the occasional forgotten watering — ideal if you are busy or away for a few days over Christmas.
 
 Give it bright indirect light rather than harsh midday sun, water when the top inch of compost feels dry, and keep it away from radiators, which dry the buds out and make them drop. It fits anywhere: a windowsill, a bookshelf, or hanging in a macramé holder above a desk. Budget tip: buy a small one now and keep it. Christmas cacti live for decades and get bigger every year, so a plant that costs a few pounds today becomes a large, spectacular specimen within a couple of winters, and you can root a broken segment in water to make a free plant for a friend.
 
@@ -32,7 +32,7 @@ It needs a bright spot and a stake or a heavy pot, because the flower head is to
 
 ![A cluster of white paperwhite narcissi flowering in a terracotta pot on a windowsill](/assets/christmas-plants-bloom-all-winter-ideas/idea-03.jpg)
 
-Paperwhites are the fastest festive flower you can grow. Plant the bulbs in a shallow bowl of compost or even a jar of pebbles and water, and within four to six weeks you will have tall stems topped with clusters of small, sweetly scented white flowers. They need no chilling period, unlike most other bulbs, which is why they are the classic Christmas bulb for people who want results without planning months ahead.
+[Paperwhites](/force-paperwhite-bulbs-christmas-guide/) are the fastest festive flower you can grow. Plant the bulbs in a shallow bowl of compost or even a jar of pebbles and water, and within four to six weeks you will have tall stems topped with clusters of small, sweetly scented white flowers. They need no chilling period, unlike most other bulbs, which is why they are the classic Christmas bulb for people who want results without planning months ahead.
 
 They love a bright, cool windowsill — warmth makes them grow leggy and flop, so a cooler room actually gives you a sturdier display. Support tall stems with a few twigs pushed into the pot, or simply plant them close together so they hold each other up. For a small flat, a single bowl of paperwhites on a coffee table or a shelf gives you scent and flowers for the price of a bunch of cut flowers, and they last longer. Budget tip: buy bulbs in a multi-pack and stagger the planting by a fortnight, so you get a second wave of flowers in January when the first lot fades.
 

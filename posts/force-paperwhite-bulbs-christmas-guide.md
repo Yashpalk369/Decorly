@@ -10,7 +10,7 @@ motif: 🌸
 
 Paperwhites are the easiest Christmas flower there is, and the most forgiving. Unlike tulips and hyacinths, they need no chilling period — no weeks in the fridge, no cold frame, no guessing. Plant them in late October or November, give them water and light, and they bloom in four to six weeks, filling a room with white flowers and a scent that divides households into devotees and dissenters. For a renter, they are perfect: they grow in a bowl of pebbles, need no soil, no garden and no tools, and the whole display costs less than a supermarket bouquet.
 
-Timing is the only thing you need to plan. Count back from when you want flowers: paperwhites take four to six weeks from planting to bloom, so bulbs planted in the first week of November bloom in early to mid-December, and bulbs planted in mid-November bloom just in time for Christmas week. Plant in two batches a fortnight apart and you get a succession of flowers rather than a single flush.
+Timing is the only thing you need to plan. Count back from when you want flowers: paperwhites take four to six weeks from planting to bloom, so bulbs planted in the first week of November bloom in early to mid-December, and bulbs planted in mid-November bloom just in time for Christmas week. Plant in two batches a fortnight apart and you get a [succession of flowers](/christmas-plants-bloom-all-winter-ideas/) rather than a single flush.
 
 ## Step 1: Buy firm, healthy bulbs at the right time
 
@@ -26,7 +26,7 @@ Buy them in autumn, when garden centres and supermarkets stock them fresh — bu
 
 Paperwhites grow happily in either pebbles and water or ordinary potting compost, and each has an advantage. Pebbles look beautiful — you see the roots threading through the stones — and they make the whole display feel like an ornament. Soil gives the bulbs more support, so tall stems flop less, and it forgives a missed watering.
 
-Choose a container with no drainage holes if you are using pebbles, so the water stays put, and one with drainage if you are using soil. Shallow, wide bowls suit paperwhites better than deep pots, because the bulbs sit close together and the display reads as a drift of flowers rather than a row of soldiers. A bowl 15–20 cm across holds five to seven bulbs comfortably. If you are forcing for a windowsill, measure the sill first — a bowl that overhangs the edge is a disaster waiting for a cat.
+Choose a container with no drainage holes if you are using pebbles, so the water stays put, and one with drainage if you are using soil. Shallow, wide bowls suit paperwhites better than deep pots, because the bulbs sit close together and the display reads as a drift of flowers rather than a row of soldiers. A bowl 15–20 cm across holds five to seven bulbs comfortably. If you are forcing for a [windowsill](/winter-windowsill-garden-guide/), measure the sill first — a bowl that overhangs the edge is a disaster waiting for a cat.
 
 ## Step 3: Plant the bulbs pointy end up, close together
 

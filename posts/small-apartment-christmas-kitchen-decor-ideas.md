@@ -16,9 +16,9 @@ Every idea here is renter-friendly and budget-first. Nothing needs drilling, not
 
 ![A faux pine garland draped along the top of kitchen cabinets in a small apartment kitchen](/assets/small-apartment-christmas-kitchen-decor-ideas/idea-01.jpg)
 
-Why it works: the top of the cabinets is dead space in most small kitchens — too high to reach daily, too visible to ignore. A simple faux pine garland up there adds instant Christmas without touching a single centimetre of counter. It frames the whole room from above, which is exactly what a small kitchen needs: festivity at eye level and above, not underfoot.
+Why it works: the top of the cabinets is dead space in most small kitchens — too high to reach daily, too visible to ignore. A simple faux pine [garland](/renter-friendly-christmas-garland-ideas/) up there adds instant Christmas without touching a single centimetre of counter. It frames the whole room from above, which is exactly what a small kitchen needs: festivity at eye level and above, not underfoot.
 
-Where it fits: along the full run of wall cabinets, tucked behind a few baubles or a string of warm fairy lights. If your cabinets do not reach the ceiling, the garland hides the dusty gap as a bonus. Use lightweight faux garland and a couple of Command hooks at the ends; never drape real greenery near the hob or oven, where heat dries it out fast and turns it into a fire risk.
+Where it fits: along the full run of wall cabinets, tucked behind a few baubles or a string of warm [fairy lights](/hang-christmas-lights-rental-guide/). If your cabinets do not reach the ceiling, the garland hides the dusty gap as a bonus. Use lightweight faux garland and a couple of Command hooks at the ends; never drape real greenery near the hob or oven, where heat dries it out fast and turns it into a fire risk.
 
 ## 2. A wreath on a cabinet door
 
@@ -72,9 +72,9 @@ Where it fits: against the backsplash at the end of a counter run, or beside the
 
 ![Potted herbs on a kitchen windowsill decorated with tiny fairy lights for Christmas](/assets/small-apartment-christmas-kitchen-decor-ideas/idea-08.jpg)
 
-Why it works: a kitchen windowsill full of herbs is already one of the prettiest things in a small flat, and Christmas only asks you to dress it up slightly. A tiny string of fairy lights woven between the pots, a red ribbon tied around one pot, or a miniature star on a stick in the rosemary turns an everyday windowsill into a festive one without buying a single new plant.
+Why it works: a kitchen [windowsill](/winter-windowsill-garden-guide/) full of herbs is already one of the prettiest things in a small flat, and Christmas only asks you to dress it up slightly. A tiny string of fairy lights woven between the pots, a red ribbon tied around one pot, or a miniature star on a stick in the rosemary turns an everyday windowsill into a festive one without buying a single new plant.
 
-Where it fits: on the sill itself, keeping the herbs where they get light and you can reach them for cooking. Rosemary is the star here — it already looks like a miniature Christmas tree, and it is genuinely useful in December cooking. Do not move herbs away from the window for the sake of a display; a dead festive herb is not festive, it is compost with fairy lights.
+Where it fits: on the sill itself, keeping the herbs where they get light and you can reach them for cooking. Rosemary is the star here — it already looks like a miniature [Christmas tree](/small-apartment-christmas-tree-ideas/), and it is genuinely useful in December cooking. Do not move herbs away from the window for the sake of a display; a dead festive herb is not festive, it is compost with fairy lights.
 
 ## 9. Swap the soap dispenser and hand towel
 

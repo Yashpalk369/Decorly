@@ -8,7 +8,7 @@ hero: hero-moss
 motif: 🐶
 ---
 
-The hardest part of decorating with plants at Christmas when you have pets is not finding a festive plant — it is finding one that will not send you to the vet. Poinsettias, amaryllis, lilies, and mistletoe are all on the toxic list for cats and dogs, and they happen to be the plants most shops push hardest in December. But a pet-safe Christmas display is entirely possible, and it does not mean settling for plastic: the nine plants below are all non-toxic to cats and dogs, all look genuinely festive, and all suit a rental, where pots need to be small, light, and easy to move.
+The hardest part of decorating with plants at Christmas when you have pets is not finding a festive plant — it is finding one that will not send you to the vet. [Poinsettia](/keep-poinsettias-alive-guide/)s, amaryllis, lilies, and mistletoe are all on the toxic list for cats and dogs, and they happen to be the plants most shops push hardest in December. But a pet-safe Christmas display is entirely possible, and it does not mean settling for plastic: the nine plants below are all non-toxic to cats and dogs, all look genuinely festive, and all suit a rental, where pots need to be small, light, and easy to move.
 
 A note on "safe": non-toxic means a nibble should not poison your pet, not that eating a whole plant is a good idea. Any plant eaten in quantity can upset a stomach, and a knocked-over pot is a mess whatever is in it. Keep plants stable, keep soil covered where pets dig, and call a vet if your pet eats a large amount of anything unusual — safe plants included.
 
@@ -40,7 +40,7 @@ Where it fits: hanging in a basket, on a plant stand in a corner, or on top of a
 
 ![A peperomia plant with round green leaves in a decorative pot on a shelf in a pet-friendly apartment](/assets/pet-safe-christmas-plants/idea-04.jpg)
 
-Why it works: peperomias come in dozens of varieties — round leaves, watermelon stripes, rippled textures — and all of them are pet-safe, compact, and forgiving of the low light and irregular watering that define real apartment life. A peperomia in a festive pot, perhaps red or gold, reads as a Christmas plant without needing flowers at all.
+Why it works: peperomias come in dozens of varieties — round leaves, watermelon stripes, rippled textures — and all of them are pet-safe, compact, and forgiving of the [low light](/low-light-indoor-plants-dark-apartments/) and irregular watering that define real apartment life. A peperomia in a festive pot, perhaps red or gold, reads as a Christmas plant without needing flowers at all.
 
 Where it fits: on a desk, a shelf, or a side table where a small plant is needed. Peperomias stay small, so they suit tiny windowsills and crowded desks, and they tolerate the dry air of a heated flat better than most tropical plants. They are also easy to propagate from a leaf cutting, so one plant can become gifts for friends.
 
@@ -80,7 +80,7 @@ Where it fits: on a kitchen windowsill, a dining table, or an entryway console. 
 
 ![A Norfolk Island pine in a pot decorated with tiny ornaments as a mini Christmas tree in a pet-friendly apartment](/assets/pet-safe-christmas-plants/idea-09.jpg)
 
-Why it works: the Norfolk Island pine is a living mini Christmas tree — soft, feathery branches in perfect tiers, a natural conical shape, and a size that suits an apartment where a full tree will not fit. It is non-toxic to pets, unlike many true pines treated with preservatives, and it lives for years, growing slowly into a proper houseplant.
+Why it works: the Norfolk Island pine is a living mini [Christmas tree](/small-apartment-christmas-tree-ideas/) — soft, feathery branches in perfect tiers, a natural conical shape, and a size that suits an apartment where a full tree will not fit. It is non-toxic to pets, unlike many true pines treated with preservatives, and it lives for years, growing slowly into a proper houseplant.
 
 Where it fits: on the floor in a corner, on a table as a tabletop tree, or as the main tree in a small apartment. Decorate it lightly — a few small baubles and a string of fairy lights — and keep it in bright indirect light with regular watering. After Christmas, remove the decorations and it is simply a beautiful houseplant until next December.
 
@@ -99,5 +99,5 @@ Yes, rosemary is non-toxic to cats and dogs in the small amounts a pet might nib
 **What should I do if my pet eats a toxic Christmas plant?**
 Remove the plant, note how much was eaten, and call your vet or a pet poison helpline immediately — do not wait for symptoms with lilies in particular, where early treatment matters most.
 
-**Are faux Christmas plants a better option with pets?**
+**Are faux [Christmas plants](/christmas-plants-for-small-apartments/) a better option with pets?**
 Faux plants remove the toxicity risk but add a chewing and ingestion risk from plastic and fabric pieces. For persistent chewers, a high shelf or a hanging plant — real and safe — is often the better answer.

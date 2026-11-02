@@ -43,7 +43,7 @@ Think about stability as well as height. A wobbly side table with a ceramic disp
 ### 5. Choose child-safe plants and skip the toxic ones
 ![Child-safe Christmas plants, a Christmas cactus and rosemary, in pots on a high shelf](/assets/child-proof-christmas-decor-rental-guide/idea-05.jpg)
 
-Many classic Christmas plants are not toddler-friendly. Poinsettias can irritate the mouth and stomach, mistletoe berries and holly berries are toxic, and amaryllis bulbs are dangerous if chewed. The simplest fix is to choose safe plants instead: Christmas cactus, rosemary, Norfolk Island pine, and most orchids are far kinder choices, and they look just as festive in a terracotta pot with a ribbon around it.
+Many classic [Christmas plants](/christmas-plants-for-small-apartments/) are not toddler-friendly. [Poinsettia](/keep-poinsettias-alive-guide/)s can irritate the mouth and stomach, mistletoe berries and holly berries are toxic, and amaryllis bulbs are dangerous if chewed. The simplest fix is to choose safe plants instead: [Christmas cactus](/christmas-cactus-blooming-mistakes/), rosemary, Norfolk Island pine, and most orchids are far kinder choices, and they look just as festive in a terracotta pot with a ribbon around it.
 
 If you already own a plant you love that is not child-safe, put it high, hang it, or keep it in a room your toddler does not enter. Mistletoe deserves special care because tradition hangs it in doorways at exactly toddler height — hang it high or swap it for a faux version that looks the same from below. Check every plant before it crosses the threshold, not after a curious taste, and keep your local poison helpline number saved in your phone through December.
 
@@ -74,7 +74,7 @@ Child-proofing is not about removing the magic; it is about moving it to where i
 
 ## Frequently Asked Questions
 
-**Can I anchor a Christmas tree in a rental without drilling?**
+**Can I anchor a [Christmas tree](/small-apartment-christmas-tree-ideas/) in a rental without drilling?**
 Yes. Tie the top third of the trunk to the wall with clear fishing line hooked over a removable adhesive hook rated for several kilos, and place the tree in a corner for extra stability. Remove the hook slowly in January following the manufacturer's instructions to avoid paint damage.
 
 **What ornaments are safest for toddlers?**

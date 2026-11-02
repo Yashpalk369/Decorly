@@ -8,7 +8,7 @@ hero: hero-blush
 motif: 🌺
 ---
 
-Few Christmas plants deliver as much drama per pound as an amaryllis. One bulb, planted in early November, produces a stem up to 60 cm tall topped with trumpet flowers the size of your hand — and it does it on a windowsill with almost no skill involved. The catch is choosing between the dozens of kits on offer, which range from a bare waxed bulb to a full kit with pot, soil and a decorative sleeve. This roundup compares nine kits under $25, so you can match the kit to the person, the space and the Christmas timeline.
+Few [Christmas plants](/christmas-plants-for-small-apartments/) deliver as much drama per pound as an amaryllis. One bulb, planted in early November, produces a stem up to 60 cm tall topped with trumpet flowers the size of your hand — and it does it on a [windowsill](/winter-windowsill-garden-guide/) with almost no skill involved. The catch is choosing between the dozens of kits on offer, which range from a bare waxed bulb to a full kit with pot, soil and a decorative sleeve. This roundup compares nine kits under $25, so you can match the kit to the person, the space and the Christmas timeline.
 
 The timing matters more than the kit: buy and plant in early November for Christmas blooms, since most amaryllis take six to eight weeks from planting to flowers. Planted later, they bloom in January — still beautiful, but no longer Christmas decor. All prices below are typical for the kit type; check the listing for the exact bulb size, since bigger bulbs mean bigger flowers.
 
@@ -40,7 +40,7 @@ Where it fits: as a gift, where the recipient should not need to buy anything el
 
 ![Three amaryllis bulbs planted together in a large bowl producing multiple tall flower stems](/assets/amaryllis-bulb-kits-under-25/idea-04.jpg)
 
-Why it works: three bulbs planted together in one wide container produce a display that looks like a florist made it — multiple stems at different heights, a mass of huge flowers, and a centrepiece that dominates a room. This is the kit for the person whose Christmas decor is the main event, not an accent.
+Why it works: three bulbs planted together in one wide container produce a display that looks like a florist made it — multiple stems at different heights, a mass of huge flowers, and a [centrepiece](/renter-friendly-christmas-centerpiece-ideas/) that dominates a room. This is the kit for the person whose Christmas decor is the main event, not an accent.
 
 Where it fits: as a dining-table centrepiece (kept low enough to see over once the stems grow), on a hall console, or in a large window. Plant the bulbs in a triangle, not a row, so the display looks full from every angle, and stake the stems early — three heavy flower heads on tall stems will lean without support. Buy this kit earliest of all, since three bulbs take the longest to coordinate into one show. [Shop amaryllis triple bulb kits](https://www.amazon.com/s?k=amaryllis+bulb+kit+3+pack&tag={{AMAZON_TAG}})
 
@@ -72,7 +72,7 @@ Where it fits: as a feature plant on its own, where the unusual flowers get atte
 
 ![A white amaryllis flower blooming elegantly in a pot beside Christmas decorations](/assets/amaryllis-bulb-kits-under-25/idea-08.jpg)
 
-Why it works: white amaryllis is the most elegant of the lot — pure white trumpets that glow against dark winter evenings and work with every Christmas colour scheme, from all-white minimal to traditional red and gold. White flowers also show up better in low light than red ones, which matters in a northern-hemisphere December.
+Why it works: white amaryllis is the most elegant of the lot — pure white trumpets that glow against dark winter evenings and work with every Christmas colour scheme, from all-white minimal to traditional red and gold. White flowers also show up better in [low light](/low-light-indoor-plants-dark-apartments/) than red ones, which matters in a northern-hemisphere December.
 
 Where it fits: in rooms with a white, silver or gold Christmas theme, on a dark wood table where the white flowers pop, or as a sympathy-season gift where red feels too loud. White varieties are widely available and usually the same price as red, so there is no premium for the elegance. Pair with a white or cream pot for the full effect. [Shop white amaryllis bulb kits](https://www.amazon.com/s?k=white+amaryllis+bulb+kit+christmas&tag={{AMAZON_TAG}})
 

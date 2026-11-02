@@ -32,7 +32,7 @@ Where it fits: as the base layer in a layered doorway, under a smaller festive m
 
 ![A doormat printed with a pine branch wreath design outside a front door](/assets/renter-friendly-christmas-doormats-under-25/idea-03.jpg)
 
-Why it works: a printed pine wreath gives you the look of fresh greenery at the door without a single needle on the floor. It is the most elegant pick on this list — festive, but calm enough for a building with a smart hallway or a landlord who notices these things — and printed mats are usually washable, which coir is not.
+Why it works: a printed pine wreath gives you the look of [fresh greenery](/keep-cut-christmas-greenery-fresh-guide/) at the door without a single needle on the floor. It is the most elegant pick on this list — festive, but calm enough for a building with a smart hallway or a landlord who notices these things — and printed mats are usually washable, which coir is not.
 
 Where it fits: inside the front door as well as outside, since printed mats tend to be thinner and softer underfoot. If your apartment opens straight into the living room, this is the pick that looks like part of the decor rather than a mud-scraper. [Shop pine wreath Christmas doormats](https://www.amazon.com/s?k=pine+wreath+christmas+doormat&tag={{AMAZON_TAG}})
 
@@ -72,7 +72,7 @@ Where it fits: outside your own front door, never a shared building entrance, wh
 
 ![A vintage red truck Christmas doormat with a Christmas tree in the back](/assets/renter-friendly-christmas-doormats-under-25/idea-08.jpg)
 
-Why it works: the red truck carrying a Christmas tree is the most nostalgic image in festive decor, and on a doormat it works precisely because it is so familiar. It suits traditional and farmhouse-leaning flats, it looks great with a pine wreath on the door, and it is cheerful enough that even the postman notices it.
+Why it works: the red truck carrying a [Christmas tree](/small-apartment-christmas-tree-ideas/) is the most nostalgic image in festive decor, and on a doormat it works precisely because it is so familiar. It suits traditional and farmhouse-leaning flats, it looks great with a pine wreath on the door, and it is cheerful enough that even the postman notices it.
 
 Where it fits: outside a front door with a wreath above it, completing the classic porch picture. Truck mats are usually printed rather than coir, so they tend to be thinner and easier on door clearance. If your building is modern and minimal, this is the one pick on the list that might clash — the snowflake or pine print will suit it better. [Shop red truck Christmas doormats](https://www.amazon.com/s?k=red+truck+christmas+doormat&tag={{AMAZON_TAG}})
 

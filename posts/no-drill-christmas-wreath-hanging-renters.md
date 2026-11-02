@@ -10,7 +10,7 @@ motif: 🎄
 
 Nothing says Christmas from the street — or from your own hallway — quite like a wreath, and nothing panics a renter quite like the thought of hanging one. Nails, screws and pins all leave evidence, and a wreath is heavy enough that a weak fix fails in the night and takes paint with it. The good news is that wreaths have been hung without drilling for decades, because doors, windows and walls all offer a no-damage anchor if you pick the right one for the surface.
 
-Every method below is removable, most cost under $15, and each one is matched to the surface it suits best. Pick by surface first and wreath second: a heavy fresh wreath needs a different fix from a light faux one, and a glass door needs a different fix from a painted one.
+Every method below is removable, most cost under $15, and each one is matched to the surface it suits best. Pick by surface first and wreath second: a heavy [fresh wreath](/make-fresh-christmas-wreath-guide/) needs a different fix from a light faux one, and a glass door needs a different fix from a painted one.
 
 ## 1. The over-the-door wreath hanger
 
@@ -72,7 +72,7 @@ This works best on interior doors, which are lighter and get less slamming than 
 
 ![A Christmas wreath displayed on a freestanding metal wreath stand in an apartment entryway](/assets/no-drill-christmas-wreath-hanging-renters/idea-08.jpg)
 
-When every surface is off-limits, do not hang the wreath at all — stand it up. A freestanding wreath stand, a decorative easel or even a sturdy plate stand holds a wreath on a console table, a mantel shelf or the floor of an entryway, and it turns the wreath into a centrepiece rather than a door decoration.
+When every surface is off-limits, do not hang the wreath at all — stand it up. A freestanding wreath stand, a decorative easel or even a sturdy plate stand holds a wreath on a console table, a mantel shelf or the floor of an [entryway](/small-apartment-winter-entryway-ideas/), and it turns the wreath into a [centrepiece](/renter-friendly-christmas-centerpiece-ideas/) rather than a door decoration.
 
 This is the best option for a very heavy fresh wreath, because there is nothing to fall down, and for renters whose doors are glass, uneven or otherwise unhookable. A stand also lets you move the wreath for parties — entryway for arrivals, dining room for dinner — without re-hanging anything. Choose a stand rated for your wreath's diameter, and put a felt pad under it if it sits on a polished surface. [Shop freestanding wreath stands](https://www.amazon.com/s?k=freestanding+wreath+stand+holder&tag={{AMAZON_TAG}})
 

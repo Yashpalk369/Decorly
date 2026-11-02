@@ -10,7 +10,7 @@ motif: 🔥
 
 Nothing says Christmas quite like a fireplace, and nothing says small apartment quite like not having one. No chimney, no mantel, no landlord permission for anything involving actual fire — and yet the feeling a fireplace gives is not really about the fire. It is about a warm focal point, flickering light, and a place to hang the stockings. Every idea below recreates that feeling without a single structural change, and most of them cost less than a nice dinner out.
 
-The trick is to decide which part of the fireplace you actually miss. If it is the glow, candles and LED flames will do it. If it is the mantel moment, a freestanding shelf or console gives you somewhere to style garland and stockings. If it is the heat, a small electric stove genuinely warms a room. Match the alternative to the feeling and you will stop noticing the missing chimney altogether.
+The trick is to decide which part of the fireplace you actually miss. If it is the glow, candles and LED flames will do it. If it is the mantel moment, a freestanding shelf or console gives you somewhere to style [garland](/renter-friendly-christmas-garland-ideas/) and stockings. If it is the heat, a small electric stove genuinely warms a room. Match the alternative to the feeling and you will stop noticing the missing chimney altogether.
 
 ## 1. A small electric fireplace stove
 
@@ -48,9 +48,9 @@ Where it fits: wherever the TV already lives, ideally with the sofa arranged to 
 
 ![Warm glowing lanterns with LED flame candles arranged on a small apartment windowsill and floor](/assets/small-apartment-fireplace-alternatives/idea-05.jpg)
 
-Why it works: lanterns give firelight a shape. A cluster of black metal or wooden lanterns with flickering LED candles inside reads as intentional decor rather than a workaround, and they work in every room — hallway, bedroom, bathroom — so the fireplace feeling follows you around the flat instead of living in one corner.
+Why it works: lanterns give firelight a shape. A cluster of black metal or wooden lanterns with flickering LED candles inside reads as intentional decor rather than a workaround, and they work in every room — [hallway](/decorate-small-apartment-hallway-christmas-guide/), bedroom, bathroom — so the fireplace feeling follows you around the flat instead of living in one corner.
 
-Where it fits: in a group of three on the floor beside the sofa, on a windowsill, or flanking the front door. Mix sizes (one tall, one medium, one small) and keep them all the same finish for a collected look. Battery LED candles with timers mean they light themselves every evening and never need attention, which is exactly the kind of low-effort magic a fireplace is supposed to be. [Shop lanterns with LED flame candles](https://www.amazon.com/s?k=decorative+lanterns+with+led+candles+set&tag={{AMAZON_TAG}})
+Where it fits: in a group of three on the floor beside the sofa, on a [windowsill](/winter-windowsill-garden-guide/), or flanking the front door. Mix sizes (one tall, one medium, one small) and keep them all the same finish for a collected look. Battery LED candles with timers mean they light themselves every evening and never need attention, which is exactly the kind of low-effort magic a fireplace is supposed to be. [Shop lanterns with LED flame candles](https://www.amazon.com/s?k=decorative+lanterns+with+led+candles+set&tag={{AMAZON_TAG}})
 
 ## 6. A DIY cardboard fireplace
 
@@ -58,7 +58,7 @@ Where it fits: in a group of three on the floor beside the sofa, on a windowsill
 
 Why it works: the cardboard fireplace is a Christmas classic for a reason — it costs almost nothing, it folds flat for storage, and children and adults alike love it far more than they expect to. A few large boxes, some white paint or brick-effect wrapping paper, and you have a full mantel, firebox and hearth that looks genuinely charming in photos and in person.
 
-Where it fits: against the main living-room wall, styled exactly like a real mantel. Keep the proportions modest — a fireplace wider than your sofa looks like a stage set — and fill the firebox with a candle cluster or a string of warm fairy lights behind a few paper logs. The secret to making it look good rather than crafty is restraint: one colour (white or cream), clean edges, and no glitter. When January comes, it flattens into a single box behind the wardrobe. [Shop brick-effect peel-and-stick wallpaper for a DIY fireplace](https://www.amazon.com/s?k=brick+peel+and+stick+wallpaper+roll&tag={{AMAZON_TAG}})
+Where it fits: against the main living-room wall, styled exactly like a real mantel. Keep the proportions modest — a fireplace wider than your sofa looks like a stage set — and fill the firebox with a candle cluster or a string of warm [fairy lights](/hang-christmas-lights-rental-guide/) behind a few paper logs. The secret to making it look good rather than crafty is restraint: one colour (white or cream), clean edges, and no glitter. When January comes, it flattens into a single box behind the wardrobe. [Shop brick-effect peel-and-stick wallpaper for a DIY fireplace](https://www.amazon.com/s?k=brick+peel+and+stick+wallpaper+roll&tag={{AMAZON_TAG}})
 
 ## 7. A tabletop ethanol fireplace
 

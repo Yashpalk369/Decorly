@@ -56,7 +56,7 @@ If you love tinsel, keep it on the top half of the tree only, well above jumping
 
 ![Pet-safe Christmas plants displayed on a high shelf away from pets in a rental apartment](/assets/pet-proof-christmas-decor-rental-guide/idea-06.jpg)
 
-Poinsettias, amaryllis, lilies, and mistletoe are all toxic to cats and dogs to varying degrees, and a curious pet will test them. The simplest pet-proofing move is to choose pet-safe plants instead — and if you already own a toxic favourite, put it on a high shelf, hang it from the ceiling, or keep it in a room your pet does not enter.
+[Poinsettia](/keep-poinsettias-alive-guide/)s, [amaryllis](/amaryllis-bulb-kits-under-25/), lilies, and mistletoe are all toxic to cats and dogs to varying degrees, and a curious pet will test them. The simplest pet-proofing move is to choose pet-safe plants instead — and if you already own a toxic favourite, put it on a high shelf, hang it from the ceiling, or keep it in a room your pet does not enter.
 
 Mistletoe deserves special care because it is traditionally hung in doorways at pet nose height. Hang it high, or swap it for a faux version that looks identical from below. Check every plant you bring home against a pet-toxicity list before it crosses the threshold, not after your pet has had a nibble, and keep the number of a vet or poison helpline saved in your phone through December.
 
@@ -86,10 +86,10 @@ Keep a small box by the tree for recovered ornaments and hooks, so the sweep is 
 
 ## Frequently Asked Questions
 
-**Are real Christmas trees safe with pets?**
+**Are real [Christmas tree](/small-apartment-christmas-tree-ideas/)s safe with pets?**
 Mostly yes, with care: anchor the tree, cover the stand water, vacuum fallen needles regularly, and keep fragile ornaments high. Pine needles can irritate a pet's stomach if eaten in quantity, so sweeping up is part of pet-proofing.
 
-**What Christmas plants are most dangerous for pets?**
+**What [Christmas plants](/christmas-plants-for-small-apartments/) are most dangerous for pets?**
 Lilies are the most dangerous for cats, even in small amounts. Mistletoe, amaryllis, and poinsettias are also toxic. When in doubt, choose a pet-safe plant or a faux version.
 
 **Can I use Command hooks to anchor a Christmas tree in a rental?**

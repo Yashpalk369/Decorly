@@ -16,7 +16,7 @@ The rule that makes all of this work: decor gets stored where you never look. Un
 
 ![Clear under-bed storage bins filled with Christmas decor sliding under a bed](/assets/store-christmas-decor-small-rental-ideas/idea-01.jpg)
 
-Why it works: the space under a bed is the largest unused storage area in most rentals, and it is exactly the right size for the bulkiest Christmas items — garlands, tree skirts, stockings, table linens. Flat, clear bins slide in and out easily, and because they are clear you can see what is inside without pulling every bin out.
+Why it works: the space under a bed is the largest unused storage area in most rentals, and it is exactly the right size for the bulkiest Christmas items — [garland](/renter-friendly-christmas-garland-ideas/)s, tree skirts, [stockings](/christmas-stocking-holders-no-mantel/), table linens. Flat, clear bins slide in and out easily, and because they are clear you can see what is inside without pulling every bin out.
 
 Where it fits: under any bed with at least 15 cm of clearance; if your bed sits low, bed risers buy you the height for a few pounds and the extra space pays for itself many times over. Label each bin on the end that faces out, not the top — you will be reading the labels while lying on the floor. Keep one bin for "tree decor" and one for "everything else" rather than splitting into ten tiny categories that nobody maintains. [Shop flat under-bed storage bins](https://www.amazon.com/s?k=flat+under+bed+storage+bins+clear&tag={{AMAZON_TAG}})
 
@@ -24,7 +24,7 @@ Where it fits: under any bed with at least 15 cm of clearance; if your bed sits 
 
 ![Vacuum-sealed bags of Christmas stockings, tree skirts and fabric garlands stored flat](/assets/store-christmas-decor-small-rental-ideas/idea-02.jpg)
 
-Why it works: soft decor — stockings, tree skirts, fabric garlands, advent calendars, Santa sacks — is mostly air. Vacuum bags compress it to a third of its volume, which turns a cupboard-filling pile into a flat package that slides under a bed or onto a high shelf. They also protect fabric from dust, damp and moths during eleven months of storage.
+Why it works: soft decor — stockings, tree skirts, fabric garlands, [advent calendar](/small-apartment-advent-calendar-display-ideas/)s, Santa sacks — is mostly air. Vacuum bags compress it to a third of its volume, which turns a cupboard-filling pile into a flat package that slides under a bed or onto a high shelf. They also protect fabric from dust, damp and moths during eleven months of storage.
 
 Where it fits: anywhere flat — under beds, on top of wardrobes, at the bottom of a suitcase you never use. Do not vacuum-seal anything with beads, sequins or delicate embroidery, which can crack under compression; bag those separately in a small box. And keep one bag unsealed until you are sure you have not packed the stocking someone still needs — every family has a January story about a sealed-away gift. [Shop vacuum storage bags jumbo](https://www.amazon.com/s?k=vacuum+storage+bags+jumbo+pack&tag={{AMAZON_TAG}})
 
@@ -58,7 +58,7 @@ Where it fits: on top of any wardrobe or tall cabinet, ideally in a bin with a l
 
 Why it works: if your closet has floor space but no shelves, a small rolling cart turns it into a Christmas storage unit that can be pulled out in December and pushed back in January. The cart's tiers separate categories — lights on one tier, ornaments on another, stockings on a third — so you never have to unpack a whole bin to find one string of lights.
 
-Where it fits: in the bottom of a bedroom closet, a hall cupboard, or even under a desk. Measure the closet door first: the cart must fit through it fully loaded, or it becomes a permanent obstacle. This is also the best home for the wrapping station cart after the holidays — one cart, two jobs, twelve months a year. [Shop slim rolling carts for closets](https://www.amazon.com/s?k=slim+rolling+cart+closet+storage&tag={{AMAZON_TAG}})
+Where it fits: in the bottom of a bedroom closet, a hall cupboard, or even under a desk. Measure the closet door first: the cart must fit through it fully loaded, or it becomes a permanent obstacle. This is also the best home for the [wrapping station](/holiday-gift-wrapping-station-small-apartment-guide/) cart after the holidays — one cart, two jobs, twelve months a year. [Shop slim rolling carts for closets](https://www.amazon.com/s?k=slim+rolling+cart+closet+storage&tag={{AMAZON_TAG}})
 
 ## 7. Stackable, labelled bins — and nothing unlabelled
 

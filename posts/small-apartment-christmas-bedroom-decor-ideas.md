@@ -10,13 +10,13 @@ motif: ⭐
 
 The bedroom is the last room most of us decorate for Christmas, and in a small apartment it is usually the first one we write off. There is no mantel, no spare corner for a tree, and barely enough floor space for a laundry basket, let alone a festive display. But the bedroom is also where Christmas mornings actually happen — where you wake up to cold light, pull the duvet a little tighter, and reach for the first coffee of the day. It deserves a little festivity too.
 
-The secret to decorating a small bedroom for Christmas is to work with the surfaces you already have: the headboard, the dresser, the mirror, the windowsill, the bed itself. Nothing below needs a drill, a nail, or a landlord's permission, and nothing costs more than a modest festive budget. Most ideas reuse things you already own — a throw, a string of lights, a spare cushion cover — and every single one packs away into one small box in January. Here are ten ideas that make a tiny bedroom feel properly Christmassy without swallowing it whole.
+The secret to decorating a small bedroom for Christmas is to work with the surfaces you already have: the headboard, the dresser, the mirror, the [windowsill](/winter-windowsill-garden-guide/), the bed itself. Nothing below needs a drill, a nail, or a landlord's permission, and nothing costs more than a modest festive budget. Most ideas reuse things you already own — a throw, a string of lights, a spare cushion cover — and every single one packs away into one small box in January. Here are ten ideas that make a tiny bedroom feel properly Christmassy without swallowing it whole.
 
 ### 1. Fairy lights along the headboard
 
 ![Warm fairy lights draped along a wooden headboard in a small cozy bedroom](/assets/small-apartment-christmas-bedroom-decor-ideas/idea-01.jpg)
 
-Fairy lights are the single highest-impact decoration you can put in a small bedroom, and the headboard is the perfect place for them. Drape one warm-white string along the top rail, or weave it through a wooden slatted headboard, and the whole bed becomes a soft glow in the evening. Battery-operated lights with a timer are ideal: set them to switch on at dusk and off at bedtime, and you never have to think about them again.
+[Fairy lights](/hang-christmas-lights-rental-guide/) are the single highest-impact decoration you can put in a small bedroom, and the headboard is the perfect place for them. Drape one warm-white string along the top rail, or weave it through a wooden slatted headboard, and the whole bed becomes a soft glow in the evening. Battery-operated lights with a timer are ideal: set them to switch on at dusk and off at bedtime, and you never have to think about them again.
 
 Why it works so well in a small room is that light, unlike objects, takes up no space at all. The headboard is already the visual anchor of the bedroom, so dressing it instantly changes the mood of the entire room for the price of one string of lights. Keep the colour warm white rather than multicolour — it reads as cosy and grown-up, and it flatters the terracotta, cream and sage palette that most small bedrooms already lean on.
 
@@ -48,7 +48,7 @@ This idea suits renters perfectly because it leaves no mark when it comes down, 
 
 ![Greenery garland with warm fairy lights draped along a bedroom mirror in a small apartment](/assets/small-apartment-christmas-bedroom-decor-ideas/idea-05.jpg)
 
-Mirrors and wardrobes are the biggest vertical surfaces in a small bedroom, and a garland draped along the top of either one turns dead space into decoration. Loop a plain greenery garland along a mirror frame, tuck in a few fairy lights, and you get a festive frame that doubles the light in the room every time you catch your reflection. On a wardrobe, run the garland along the top edge so it softens the biggest block of furniture in the room.
+Mirrors and wardrobes are the biggest vertical surfaces in a small bedroom, and a [garland](/renter-friendly-christmas-garland-ideas/) draped along the top of either one turns dead space into decoration. Loop a plain greenery garland along a mirror frame, tuck in a few fairy lights, and you get a festive frame that doubles the light in the room every time you catch your reflection. On a wardrobe, run the garland along the top edge so it softens the biggest block of furniture in the room.
 
 The trick is to keep the garland slim rather than bushy — a chunky garland on a small mirror will overwhelm it. A slim faux garland is cheap, sheds nothing, and can be re-used on a mantel, a shelf or a staircase in a future, larger home. Add a few dried orange slices or small wooden stars if you want it to feel more personal, but the greenery and lights alone are enough.
 
@@ -80,7 +80,7 @@ Why this matters more in a small room is that scent travels fast in a small spac
 
 ![An advent calendar displayed as wall art in a cozy small apartment bedroom](/assets/small-apartment-christmas-bedroom-decor-ideas/idea-09.jpg)
 
-An advent calendar does not have to live on the kitchen counter. Hung on the bedroom wall — from a single adhesive hook or a picture rail — a fabric advent calendar with pockets, or a row of small drawers on a board, becomes a piece of seasonal wall art that you interact with every morning. It fills an empty stretch of wall, it costs nothing beyond the calendar itself, and it gives December a daily ritual in the room where your day starts.
+An [advent calendar](/small-apartment-advent-calendar-display-ideas/) does not have to live on the kitchen counter. Hung on the bedroom wall — from a single adhesive hook or a picture rail — a fabric advent calendar with pockets, or a row of small drawers on a board, becomes a piece of seasonal wall art that you interact with every morning. It fills an empty stretch of wall, it costs nothing beyond the calendar itself, and it gives December a daily ritual in the room where your day starts.
 
 This idea is especially good for small bedrooms because it replaces decoration you would otherwise have to find wall space for, rather than adding to it. Choose a calendar in cream, terracotta or natural wood tones so it sits comfortably with your bedding, and fill the pockets with small treats, notes or tiny ornaments rather than just chocolate. When December ends, it folds away flat — and a fabric one can be refilled and reused for years.
 

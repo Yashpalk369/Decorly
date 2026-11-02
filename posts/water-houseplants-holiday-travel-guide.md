@@ -22,9 +22,9 @@ Why it works is simple: dry pockets in the middle of the pot are what kill plant
 ### 2. Group your plants together for humidity
 ![Potted houseplants grouped together on a tray near a bright window](/assets/water-houseplants-holiday-travel-guide/idea-02.jpg)
 
-Once every plant is watered, gather them together in one spot, ideally in the bathroom or kitchen where the air is naturally more humid, or on a tray in a bright room. Plants grouped together create their own little microclimate: each one releases moisture through its leaves, and the group shares it, so the air around them stays damper than it would around a lone plant on a windowsill.
+Once every plant is watered, gather them together in one spot, ideally in the bathroom or kitchen where the air is naturally more humid, or on a tray in a bright room. Plants grouped together create their own little microclimate: each one releases moisture through its leaves, and the group shares it, so the air around them stays damper than it would around a lone plant on a [windowsill](/winter-windowsill-garden-guide/).
 
-This trick costs nothing and it genuinely works, especially for humidity lovers like calatheas, ferns and peace lilies, which suffer first in dry, centrally heated rooms. Keep the group out of direct sun and away from radiators, and leave a little space between pots so air can still circulate. One crowded corner of happy plants beats ten isolated plants slowly drying out across the flat.
+This trick costs nothing and it genuinely works, especially for [humidity](/humidify-houseplants-without-humidifier/) lovers like calatheas, ferns and peace lilies, which suffer first in dry, centrally heated rooms. Keep the group out of direct sun and away from radiators, and leave a little space between pots so air can still circulate. One crowded corner of happy plants beats ten isolated plants slowly drying out across the flat.
 
 ### 3. Set up a simple wick watering system
 ![A DIY wick watering system with a cotton wick from a jar of water into a plant pot](/assets/water-houseplants-holiday-travel-guide/idea-03.jpg)

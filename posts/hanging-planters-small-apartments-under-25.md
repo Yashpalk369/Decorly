@@ -66,7 +66,7 @@ Where it fits: in a bright window, hung from a suction hook on the glass or a sm
 
 Why it works: a seagrass basket is the warmest, most natural-looking hanging planter on this list — it reads as a basket first and a planter second, which makes a room feel softer and more lived-in. It is light, it is cheap, and it suits the warm, cozy palette that makes small flats feel inviting in winter.
 
-Where it fits: in a living room or bedroom, from a ceiling hook, with a full trailing plant that spills over the basket's edge. Seagrass baskets have no drainage, so keep the plant in a plastic pot with a saucer inside the basket, and take the whole thing down to water it over the sink. Do not hang seagrass in a bathroom — constant humidity will stain and weaken the weave. [Shop seagrass hanging baskets](https://www.amazon.com/s?k=seagrass+hanging+basket+planter&tag={{AMAZON_TAG}})
+Where it fits: in a living room or bedroom, from a ceiling hook, with a full trailing plant that spills over the basket's edge. Seagrass baskets have no drainage, so keep the plant in a plastic pot with a saucer inside the basket, and take the whole thing down to water it over the sink. Do not hang seagrass in a bathroom — constant [humidity](/humidify-houseplants-without-humidifier/) will stain and weaken the weave. [Shop seagrass hanging baskets](https://www.amazon.com/s?k=seagrass+hanging+basket+planter&tag={{AMAZON_TAG}})
 
 ## 8. Tiered multi-pot hanging planter
 
@@ -90,7 +90,7 @@ Where it fits: anywhere an adhesive hook will hold — smooth ceilings, tiled wa
 - **Ceramic with drainage** — the most beautiful, for a sure spot. [Shop ceramic hangers](https://www.amazon.com/s?k=ceramic+hanging+planter+with+drainage&tag={{AMAZON_TAG}})
 - **Self-watering** — for hard-to-reach spots and forgetful waterers. [Shop self-watering hangers](https://www.amazon.com/s?k=self+watering+hanging+planter&tag={{AMAZON_TAG}})
 - **Seagrass basket** — the warmest, cosiest look. [Shop seagrass baskets](https://www.amazon.com/s?k=seagrass+hanging+basket+planter&tag={{AMAZON_TAG}})
-- **Lightweight no-drill** — the one for strict no-hook leases. [Shop no-drill hangers](https://www.amazon.com/s?k=lightweight+hanging+planter+adhesive+hook&tag={{AMAZON_TAG}})
+- **Lightweight [no-drill](/no-drill-wall-decor-renters/)** — the one for strict no-hook leases. [Shop no-drill hangers](https://www.amazon.com/s?k=lightweight+hanging+planter+adhesive+hook&tag={{AMAZON_TAG}})
 
 ## Frequently Asked Questions
 
@@ -101,7 +101,7 @@ Use adhesive ceiling hooks rated for the planter's wet weight, tension rods acro
 Take it down and water it over the sink or bath, let it drain fully, then rehang it. If it is too high to take down easily, use a pot with a saucer inside the hanger, or a self-watering planter with a reservoir.
 
 **What plants are best in hanging planters?**
-Trailing plants: pothos, philodendron, string of hearts, spider plants, and trailing ferns. They spill over the edge and show off the hanging form. Avoid heavy, top-heavy plants that make the hanger swing.
+[Trailing plants](/trailing-plants-small-apartment-winter-ideas/): pothos, philodendron, string of hearts, spider plants, and trailing ferns. They spill over the edge and show off the hanging form. Avoid heavy, top-heavy plants that make the hanger swing.
 
 **How much weight can an adhesive ceiling hook hold?**
 Most adhesive hooks hold 3 to 7 pounds. Weigh your planter with wet soil and a plant before hanging — wet soil is much heavier than dry, and a planter that holds dry may fail when freshly watered.

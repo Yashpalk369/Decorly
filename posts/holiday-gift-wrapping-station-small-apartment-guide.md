@@ -16,7 +16,7 @@ The whole system rests on one principle: everything in one place, and that place
 
 ![A small rolling cart stocked with wrapping paper and supplies tucked beside a wardrobe in a small apartment](/assets/holiday-gift-wrapping-station-small-apartment-guide/idea-01.jpg)
 
-The best wrapping station spot is not the biggest surface — it is the one you can abandon mid-gift without guilt. Good candidates in a small apartment: the top of a wardrobe with a folding table that leans nearby, a corner of a bedroom with a rolling cart, or a closet you can roll a cart into and shut the door on. Bad candidates: the dining table (you eat there), the bed (you sleep there) and any surface that also holds your laptop.
+The best wrapping station spot is not the biggest surface — it is the one you can abandon mid-gift without guilt. Good candidates in a small apartment: the top of a wardrobe with a folding table that leans nearby, a corner of a bedroom with a rolling cart, or a closet you can roll a cart into and shut the door on. Bad candidates: the [dining table](/small-apartment-christmas-table-setting-ideas/) (you eat there), the bed (you sleep there) and any surface that also holds your laptop.
 
 Measure the spot before you buy anything. A rolling cart is about 45 cm wide and 35 cm deep; a folding table needs roughly 120 cm of wall when open. If the only spot is a closet, check the door clears the cart's height. The station should be reachable in under a minute — if getting to it is a project, you will wrap on the bed anyway. [Shop small rolling carts with shelves](https://www.amazon.com/s?k=small+rolling+cart+3+tier&tag={{AMAZON_TAG}})
 
@@ -42,7 +42,7 @@ If a cart will not fit your space, the same logic works on a single shelf, a lar
 
 Paper stored flat gets crushed, creased and torn at the edges — which is why so many people rebuy paper every year despite owning a drawer full of it. Stored upright, rolls survive for years. A tall wastepaper basket, an umbrella stand, or a purpose-made upright wrap holder all work; the key is that rolls stand vertically and are not jammed so tightly that pulling one out tears its neighbour.
 
-Sort rolls by occasion or colour family rather than by size, and put the paper you will actually use this Christmas at the front. One honest tip: three good rolls beat ten mediocre ones. A solid kraft, a classic red or green, and one patterned roll cover almost every gift, and they all look better together under a tree than a rainbow of unrelated prints. [Shop upright wrapping paper organizers](https://www.amazon.com/s?k=upright+wrapping+paper+storage+holder&tag={{AMAZON_TAG}})
+Sort rolls by occasion or colour family rather than by size, and put the paper you will actually use this Christmas at the front. One honest tip: three good rolls beat ten mediocre ones. A solid kraft, a classic red or green, and one patterned roll cover almost every gift, and they all look better together under a [tree](/small-apartment-christmas-tree-ideas/) than a rainbow of unrelated prints. [Shop upright wrapping paper organizers](https://www.amazon.com/s?k=upright+wrapping+paper+storage+holder&tag={{AMAZON_TAG}})
 
 ## Step 5: Set up a wrapping surface that folds away
 

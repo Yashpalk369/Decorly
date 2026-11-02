@@ -8,7 +8,7 @@ hero: hero-clay
 motif: 🌲
 ---
 
-Every Christmas tree leaves a pile of branches behind. The bottom is trimmed so the tree sits straight in its stand, the sides are shaped to fit the corner, and by the time the tree is up, there is a small forest of offcuts on the floor. Most of them go straight in the bin, which is a shame — those branches are free, fresh, fragrant greenery, and they are exactly the material that florists charge good money for.
+Every [Christmas tree](/small-apartment-christmas-tree-ideas/) leaves a pile of branches behind. The bottom is trimmed so the tree sits straight in its stand, the sides are shaped to fit the corner, and by the time the tree is up, there is a small forest of offcuts on the floor. Most of them go straight in the bin, which is a shame — those branches are free, fresh, fragrant greenery, and they are exactly the material that florists charge good money for.
 
 Before you throw them away, look at what you have: short, sturdy branches with dense needles, already cut and ready to use. They will not last as long as a whole tree, but they will last two to three weeks with a little care, which is plenty for the festive season. Here are ten ways to turn tree offcuts into decor that looks deliberate, costs nothing, and fills a small apartment with the smell of Christmas.
 
@@ -24,7 +24,7 @@ What makes this work so well is scale. Interior doors in small apartments are na
 
 ![A garland of leftover Christmas tree branches along a shelf](/assets/leftover-christmas-tree-branches-ideas/idea-02.jpg)
 
-Lay branches end to end along a mantel, a shelf or the top of a bookcase, overlapping each one over the stems of the last, and you have a garland that cost nothing. No wiring needed if the surface is flat — gravity does the work — though a few twists of florist wire will hold it together if you want to drape it over a doorway or a picture rail. Tuck in a string of fairy lights and the whole display glows.
+Lay branches end to end along a mantel, a shelf or the top of a bookcase, overlapping each one over the stems of the last, and you have a [garland](/renter-friendly-christmas-garland-ideas/) that cost nothing. No wiring needed if the surface is flat — gravity does the work — though a few twists of florist wire will hold it together if you want to drape it over a doorway or a picture rail. Tuck in a string of [fairy lights](/hang-christmas-lights-rental-guide/) and the whole display glows.
 
 This is the easiest idea on the list and one of the most effective, because a garland transforms a surface that otherwise sits empty. In a small apartment, the top of a bookcase or a long shelf is often the only horizontal surface available for festive display, and a branch garland fills it beautifully. Mist it lightly every few days to keep it fresh, and it will last until the tree comes down. When it finally dries out, it still looks good — dried pine has a rustic charm all its own.
 
@@ -80,7 +80,7 @@ This works especially well for outdoor spaces, where branches last longer in the
 
 ![A small sprig of Christmas tree branch at each place setting on a festive table](/assets/leftover-christmas-tree-branches-ideas/idea-09.jpg)
 
-A tiny sprig of pine laid across each plate, or tucked into a folded napkin, turns an ordinary table setting into a festive one. It costs nothing, takes seconds per place, and gives each guest a small, fragrant detail that makes the table feel considered. Pair the sprig with a handwritten place card for a setting that looks like it came from a magazine, or keep it simple — just the sprig, laid diagonally across the plate.
+A tiny sprig of pine laid across each plate, or tucked into a folded napkin, turns an ordinary [table setting](/small-apartment-christmas-table-setting-ideas/) into a festive one. It costs nothing, takes seconds per place, and gives each guest a small, fragrant detail that makes the table feel considered. Pair the sprig with a handwritten place card for a setting that looks like it came from a magazine, or keep it simple — just the sprig, laid diagonally across the plate.
 
 The beauty of this idea is its scale. On a small table, where a large centrepiece would crowd the plates, tiny individual decorations give each place its own festive touch without taking up any shared space. Use the smallest, neatest sprigs for this — the tips of branches, about 8 to 10 centimetres long — and make sure they are clean and dry so they do not shed needles onto the food. Guests can take them home or leave them on the table; either way, the table looks dressed.
 

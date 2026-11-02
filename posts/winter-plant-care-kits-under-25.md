@@ -10,7 +10,7 @@ motif: 🪴
 
 Winter is the season that sorts new plant parents from confident ones. Short days, dry heated air, cold draughts from windows, and soil that stays wet far longer than it did in summer — all of it conspires against houseplants, and most of it is invisible until a leaf turns yellow or drops. The good news is that none of the fixes are expensive, and none of them need a big house, a greenhouse, or a landlord's permission. A few small, well-chosen kits can carry a whole indoor jungle through to spring.
 
-Every kit in this roundup costs under $25, and every one is renter-friendly: nothing is drilled into a wall, nothing is plumbed in, and everything fits in a small flat, from a studio windowsill to a single shelf above a radiator. They also make excellent gifts for the new plant parent in your life, because each one solves a real winter problem rather than just looking pretty on a shelf. Think of this list as a winter survival bundle, bought one small kit at a time.
+Every kit in this roundup costs under $25, and every one is renter-friendly: nothing is drilled into a wall, nothing is plumbed in, and everything fits in a small flat, from a studio [windowsill](/winter-windowsill-garden-guide/) to a single shelf above a radiator. They also make excellent gifts for the new plant parent in your life, because each one solves a real winter problem rather than just looking pretty on a shelf. Think of this list as a winter survival bundle, bought one small kit at a time.
 
 ### 1. Moisture meter + watering can set
 
@@ -46,7 +46,7 @@ Budget tip: glass globes in a four-pack usually cost $10–14, far less than a s
 
 ![A potted houseplant sitting on a pebble tray beside a glass misting spray bottle](/assets/winter-plant-care-kits-under-25/idea-04.jpg)
 
-Why it works in winter: heated rooms can drop indoor humidity below 30%, while most tropical houseplants want 40–60%. A pebble tray — a shallow tray of pebbles with water just below the top — raises humidity right around the plant as the water evaporates, and a misting bottle gives an instant boost for ferns and calatheas. Together they fight crispy leaf edges, the classic winter complaint.
+Why it works in winter: heated rooms can drop indoor [humidity](/humidify-houseplants-without-humidifier/) below 30%, while most tropical houseplants want 40–60%. A pebble tray — a shallow tray of pebbles with water just below the top — raises humidity right around the plant as the water evaporates, and a misting bottle gives an instant boost for ferns and calatheas. Together they fight crispy leaf edges, the classic winter complaint.
 
 Where it fits in a small flat: a pebble tray doubles as a saucer under a pot, so it replaces something you already use rather than adding clutter. The misting bottle lives on the windowsill, and both are fully portable when you move.
 
@@ -104,7 +104,7 @@ Budget tip: book-and-journal bundles typically cost $15–22, and a secondhand c
 
 ## Small flats, healthy plants, all winter
 
-The thread running through all nine kits is restraint: winter plant care is mostly about doing less, more carefully. Water only when the soil says so, add light where the sun no longer reaches, raise humidity around the plants that need it, and leave the rest alone. None of that requires a big budget or a big home — it requires the right small tools, used at the right moment.
+The thread running through all nine kits is restraint: [winter plant care](/winterize-indoor-plants-renter-guide/) is mostly about doing less, more carefully. Water only when the soil says so, add light where the sun no longer reaches, raise humidity around the plants that need it, and leave the rest alone. None of that requires a big budget or a big home — it requires the right small tools, used at the right moment.
 
 Start with the moisture meter if you buy just one kit, add the grow light if your flat is dark, and build the rest of the bundle over the winter as your collection grows. By spring, your plants will not just have survived — they will be ready to grow, and so will your confidence as a plant parent.
 

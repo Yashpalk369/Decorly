@@ -24,9 +24,9 @@ Where it fits: on any window, mirror or glass door, scattered naturally rather t
 
 ![A peel-and-stick Christmas tree wall decal on a rental apartment wall with ornaments](/assets/peel-and-stick-christmas-decor-renters-under-20/idea-02.jpg)
 
-Why it works: a wall-decal Christmas tree is the answer for renters with no room — or no permission — for a real tree. It gives you the shape, the ornaments and the focal point of a tree on a flat wall, and it peels off without taking paint with it, provided the paint is fully cured and the decal is made for walls rather than for laptops.
+Why it works: a wall-decal [Christmas tree](/small-apartment-christmas-tree-ideas/) is the answer for renters with no room — or no permission — for a real tree. It gives you the shape, the ornaments and the focal point of a tree on a flat wall, and it peels off without taking paint with it, provided the paint is fully cured and the decal is made for walls rather than for laptops.
 
-Where it fits: on the largest empty wall in the living room, at a height where the "tree" reads as a tree — base near the floor, top at eye level or above. Add a few real ornaments hung from removable hooks at the decal's edges and the illusion is surprisingly convincing, especially in the evening with fairy lights draped around it. Keep it off textured wallpaper, where removal can lift the texture. [Shop peel-and-stick Christmas tree decals](https://www.amazon.com/s?k=peel+and+stick+christmas+tree+wall+decal&tag={{AMAZON_TAG}})
+Where it fits: on the largest empty wall in the living room, at a height where the "tree" reads as a tree — base near the floor, top at eye level or above. Add a few real ornaments hung from removable hooks at the decal's edges and the illusion is surprisingly convincing, especially in the evening with [fairy lights](/hang-christmas-lights-rental-guide/) draped around it. Keep it off textured wallpaper, where removal can lift the texture. [Shop peel-and-stick Christmas tree decals](https://www.amazon.com/s?k=peel+and+stick+christmas+tree+wall+decal&tag={{AMAZON_TAG}})
 
 ## 3. Removable fairy-light wall decals
 
@@ -40,7 +40,7 @@ Where it fits: draped across a wall above a sofa, around a doorway, or framing a
 
 ![Peel-and-stick pine garland along an apartment doorframe with adhesive backing](/assets/peel-and-stick-christmas-decor-renters-under-20/idea-04.jpg)
 
-Why it works: a garland transforms a doorway, and a peel-and-stick version does it without a single hook. The adhesive-backed pine garlands now on the market look convincingly full from a normal viewing distance, and they conform to doorframes, mirror edges and stair rails that hooks cannot follow.
+Why it works: a [garland](/renter-friendly-christmas-garland-ideas/) transforms a doorway, and a peel-and-stick version does it without a single hook. The adhesive-backed pine garlands now on the market look convincingly full from a normal viewing distance, and they conform to doorframes, mirror edges and stair rails that hooks cannot follow.
 
 Where it fits: around the main living-room doorway, where everyone passes under it, or along the top of a large mirror. Press it firmly along its whole length, not just at the ends, or the middle will sag by week two. In January, peel from one end slowly, warming any stubborn section with a hairdryer for ten seconds — heat is the secret weapon for clean removal of every adhesive on this list. [Shop peel-and-stick Christmas garland](https://www.amazon.com/s?k=peel+and+stick+christmas+garland+doorframe&tag={{AMAZON_TAG}})
 
@@ -58,7 +58,7 @@ Where it fits: along the bottom edge of a living-room window, or across a glass 
 
 Why it works: snow spray with a stencil gives you the frosted-window look of a Christmas film set, and it wipes off glass completely with a damp cloth. It is the only decoration on this list that is genuinely free-form — you choose the pattern, the density and the placement, and a mistake wipes away in seconds.
 
-Where it fits: on windows you do not need to see through clearly for six weeks — a hallway window, a bathroom window, or the corners of a living-room window. Use a stencil for crisp shapes (snowflakes, stars, a village skyline) rather than spraying freehand, which tends to look like an accident. Spray lightly in two coats rather than one heavy coat, and keep it off window frames and sills, where it can be harder to clean. [Shop snow spray window stencils](https://www.amazon.com/s?k=christmas+snow+spray+window+stencil+kit&tag={{AMAZON_TAG}})
+Where it fits: on windows you do not need to see through clearly for six weeks — a [hallway](/decorate-small-apartment-hallway-christmas-guide/) window, a bathroom window, or the corners of a living-room window. Use a stencil for crisp shapes (snowflakes, stars, a village skyline) rather than spraying freehand, which tends to look like an accident. Spray lightly in two coats rather than one heavy coat, and keep it off window frames and sills, where it can be harder to clean. [Shop snow spray window stencils](https://www.amazon.com/s?k=christmas+snow+spray+window+stencil+kit&tag={{AMAZON_TAG}})
 
 ## 7. Peel-and-stick stocking holders for the wall
 

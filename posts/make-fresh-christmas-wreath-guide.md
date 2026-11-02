@@ -10,7 +10,7 @@ motif: 🌿
 
 A fresh Christmas wreath looks like something only a florist can make, but it is one of the easiest festive projects there is. The materials cost less than a shop-bought wreath, the whole thing takes about an hour, and the result — real pine, eucalyptus and cedar on your door — smells like Christmas in a way no artificial wreath ever will. Best of all, it is completely renter-friendly: it hangs from an over-door hook and comes down in January without a trace.
 
-You do not need florist skills, special tools or a garden full of greenery. A supermarket bunch of eucalyptus, a few stems from a garden centre, and the offcuts from a Christmas tree will do it. Here is the whole process, step by step, for a first-time wreath maker.
+You do not need florist skills, special tools or a garden full of greenery. A supermarket bunch of eucalyptus, a few stems from a garden centre, and the offcuts from a [Christmas tree](/small-apartment-christmas-tree-ideas/) will do it. Here is the whole process, step by step, for a first-time wreath maker.
 
 ### 1. Gather your greenery and supplies
 
@@ -56,7 +56,7 @@ Tidying is a matter of small corrections, not big ones. Trim any stem that stick
 
 ![Dried orange slices and pinecones wired into a fresh Christmas wreath](/assets/make-fresh-christmas-wreath-guide/idea-06.jpg)
 
-Now the decoration, and the rule is restraint. A fresh greenery wreath is already beautiful; the extras are accents, not the main event. Wire in three or four dried orange slices, spaced evenly around the ring, using short lengths of florist wire pushed through the fruit and twisted around the frame behind it. Add three or four small pinecones the same way, tucking them into the foliage so they sit naturally rather than perched on top.
+Now the decoration, and the rule is restraint. A [fresh greenery](/keep-cut-christmas-greenery-fresh-guide/) wreath is already beautiful; the extras are accents, not the main event. Wire in three or four dried orange slices, spaced evenly around the ring, using short lengths of florist wire pushed through the fruit and twisted around the frame behind it. Add three or four small pinecones the same way, tucking them into the foliage so they sit naturally rather than perched on top.
 
 Odd numbers and even spacing are the whole secret here. Three oranges and three pinecones, spread around the ring, will look deliberate and balanced. Five of each will look busy. Resist the urge to add baubles, glitter and ribbon all at once — pick one or two accents and let the greenery do the rest. If you want a touch of colour, a few small red berries wired in among the foliage will do it without overwhelming the natural look. Step back after each addition and ask whether the wreath still looks like greenery first and decoration second. If the answer is yes, you are done.
 

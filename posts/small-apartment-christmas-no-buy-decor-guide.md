@@ -18,7 +18,7 @@ Here is the good news: the cosiest Christmas rooms are rarely the ones with the 
 
 Before you make or gather anything, open every box, drawer and cupboard where Christmas things might be hiding. Most of us own far more festive stuff than we remember: last year's string lights tangled in a drawer, a half-used roll of ribbon, ornaments from a previous flat, candles bought and never burned. Lay it all out on the bed or the sofa and take stock. You will probably find you already own the backbone of your decorations — you just forgot where you put them.
 
-This step also stops the classic small-apartment mistake: decorating twice. When you shop or craft before checking what you have, you end up with duplicate garlands and three sets of fairy lights competing for the same shelf. An audit keeps your decorating focused, which matters enormously in a small space. One good set of lights, used well, beats five mediocre ones draped everywhere. Keep what earns its place, put the rest back in one labelled box, and build the rest of your decorating around what you found.
+This step also stops the classic small-apartment mistake: decorating twice. When you shop or craft before checking what you have, you end up with duplicate [garland](/renter-friendly-christmas-garland-ideas/)s and three sets of [fairy lights](/hang-christmas-lights-rental-guide/) competing for the same shelf. An audit keeps your decorating focused, which matters enormously in a small space. One good set of lights, used well, beats five mediocre ones draped everywhere. Keep what earns its place, put the rest back in one labelled box, and build the rest of your decorating around what you found.
 
 ### 2. Bring the outdoors in for free greenery
 
@@ -26,7 +26,7 @@ This step also stops the classic small-apartment mistake: decorating twice. When
 
 Nothing says Christmas faster than real greenery, and it does not have to come from a garden centre. A walk around your neighbourhood, a friendly neighbour's overgrown hedge, or trimmings from a friend's tree will give you all you need — just ask first, and never strip a plant bare. Pine, fir, eucalyptus, holly, ivy and even plain leafy branches all work beautifully, and a few stems in a jar can transform a whole room.
 
-Greenery works so well in small apartments because it adds Christmas atmosphere without adding bulk. A jam jar of pine on the windowsill, a sprig of eucalyptus tucked behind a photo frame, and a branch laid along a shelf give you the scent and the look of the season for free. Keep cuttings in water and mist them every couple of days so they last through the holidays. When they dry out, compost them — no storage problem, no guilt, and no cost at all.
+Greenery works so well in small apartments because it adds Christmas atmosphere without adding bulk. A jam jar of pine on the [windowsill](/winter-windowsill-garden-guide/), a sprig of eucalyptus tucked behind a photo frame, and a branch laid along a shelf give you the scent and the look of the season for free. Keep cuttings in water and mist them every couple of days so they last through the holidays. When they dry out, compost them — no storage problem, no guilt, and no cost at all.
 
 ### 3. Swap textiles instead of adding decorations
 
@@ -64,7 +64,7 @@ Edible decorations suit small apartments perfectly because they do double duty: 
 
 ![A houseplant dressed up for Christmas with a paper star and ribbon](/assets/small-apartment-christmas-no-buy-decor-guide/idea-07.jpg)
 
-If you already keep houseplants — and most small-apartment dwellers do — you already own your Christmas tree. A tall plant, a trailing pothos, or even a sturdy monstera can carry a few lightweight decorations beautifully. Hang a paper star from the top, tie a scrap-ribbon bow around the pot, drape a single short string of fairy lights through the leaves, and your plant becomes the festive centrepiece of the room without you buying a tree at all.
+If you already keep houseplants — and most small-apartment dwellers do — you already own your [Christmas tree](/small-apartment-christmas-tree-ideas/). A tall plant, a trailing pothos, or even a sturdy monstera can carry a few lightweight decorations beautifully. Hang a paper star from the top, tie a scrap-ribbon bow around the pot, drape a single short string of fairy lights through the leaves, and your plant becomes the festive centrepiece of the room without you buying a tree at all.
 
 This works so well because plants are already the most attractive things in most small apartments, and Christmas is really just an excuse to draw attention to them. Keep decorations light so you do not damage leaves, avoid anything that blocks light from the plant for weeks, and skip glitter or spray snow entirely — your plant will thank you. A dressed-up plant also solves the small-apartment tree problem completely: no needles on the floor, no wrestling a tree up the stairs, and nothing to dispose of in January. Just untie the ribbon and your plant goes back to normal.
 

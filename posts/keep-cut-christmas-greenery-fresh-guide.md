@@ -8,7 +8,7 @@ hero: hero-umber
 motif: 🌿
 ---
 
-Nothing deflates a Christmas display faster than a garland that was lush on the first weekend of December and is brown and shedding by the second. Cut greenery — fir, pine, cedar, holly, eucalyptus — is alive when you buy it, and it stays alive for weeks if it gets what a cut stem needs: water, cool air, and protection from heat. Most greenery dries out early not because it was old, but because it was hung over a radiator, never watered, or bought already half-dry. Every step below is renter-friendly, costs almost nothing, and adds days or weeks to your display.
+Nothing deflates a Christmas display faster than a [garland](/renter-friendly-christmas-garland-ideas/) that was lush on the first weekend of December and is brown and shedding by the second. Cut greenery — fir, pine, cedar, holly, eucalyptus — is alive when you buy it, and it stays alive for weeks if it gets what a cut stem needs: water, cool air, and protection from heat. Most greenery dries out early not because it was old, but because it was hung over a radiator, never watered, or bought already half-dry. Every step below is renter-friendly, costs almost nothing, and adds days or weeks to your display.
 
 The single most important idea is this: treat cut greenery like cut flowers, not like a plastic decoration. It drinks, it dries, and it responds to its environment. Get the buying, the preparation, and the placement right, and a garland bought in late November will still look good on New Year's Day.
 
@@ -42,7 +42,7 @@ Add nothing fancy to the water: plain cool water is best, and commercial flower 
 
 Wreaths and garlands cannot drink from a vase, so misting is their water supply. Spray the foliage lightly every two to three days, until the leaves are damp but not dripping, and mist the back of a wreath as well as the front, since the back dries first against a door or wall. A small spray bottle by the front door makes this a ten-second habit rather than a chore.
 
-Mist in the morning so the foliage dries before evening, which reduces mould risk in a warm home. Avoid misting decorations with paper or fabric elements that water would damage, and skip misting on days when the greenery is already damp from humidity. If a wreath hangs outside in rain or snow, it needs less misting — nature is doing the job.
+Mist in the morning so the foliage dries before evening, which reduces mould risk in a warm home. Avoid misting decorations with paper or fabric elements that water would damage, and skip misting on days when the greenery is already damp from [humidity](/humidify-houseplants-without-humidifier/). If a wreath hangs outside in rain or snow, it needs less misting — nature is doing the job.
 
 ## Step 5: Keep greenery away from heat sources
 
@@ -50,7 +50,7 @@ Mist in the morning so the foliage dries before evening, which reduces mould ris
 
 Heat is the fastest killer of cut greenery. A garland over a radiator, a wreath beside a fireplace, or branches above a television will dry out in days, no matter how well you misted them. Hang greenery on cool walls, in hallways, and on doors away from radiators, and keep it out of direct sun through south-facing windows, which acts like a slow oven in a heated home.
 
-This matters doubly in a small apartment, where every wall seems to have a radiator on it. Choose the coolest available spot — an entryway, a north-facing wall, a bedroom door — even if it is not the spot you first imagined. A garland that lasts all month in a hallway beats a garland that crisps in a week above the radiator, however photogenic the radiator spot looked.
+This matters doubly in a small apartment, where every wall seems to have a radiator on it. Choose the coolest available spot — an [entryway](/small-apartment-winter-entryway-ideas/), a north-facing wall, a bedroom door — even if it is not the spot you first imagined. A garland that lasts all month in a hallway beats a garland that crisps in a week above the radiator, however photogenic the radiator spot looked.
 
 ## Step 6: Use water sources where you can
 
@@ -80,7 +80,7 @@ Keep a small bag of spare branches when you buy your greenery, specifically for 
 
 ![Removing dry Christmas greenery from a door at the end of the holiday season](/assets/keep-cut-christmas-greenery-fresh-guide/idea-09.jpg)
 
-Very dry greenery near fairy lights or candles is a genuine fire risk, and knowing when to retire a display is part of keeping it fresh — a display kept too long stops being festive and starts being hazardous. If branches snap easily, shed heavily, and feel papery despite misting, take them down, even if it is before New Year.
+Very dry greenery near [fairy lights](/hang-christmas-lights-rental-guide/) or candles is a genuine fire risk, and knowing when to retire a display is part of keeping it fresh — a display kept too long stops being festive and starts being hazardous. If branches snap easily, shed heavily, and feel papery despite misting, take them down, even if it is before New Year.
 
 Dispose of greenery through garden waste or compost where available, and check for fallen needles behind furniture and in carpet edges — a thorough clean protects your deposit as well as your safety. Note which varieties lasted longest and where you hung them, so next year's buying and placement decisions start from evidence rather than hope.
 

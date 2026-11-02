@@ -24,7 +24,7 @@ Where it fits: down the middle of a dining table, with a folded tea towel or a c
 
 ![A large bowl filled with pinecones and warm fairy lights as a Christmas table centerpiece](/assets/renter-friendly-christmas-centerpiece-ideas/idea-02.jpg)
 
-Why it works: pinecones are free if you gather them, a big bowl is something almost every kitchen already owns, and a string of battery fairy lights turns the whole thing into a glowing centrepiece for the price of a set of lights. The bowl contains everything, so there is nothing to scratch the table and nothing to spill, and the lights give you candle-like warmth with no flame and no heat at all.
+Why it works: pinecones are free if you gather them, a big bowl is something almost every kitchen already owns, and a string of battery [fairy lights](/hang-christmas-lights-rental-guide/) turns the whole thing into a glowing centrepiece for the price of a set of lights. The bowl contains everything, so there is nothing to scratch the table and nothing to spill, and the lights give you candle-like warmth with no flame and no heat at all.
 
 Where it fits: in the centre of a round table, or as one of two matching bowls on a long table. Put a felt pad or a folded cloth under the bowl so the base cannot scratch the surface when someone turns it, and use battery lights with a timer so they switch themselves off after the meal. Add a few sprigs of greenery or cinnamon sticks on top if you want scent as well as glow.
 
@@ -32,7 +32,7 @@ Where it fits: in the centre of a round table, or as one of two matching bowls o
 
 ![A Christmas table runner of fresh greenery with dried orange slices and pinecones down the middle](/assets/renter-friendly-christmas-centerpiece-ideas/idea-03.jpg)
 
-Why it works: a runner of fresh greenery with dried orange slices looks like something from a magazine, but it costs almost nothing if you trim a few branches and dry orange slices in a low oven. The trick that keeps it renter-friendly is what goes underneath: lay a long tea towel, a length of wrapping paper, or a cheap table runner under the greenery first, so sap and moisture never reach the wood.
+Why it works: a runner of [fresh greenery](/keep-cut-christmas-greenery-fresh-guide/) with dried orange slices looks like something from a magazine, but it costs almost nothing if you trim a few branches and dry orange slices in a low oven. The trick that keeps it renter-friendly is what goes underneath: lay a long tea towel, a length of wrapping paper, or a cheap table runner under the greenery first, so sap and moisture never reach the wood.
 
 Where it fits: straight down the middle of a rectangular table, with plates and glasses arranged on either side of it. Keep the greenery low and narrow so guests can still see each other across the table, and remove fresh branches the day after the meal before they drop needles everywhere. Dried orange slices, cinnamon sticks, and pinecones can stay out all week and still look good.
 
@@ -40,7 +40,7 @@ Where it fits: straight down the middle of a rectangular table, with plates and 
 
 ![A small potted Christmas tree decorated with tiny ornaments as a dining table centerpiece](/assets/renter-friendly-christmas-centerpiece-ideas/idea-04.jpg)
 
-Why it works: a mini tree — a small potted spruce, a rosemary plant trimmed into a cone, or even a tabletop faux tree — gives you the full Christmas tree effect at table scale, and it is the easiest centrepiece to move out of the way when the food arrives. A potted tree also lives on after Christmas, which makes it one of the best-value decorations you can buy.
+Why it works: a mini tree — a small potted spruce, a rosemary plant trimmed into a cone, or even a tabletop faux tree — gives you the full [Christmas tree](/small-apartment-christmas-tree-ideas/) effect at table scale, and it is the easiest centrepiece to move out of the way when the food arrives. A potted tree also lives on after Christmas, which makes it one of the best-value decorations you can buy.
 
 Where it fits: in the centre of a small table, or at one end of a long table with the food arranged around it. Always stand the pot on a saucer or a cork mat, because water draining from a plant pot is one of the fastest ways to stain a wooden table, and a saucer catches it all. If you use a rosemary tree, guests can even snip a sprig for their roast potatoes.
 
@@ -99,7 +99,7 @@ The thread running through all ten ideas is not really about Christmas at all �
 ## Frequently Asked Questions
 
 **How do I protect my table from candle heat at Christmas?**
-Never put a candle directly on a wooden table. Use a candle in a glass holder, stand the holder on a tray, a ceramic plate, or a heat-proof mat, and keep real flames away from greenery, paper, and fabric. Battery candles remove the heat risk entirely and look convincing in low light.
+Never put a candle directly on a wooden table. Use a candle in a glass holder, stand the holder on a tray, a ceramic plate, or a heat-proof mat, and keep real flames away from greenery, paper, and fabric. Battery candles remove the heat risk entirely and look convincing in [low light](/low-light-indoor-plants-dark-apartments/).
 
 **What should I put under a centrepiece to stop scratches?**
 A folded tea towel, a cork mat, a felt pad, or a tray all work well. The key is that the protective layer is wider than the centrepiece itself, so nothing with a rough or heavy base touches the wood, even if the arrangement gets nudged during the meal.

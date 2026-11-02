@@ -8,7 +8,7 @@ hero: hero-terra
 motif: 🕯️
 ---
 
-A tiny dining table is the hardest surface in a small apartment to decorate for Christmas. It has to hold dinner, drinks, elbows and conversation, and every decoration you add competes for the same few square centimetres. The temptation is either to skip the table entirely or to pile it so high with candles and garlands that nobody can see each other across it. Neither feels like Christmas dinner.
+A tiny dining table is the hardest surface in a small apartment to decorate for Christmas. It has to hold dinner, drinks, elbows and conversation, and every decoration you add competes for the same few square centimetres. The temptation is either to skip the table entirely or to pile it so high with candles and [garland](/renter-friendly-christmas-garland-ideas/)s that nobody can see each other across it. Neither feels like Christmas dinner.
 
 The trick to a festive small table is to decorate vertically and in layers, not with bulky centrepieces. A tablecloth or runner sets the scene, candlelight does the heavy lifting, and a few natural touches — greenery, citrus, pinecones — add the Christmas smell and colour without eating a single place setting. Everything below is renter-friendly, budget-first, and packs away into one small box in January. Here are ten ideas that make a tiny table feel properly dressed for Christmas dinner.
 
@@ -34,7 +34,7 @@ In a small apartment, flameless candles are worth considering seriously. Many te
 
 A garland laid flat down the centre of the table is the classic Christmas centrepiece, and it works beautifully on a small table as long as you keep it low. Choose a slim garland — eucalyptus, pine or cedar — and let it snake gently between the place settings rather than running in a thick, tall ridge. Guests should be able to see each other over it, and serving dishes should sit comfortably alongside it.
 
-Fresh greenery brings two things no shop-bought decoration can: scent and texture. The smell of pine or eucalyptus will fill a small apartment within an hour, and the soft, irregular shapes look far more expensive than they cost. A metre of garland from a florist or garden centre is usually under $15, and offcuts from a Christmas tree work for free. Tuck in a few dried orange slices or pinecones for colour, and skip the baubles — they roll, they catch on sleeves, and they belong on the tree.
+Fresh greenery brings two things no shop-bought decoration can: scent and texture. The smell of pine or eucalyptus will fill a small apartment within an hour, and the soft, irregular shapes look far more expensive than they cost. A metre of garland from a florist or garden centre is usually under $15, and offcuts from a [Christmas tree](/small-apartment-christmas-tree-ideas/) work for free. Tuck in a few dried orange slices or pinecones for colour, and skip the baubles — they roll, they catch on sleeves, and they belong on the tree.
 
 ### 4. Layered plates with a festive napkin
 
@@ -72,7 +72,7 @@ The clever part is making the place card double as a favour. Write a short note 
 
 ![Fairy lights glowing beneath a sheer runner on a small Christmas dinner table](/assets/small-apartment-christmas-table-setting-ideas/idea-08.jpg)
 
-If you want the wow factor of a lit table without losing a centimetre of surface, run a string of battery fairy lights underneath a sheer runner or a length of gauzy fabric. The light glows through the fabric, turning the whole centre of the table into a soft, warm ribbon, and the runner itself stays flat enough for plates and glasses to sit on comfortably.
+If you want the wow factor of a lit table without losing a centimetre of surface, run a string of battery [fairy lights](/hang-christmas-lights-rental-guide/) underneath a sheer runner or a length of gauzy fabric. The light glows through the fabric, turning the whole centre of the table into a soft, warm ribbon, and the runner itself stays flat enough for plates and glasses to sit on comfortably.
 
 This works best with warm white micro-lights on a thin copper or clear wire, which disappear into the fabric. Use a battery pack with a timer and tuck it under the runner at one end, out of sight. The effect is magical in a small, dimly lit apartment — especially in the evening, when the overhead light is off and the table becomes the warmest spot in the room. It costs under $10, it takes five minutes to set up, and it is the idea guests will ask about most.
 
@@ -90,7 +90,7 @@ Pick the piece that gets the most table time — usually the main serving dish �
 
 The least glamorous idea on this list is the one that will save your evening. In a small apartment, the table has to convert from dinner to dessert to drinks to board games, often within an hour. Build the clearing plan into the setting itself: keep decorations flat, light and liftable, put the candle cluster on a single tray that lifts off in one move, and leave one clear corner of the table — or a nearby sideboard — as the landing zone for cleared plates.
 
-A tray is the secret weapon here. Group your candles, greenery and any small ornaments on one shallow tray, and the entire centrepiece lifts off the table in a single motion when the food arrives or when dessert needs space. The table goes from dressed to cleared in ten seconds, and the tray can sit on a windowsill or side table until the evening ends. In a tiny flat, the best decoration is one that knows when to get out of the way.
+A tray is the secret weapon here. Group your candles, greenery and any small ornaments on one shallow tray, and the entire centrepiece lifts off the table in a single motion when the food arrives or when dessert needs space. The table goes from dressed to cleared in ten seconds, and the tray can sit on a [windowsill](/winter-windowsill-garden-guide/) or side table until the evening ends. In a tiny flat, the best decoration is one that knows when to get out of the way.
 
 ## A Small Table, Properly Dressed
 

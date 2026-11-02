@@ -24,7 +24,7 @@ Beside the door, swap your everyday key hook for a festive one, or hang a small 
 
 ![Warm fairy lights running along the ceiling line of a narrow apartment hallway](/assets/decorate-small-apartment-hallway-christmas-guide/idea-02.jpg)
 
-Fairy lights are the hallway's best friend because they decorate the one part of the corridor nobody walks through: the ceiling line. Run a single warm-white string along the top of the wall where it meets the ceiling, using removable adhesive clips, and the whole hallway glows without losing a centimetre of width. Battery-operated lights with a timer are ideal here, since hallways rarely have a spare socket.
+[Fairy lights](/hang-christmas-lights-rental-guide/) are the hallway's best friend because they decorate the one part of the corridor nobody walks through: the ceiling line. Run a single warm-white string along the top of the wall where it meets the ceiling, using removable adhesive clips, and the whole hallway glows without losing a centimetre of width. Battery-operated lights with a timer are ideal here, since hallways rarely have a spare socket.
 
 The ceiling line matters because eye level in a narrow hallway is already busy with coats, mirrors and door frames. Lights up high draw the eye upward, which makes a low, narrow corridor feel taller and more open. Keep to one string and one colour — warm white — rather than draping multiple strands or mixing colours, which quickly reads as clutter in a tight space. One neat line of light, switched on at dusk, transforms a dark corridor into the warmest part of the flat.
 
@@ -32,7 +32,7 @@ The ceiling line matters because eye level in a narrow hallway is already busy w
 
 ![A narrow console table in a hallway styled with candles and greenery for Christmas](/assets/decorate-small-apartment-hallway-christmas-guide/idea-03.jpg)
 
-If your hallway has a console table, a floating shelf or even a wide windowsill, that surface is your display case. Style it the way you would a mantel: a small cluster of candles at one end, a sprig of greenery or a mini tree in the middle, and one personal touch — a framed photo, a favourite ornament — at the other end. Keep the arrangement to the back half of the surface so the front stays clear for keys, post and bags.
+If your hallway has a console table, a floating shelf or even a wide [windowsill](/winter-windowsill-garden-guide/), that surface is your display case. Style it the way you would a mantel: a small cluster of candles at one end, a sprig of greenery or a mini tree in the middle, and one personal touch — a framed photo, a favourite ornament — at the other end. Keep the arrangement to the back half of the surface so the front stays clear for keys, post and bags.
 
 The key discipline here is restraint. A console table in a hallway is a working surface first and a display second, and the moment it becomes too precious to use, it stops being useful. Three objects, maximum, in a tight colour palette — cream, terracotta and green work beautifully against the warm palette of a small flat. If you have no console table, a single floating shelf above the shoe bench does the same job, and a small tray on the shelf corrals the display into one liftable unit.
 
@@ -42,7 +42,7 @@ The key discipline here is restraint. A console table in a hallway is a working 
 
 Most small hallways have a mirror, and at Christmas it becomes your hardest-working decoration. A mirror doubles whatever light and greenery is already in the hallway, so a string of fairy lights reflected in it looks like two strings, and a sprig of greenery on the console looks like a fuller display. Position matters: hang or lean the mirror opposite the lights or the console display, not beside them, so the reflection actually captures something worth doubling.
 
-Dress the mirror itself lightly, if at all. A thin garland draped along the top edge, or a single sprig tucked into the frame's corner, is plenty — anything more and the mirror stops reflecting the room and starts competing with it. In a narrow hallway, the mirror's real job is spatial: it makes the corridor feel wider and brighter, and at Christmas it does that job twice over by bouncing candlelight down a space that rarely gets any natural light.
+Dress the mirror itself lightly, if at all. A thin [garland](/renter-friendly-christmas-garland-ideas/) draped along the top edge, or a single sprig tucked into the frame's corner, is plenty — anything more and the mirror stops reflecting the room and starts competing with it. In a narrow hallway, the mirror's real job is spatial: it makes the corridor feel wider and brighter, and at Christmas it does that job twice over by bouncing candlelight down a space that rarely gets any natural light.
 
 ### 5. Lay a festive runner on the floor
 
@@ -50,7 +50,7 @@ Dress the mirror itself lightly, if at all. A thin garland draped along the top 
 
 A hallway runner is the one floor decoration that is safe in a narrow space, because it lies flat and defines the path rather than blocking it. Swap your everyday runner for a festive one — deep red, a simple plaid, or a cream runner with a woven border — and the whole corridor changes character the moment you step onto it. Choose a low-pile runner with a non-slip backing so it stays put underfoot, and keep it the full length of the hallway so it reads as intentional rather than a stray mat.
 
-The runner also solves a practical problem: December brings wet shoes, grit and pine needles into the hallway, and a washable runner takes the beating so your floor does not have to. Buy one you can throw in the washing machine, and it will survive the season and come back next year. If a full runner feels like too much, a festive doormat just inside the door gives the same welcome in miniature — but a runner, running the length of the hall, is what turns a corridor into a Christmas entrance.
+The runner also solves a practical problem: December brings wet shoes, grit and pine needles into the hallway, and a washable runner takes the beating so your floor does not have to. Buy one you can throw in the washing machine, and it will survive the season and come back next year. If a full runner feels like too much, a festive [doormat](/renter-friendly-christmas-doormats-under-25/) just inside the door gives the same welcome in miniature — but a runner, running the length of the hall, is what turns a corridor into a Christmas entrance.
 
 ### 6. Hang a garland high on the wall, not at head height
 

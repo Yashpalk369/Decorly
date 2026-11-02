@@ -26,7 +26,7 @@ Where it fits: as the one statement cushion on a small sofa or armchair, paired 
 
 Why it works: velvet adds instant luxury for very little money, and forest green is festive without shouting about it. A solid velvet cover is the easiest way to make a budget sofa look expensive at Christmas, and it works with every other pattern in this roundup — plaid, knit, or embroidered — because it gives the eye somewhere quiet to rest.
 
-Where it fits: on any sofa, but especially in rooms where the Christmas tree or garland already provides the pattern. Pair a green velvet with a cream knit throw and the room feels considered rather than decorated-by-accident. [Shop forest green velvet pillow covers](https://www.amazon.com/s?k=forest+green+velvet+throw+pillow+cover&tag={{AMAZON_TAG}})
+Where it fits: on any sofa, but especially in rooms where the [Christmas tree](/small-apartment-christmas-tree-ideas/) or [garland](/renter-friendly-christmas-garland-ideas/) already provides the pattern. Pair a green velvet with a cream knit throw and the room feels considered rather than decorated-by-accident. [Shop forest green velvet pillow covers](https://www.amazon.com/s?k=forest+green+velvet+throw+pillow+cover&tag={{AMAZON_TAG}})
 
 ## 3. The chunky knit cable cover
 
@@ -58,7 +58,7 @@ Where it fits: on a grey or beige sofa, where the muted colours warm the room wi
 
 Why it works: a simple typographic cover — "Merry Christmas" in a clean serif or a friendly script — is the most direct way to say Christmas on a sofa, and it works precisely because it is so simple. No pattern to clash with, no colours to match beyond red and cream, and it photographs beautifully for anyone whose sofa ends up in Christmas photos.
 
-Where it fits: as the single festive cushion in a room that is otherwise neutral, or on a bench in an entryway where guests see it first. Keep it to one per room; two typographic cushions start to feel like signage. [Shop Merry Christmas typographic pillow covers](https://www.amazon.com/s?k=merry+christmas+throw+pillow+cover&tag={{AMAZON_TAG}})
+Where it fits: as the single festive cushion in a room that is otherwise neutral, or on a bench in an [entryway](/small-apartment-winter-entryway-ideas/) where guests see it first. Keep it to one per room; two typographic cushions start to feel like signage. [Shop Merry Christmas typographic pillow covers](https://www.amazon.com/s?k=merry+christmas+throw+pillow+cover&tag={{AMAZON_TAG}})
 
 ## 7. The faux fur winter white
 

@@ -26,9 +26,9 @@ Budget tip: a pair of festive hand towels costs less than most single decoration
 
 ![A tiny decorated Christmas tree on a bathroom windowsill beside a candle](/assets/renter-friendly-christmas-bathroom-decor-ideas/idea-02.jpg)
 
-Why it works: a mini tree brings the full Christmas feeling into a room that rarely gets a tree of its own, and in a small bathroom a tree just 20 to 30 centimetres tall is plenty. It sits neatly on a windowsill, a shelf, or the corner of a vanity unit, it needs no floor space, and it is the decoration guests comment on most — because nobody expects a tree in the bathroom.
+Why it works: a mini tree brings the full Christmas feeling into a room that rarely gets a tree of its own, and in a small bathroom a tree just 20 to 30 centimetres tall is plenty. It sits neatly on a [windowsill](/winter-windowsill-garden-guide/), a shelf, or the corner of a vanity unit, it needs no floor space, and it is the decoration guests comment on most — because nobody expects a tree in the bathroom.
 
-How to do it damage-free: stand the tree in a small pot, a mug, or a decorative tin, and put a coaster or a folded flannel underneath so the base cannot scratch the sill or leave a damp ring. Use a faux mini tree if your bathroom is humid, since a real one will drop needles in the steam, and decorate it with a few tiny baubles or a short string of battery fairy lights rather than anything heavy that could topple it into the bath.
+How to do it damage-free: stand the tree in a small pot, a mug, or a decorative tin, and put a coaster or a folded flannel underneath so the base cannot scratch the sill or leave a damp ring. Use a faux mini tree if your bathroom is humid, since a real one will drop needles in the steam, and decorate it with a few tiny baubles or a short string of battery [fairy lights](/hang-christmas-lights-rental-guide/) rather than anything heavy that could topple it into the bath.
 
 Budget tip: mini trees are one of the cheapest Christmas buys of all, and a plain green one dressed with baubles you already own looks far more expensive than it is. After Christmas, the tree packs flat into a box and comes out again next year.
 
@@ -56,7 +56,7 @@ Budget tip: a festive shower curtain is often cheaper than a set of bathroom acc
 
 ![Pine scented soap and a sprig of fresh greenery on a bathroom sink](/assets/renter-friendly-christmas-bathroom-decor-ideas/idea-05.jpg)
 
-Why it works: Christmas is as much a smell as a look, and the bathroom is one of the few rooms where scent actually lingers, because it is small and enclosed. A pine- or cedar-scented soap, with a single sprig of fresh greenery laid beside it on the sink, gives you that just-cut Christmas tree smell every time you wash your hands, with no diffuser, plug, or flame involved.
+Why it works: Christmas is as much a smell as a look, and the bathroom is one of the few rooms where scent actually lingers, because it is small and enclosed. A pine- or cedar-scented soap, with a single sprig of [fresh greenery](/keep-cut-christmas-greenery-fresh-guide/) laid beside it on the sink, gives you that just-cut [Christmas tree](/small-apartment-christmas-tree-ideas/) smell every time you wash your hands, with no diffuser, plug, or flame involved.
 
 How to do it damage-free: keep the soap on a small dish or tray so it never sits directly on a stone, wood, or painted surface, where a wet bar can leave a stain or a ring. Lay the greenery on the dish or in a small glass rather than directly on the sink, and replace the sprig every few days before it drops needles into the basin. Avoid coloured soaps or oils that could stain grout or sealant, and skip anything that needs to be stuck to a tile.
 

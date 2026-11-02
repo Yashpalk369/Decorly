@@ -10,7 +10,7 @@ motif: 🍁
 
 A small apartment table has one job on Thanksgiving: seat everyone, hold the food, and still look like a celebration. That is a harder brief than a big dining room gets, because every decorative object competes with a serving dish, a water glass and somebody's elbows. The finds below are chosen for that reality. Each one costs under $25, earns its square inches, and either folds flat, stacks away or gets eaten by the end of the night — so your table looks generous, not cluttered, and your cupboard is not full of holiday clutter on Friday morning.
 
-The rule for a tiny Thanksgiving table is simple: one long, low centrepiece, candlelight instead of height, and colour in the linens rather than in bulky objects. Shop with that rule and almost anything on this list works together; break it with a tall floral arrangement and a forest of candlesticks, and nobody across the table can see each other, let alone pass the gravy.
+The rule for a tiny Thanksgiving table is simple: one long, low [centrepiece](/renter-friendly-christmas-centerpiece-ideas/), candlelight instead of height, and colour in the linens rather than in bulky objects. Shop with that rule and almost anything on this list works together; break it with a tall floral arrangement and a forest of candlesticks, and nobody across the table can see each other, let alone pass the gravy.
 
 ## 1. A washable linen-look table runner
 
@@ -64,7 +64,7 @@ Where it fits: scattered between the serving dishes, two or three on each side o
 
 ![A fresh eucalyptus garland running down the centre of a small Thanksgiving table](/assets/small-apartment-thanksgiving-table-decor-under-25/idea-07.jpg)
 
-Why it works: a garland is the one long, flowing element that makes a small table feel abundant, and eucalyptus is the easiest version — it smells wonderful, it dries gracefully instead of wilting into sadness, and a single bunch goes a long way when you lay it flat rather than bunching it in a vase.
+Why it works: a [garland](/renter-friendly-christmas-garland-ideas/) is the one long, flowing element that makes a small table feel abundant, and eucalyptus is the easiest version — it smells wonderful, it dries gracefully instead of wilting into sadness, and a single bunch goes a long way when you lay it flat rather than bunching it in a vase.
 
 Where it fits: laid straight down the runner as the base layer of the centrepiece, with candles and pumpkins tucked into it. Buy one or two bunches from the supermarket or florist, not a pre-made garland — loose stems laid by hand look more natural and cost half as much. After dinner, hang the stems in the shower or a doorway and they keep scenting the flat for weeks. [Shop eucalyptus garland](https://www.amazon.com/s?k=faux+eucalyptus+garland+thanksgiving&tag={{AMAZON_TAG}})
 

@@ -24,7 +24,7 @@ The protection does not have to look like protection. A festive runner in the ha
 
 ![Removable adhesive hooks and freestanding Christmas decorations at a rental party](/assets/host-christmas-party-rental-no-damage-guide/idea-02.jpg)
 
-Party decorations are where rental damage usually happens: tape that pulls paint, pins that leave holes, garlands hung from nails that were never meant to hold them. The rule for a rental party is simple — nothing that touches the walls except removable adhesive hooks, and nothing heavy hanging from those hooks. Freestanding decorations do the rest: a tabletop tree, lanterns on surfaces, a wreath on an over-door hook, balloons weighted to the floor.
+Party decorations are where rental damage usually happens: tape that pulls paint, pins that leave holes, [garland](/renter-friendly-christmas-garland-ideas/)s hung from nails that were never meant to hold them. The rule for a rental party is simple — nothing that touches the walls except removable adhesive hooks, and nothing heavy hanging from those hooks. Freestanding decorations do the rest: a tabletop tree, lanterns on surfaces, a wreath on an over-door hook, balloons weighted to the floor.
 
 Adhesive hooks are your best friend, but use them correctly. Clean the wall first, press firmly, wait an hour before hanging anything, and remove them slowly by pulling the tab straight down — never yanking sideways. For a party, you need far fewer wall decorations than you think: one garland along a picture rail, a banner across a doorway, and the rest of the festive feeling comes from the table, the lighting and the people. If a decoration needs a nail, it does not go up. Full stop.
 
@@ -56,7 +56,7 @@ The trick is to commit to the look. Matching disposables, proper napkins, and re
 
 ![Flameless candles and fairy lights creating a warm glow at a rental Christmas party](/assets/host-christmas-party-rental-no-damage-guide/idea-06.jpg)
 
-Real candles at a party in a small rental are a risk nobody needs: crowded rooms, people moving with drinks, long curtains, a tenancy agreement that may ban open flames outright. Flameless candles and fairy lights give you the same warm glow with none of the risk. Cluster battery pillars on the table, run fairy lights along a shelf or window frame, and turn the overhead lights down or off — the room will look more festive than it ever does under a ceiling light.
+Real candles at a party in a small rental are a risk nobody needs: crowded rooms, people moving with drinks, long curtains, a tenancy agreement that may ban open flames outright. Flameless candles and [fairy lights](/hang-christmas-lights-rental-guide/) give you the same warm glow with none of the risk. Cluster battery pillars on the table, run fairy lights along a shelf or window frame, and turn the overhead lights down or off — the room will look more festive than it ever does under a ceiling light.
 
 The lighting also does quiet work for your deposit. Dim, warm light makes a room feel cosy and hides the everyday wear — the scuffed skirting, the tired carpet — that bright overhead light exposes. It also encourages guests to stay in the main room rather than wandering into bedrooms and bathrooms, where damage is harder to spot. Set the lights on timers before guests arrive, scatter the candles while the room is still empty, and you will not think about lighting again all evening.
 
