@@ -31,3 +31,11 @@ greenery-decor: A Listicle (2026-10-30 trailing-plants-small-apartment-winter-id
 small-spaces: B Guide (2026-10-31 small-apartment-christmas-no-buy-decor-guide); also A Listicle small-apartment-christmas-bedroom-decor-ideas same day
 rental-friendly: A Listicle (2026-10-31 renter-friendly-christmas-centerpiece-ideas); also B Guide child-proof-christmas-decor-rental-guide same day
 greenery-decor: B Guide (2026-10-31 water-houseplants-holiday-travel-guide)
+# 2026-11-01 run (1/2/2 split):
+small-spaces: C Roundup (2026-11-01 cozy-winter-bedding-small-apartments-under-25)
+rental-friendly: C Roundup (2026-11-01 renter-friendly-new-year-party-decor-under-25); also A Listicle renter-friendly-christmas-bathroom-decor-ideas same day
+greenery-decor: A Listicle (2026-11-01 christmas-plants-bloom-all-winter-ideas); also C Roundup winter-plant-care-kits-under-25 same day
+# 2026-11-02 run (2/1/2 split):
+small-spaces: A Listicle (2026-11-02 small-apartment-christmas-table-setting-ideas); also B Guide decorate-small-apartment-hallway-christmas-guide same day
+rental-friendly: B Guide (2026-11-02 host-christmas-party-rental-no-damage-guide)
+greenery-decor: B Guide (2026-11-02 make-fresh-christmas-wreath-guide); also A Listicle leftover-christmas-tree-branches-ideas same day
