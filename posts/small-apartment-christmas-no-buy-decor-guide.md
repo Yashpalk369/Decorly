@@ -82,6 +82,14 @@ That is the whole secret of no-buy Christmas decorating: look first, gather seco
 
 Best of all, nothing here risks your deposit or fills your cupboards. When January comes, the paper stars fold flat, the greenery composts, the edible decorations are eaten, and your flat goes back to normal — with your bank balance exactly where it was. That is Christmas decorating a renter can feel good about.
 
+## Shop this look: free-decor staples
+
+- **Kraft paper pack** — paper stars and snowflakes from scrap. [Shop kraft paper](https://www.amazon.com/s?k=kraft+paper+for+crafts&tag={{AMAZON_TAG}})
+- **Glass jars with lids** — turn jars into candle lanterns. [Shop glass jars](https://www.amazon.com/s?k=glass+jars+with+lids+set&tag={{AMAZON_TAG}})
+- **Battery fairy lights** — light it right with lights you already own. [Shop fairy lights](https://www.amazon.com/s?k=battery+operated+fairy+lights&tag={{AMAZON_TAG}})
+- **Natural twine** — hang stars, bundles, and garlands for free. [Shop twine](https://www.amazon.com/s?k=natural+jute+twine+for+crafts&tag={{AMAZON_TAG}})
+- **Dried orange slices** — kitchen-cupboard decor that costs almost nothing. [Shop dried oranges](https://www.amazon.com/s?k=dried+orange+slices+for+decoration&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 **Can I really decorate for Christmas without buying anything?**

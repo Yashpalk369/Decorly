@@ -96,6 +96,14 @@ Where it fits: on top of the fridge, pushed back from the edge, with a non-slip 
 
 The best small-kitchen Christmas decor is the kind you barely notice as decor at all — it is just your kitchen, slightly more festive version. Decorate upward, swap instead of adding, and keep every counter clear enough to actually cook Christmas dinner on. That is the whole secret: a kitchen that works in December feels more festive than a kitchen that only looks festive in a photograph.
 
+## Shop this look: festive kitchen touches
+
+- **Festive tea towels** — useful decor that actually gets used. [Shop tea towels](https://www.amazon.com/s?k=christmas+tea+towels+set&tag={{AMAZON_TAG}})
+- **Tiered tray** — one corner holds the whole display. [Shop tiered trays](https://www.amazon.com/s?k=tiered+tray+for+kitchen+counter&tag={{AMAZON_TAG}})
+- **Festive mugs** — open-shelf decor you drink from. [Shop festive mugs](https://www.amazon.com/s?k=christmas+mugs+set&tag={{AMAZON_TAG}})
+- **Under-cabinet fairy lights** — glow without a spare outlet. [Shop fairy lights](https://www.amazon.com/s?k=battery+operated+fairy+lights&tag={{AMAZON_TAG}})
+- **Mini tree for the fridge top** — the one spot a small kitchen wastes. [Shop mini trees](https://www.amazon.com/s?k=mini+christmas+tree+tabletop&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 **How do I decorate a tiny kitchen for Christmas without losing counter space?**

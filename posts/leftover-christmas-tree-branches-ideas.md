@@ -98,6 +98,14 @@ A Christmas tree's offcuts are not waste — they are free, fresh, fragrant deco
 
 Next time you trim the tree, keep the branches. Put them in a bucket of water by the door, and work through this list over the following week. By Christmas, the whole flat will be decorated — and you will not have spent a penny on greenery.
 
+## Shop this look: branch craft supplies
+
+- **Natural twine** — ties bundles, swags, and gift sprigs. [Shop twine](https://www.amazon.com/s?k=natural+jute+twine+for+crafts&tag={{AMAZON_TAG}})
+- **Mini wreath frames** — turn one branch into a door wreath. [Shop wreath frames](https://www.amazon.com/s?k=mini+wire+wreath+frame&tag={{AMAZON_TAG}})
+- **Glass bud vases** — a fragrant bundle on the table. [Shop bud vases](https://www.amazon.com/s?k=glass+bud+vases+set&tag={{AMAZON_TAG}})
+- **Simmer pot spice kit** — branches plus spice for a scented pot. [Shop simmer spices](https://www.amazon.com/s?k=stovetop+simmer+pot+spice+kit&tag={{AMAZON_TAG}})
+- **Wired ribbon** — bows that hold their shape on swags. [Shop wired ribbon](https://www.amazon.com/s?k=wired+christmas+ribbon&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### How long do leftover Christmas tree branches last as decor?

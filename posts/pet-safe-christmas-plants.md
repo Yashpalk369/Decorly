@@ -88,6 +88,14 @@ Where it fits: on the floor in a corner, on a table as a tabletop tree, or as th
 
 Not every festive favourite is safe, and knowing the short danger list matters as much as knowing the safe list. Poinsettias cause vomiting and drooling in cats and dogs; amaryllis bulbs are toxic if chewed; lilies are extremely dangerous for cats, even the pollen; mistletoe berries are toxic; and holly berries cause stomach upset. If you love one of these, display it high, behind a barrier, or choose a faux version — and keep the vet's number handy through the holidays.
 
+## Shop this look: pet-safe Christmas plants
+
+- **Christmas cactus plant** — flowers at Christmas, safe around pets. [Shop Christmas cactus](https://www.amazon.com/s?k=christmas+cactus+plant+live&tag={{AMAZON_TAG}})
+- **African violet plant** — small, flowering, and pet-friendly. [Shop African violets](https://www.amazon.com/s?k=african+violet+plant+live&tag={{AMAZON_TAG}})
+- **Boston fern** — lush green that tolerates a curious pet. [Shop Boston ferns](https://www.amazon.com/s?k=boston+fern+plant+live&tag={{AMAZON_TAG}})
+- **Spider plant** — trailing, tough, and non-toxic. [Shop spider plants](https://www.amazon.com/s?k=spider+plant+live&tag={{AMAZON_TAG}})
+- **Moth orchid** — elegant blooms with no toxicity worry. [Shop moth orchids](https://www.amazon.com/s?k=phalaenopsis+orchid+plant+live&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 **Are Christmas cacti really safe for cats and dogs?**

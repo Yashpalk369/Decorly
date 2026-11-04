@@ -72,6 +72,14 @@ Then do a gentle tidy-up. Trim off any yellow or crispy leaves, remove the wicks
 
 Your plants are tougher than you think, and a holiday is not the threat to them that it feels like. Deep watering, grouping, a wick or two, and a step back from the window will carry most houseplants through a week or two with no drama at all. Set it up the day before you leave, hand over a checklist if someone can pop in, and then stop worrying — your jungle will be waiting for you when you get home.
 
+## Shop this look: holiday plant care kit
+
+- **Self-watering spikes** — slow water while you are away. [Shop watering spikes](https://www.amazon.com/s?k=self+watering+spikes+for+plants&tag={{AMAZON_TAG}})
+- **Cotton wick cord** — a simple wick system from a water jug. [Shop wick cord](https://www.amazon.com/s?k=cotton+wick+cord+for+watering+plants&tag={{AMAZON_TAG}})
+- **Humidity pebble tray** — humidity lovers grouped on one tray. [Shop pebble trays](https://www.amazon.com/s?k=humidity+tray+for+plants&tag={{AMAZON_TAG}})
+- **Soil moisture meter** — check before you leave and when you return. [Shop moisture meters](https://www.amazon.com/s?k=soil+moisture+meter+for+plants&tag={{AMAZON_TAG}})
+- **Automatic drip kit** — timed watering for a longer trip. [Shop drip kits](https://www.amazon.com/s?k=automatic+drip+irrigation+kit+indoor+plants&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 **How long can houseplants survive without water?**

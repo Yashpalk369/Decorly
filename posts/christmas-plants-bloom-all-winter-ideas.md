@@ -96,6 +96,14 @@ It prefers cool conditions and shade over a warm, sunny room, so a sheltered spo
 
 The real joy of winter-flowering plants is that they change the feel of a flat for months, not days. A bunch of cut flowers lasts a week; a Christmas cactus or an orchid bought in December can still be flowering in March. Start with one or two from this list — a Christmas cactus for the windowsill and a cyclamen for the hallway, say — and add another each year. Before long, your flat will have colour in every corner through the darkest part of the year, all grown in small pots, on ordinary windowsills, for very little money. That is the kind of festive decorating that pays for itself, winter after winter.
 
+## Shop this look: winter-blooming plants
+
+- **Christmas cactus plant** — buds that open right through the holidays. [Shop Christmas cactus](https://www.amazon.com/s?k=christmas+cactus+plant+live&tag={{AMAZON_TAG}})
+- **Amaryllis bulb kit** — one bulb, one big stem of flowers. [Shop amaryllis kits](https://www.amazon.com/s?k=amaryllis+bulb+kit&tag={{AMAZON_TAG}})
+- **Paperwhite bulb set** — fast, fragrant, and easy on a windowsill. [Shop paperwhites](https://www.amazon.com/s?k=paperwhite+bulbs+for+forcing&tag={{AMAZON_TAG}})
+- **Cyclamen plant** — neat leaves and flowers that last for weeks. [Shop cyclamen](https://www.amazon.com/s?k=cyclamen+plant+live&tag={{AMAZON_TAG}})
+- **Moth orchid** — a long bloom season from a single stem. [Shop moth orchids](https://www.amazon.com/s?k=phalaenopsis+orchid+plant+live&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### Which Christmas plant blooms the longest?

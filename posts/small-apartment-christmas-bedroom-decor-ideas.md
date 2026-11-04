@@ -98,6 +98,14 @@ None of these ideas needs a big room, a big budget or a landlord's blessing. The
 
 The best small-bedroom Christmas decor is the kind you notice every evening when the lights come on and forget about entirely in January when it packs away into a single box. That is the test worth applying to every festive purchase: if it does not fit in the box, it does not come into the room.
 
+## Shop this look: festive bedroom swaps
+
+- **Warm fairy lights** — along the headboard for instant Christmas. [Shop fairy lights](https://www.amazon.com/s?k=warm+white+fairy+lights+bedroom&tag={{AMAZON_TAG}})
+- **Festive duvet cover set** — one swap changes the whole room. [Shop festive bedding](https://www.amazon.com/s?k=christmas+duvet+cover+set&tag={{AMAZON_TAG}})
+- **Mini tabletop tree** — fits a dresser without crowding it. [Shop mini trees](https://www.amazon.com/s?k=mini+christmas+tree+tabletop&tag={{AMAZON_TAG}})
+- **Chunky throw blanket** — the reading-corner essential. [Shop chunky throws](https://www.amazon.com/s?k=chunky+knit+throw+blanket&tag={{AMAZON_TAG}})
+- **Festive cushion covers** — swap the covers, keep the cushions. [Shop cushion covers](https://www.amazon.com/s?k=christmas+cushion+covers&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 **How do I decorate a small bedroom for Christmas without it feeling cluttered?**

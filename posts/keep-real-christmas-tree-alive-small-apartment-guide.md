@@ -80,6 +80,14 @@ Keeping a real tree alive in a small apartment comes down to three things, repea
 
 The reward is a tree that still smells like a forest on New Year's Eve, still holds its needles when you take the ornaments off, and still feels like the best decision you made all December. In a small flat, that is no small thing.
 
+## Shop this look: real tree survival kit
+
+- **Tree stand with a large reservoir** — holds enough water for a thirsty tree. [Shop tree stands](https://www.amazon.com/s?k=christmas+tree+stand+large+water+reservoir&tag={{AMAZON_TAG}})
+- **Tree watering funnel** — top up the stand without crawling under branches. [Shop tree funnels](https://www.amazon.com/s?k=christmas+tree+watering+funnel&tag={{AMAZON_TAG}})
+- **Misting spray bottle** — slows needle loss on dry branches. [Shop misting bottles](https://www.amazon.com/s?k=plant+misting+spray+bottle&tag={{AMAZON_TAG}})
+- **Lightweight ornament set** — decorates without dragging branches down. [Shop light ornaments](https://www.amazon.com/s?k=lightweight+christmas+ornaments+for+real+tree&tag={{AMAZON_TAG}})
+- **Tree disposal bag** — a clean takedown when the season ends. [Shop tree bags](https://www.amazon.com/s?k=christmas+tree+disposal+bag&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### How much water does a real Christmas tree need per day?

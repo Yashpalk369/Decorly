@@ -94,6 +94,14 @@ Winter care is minimal: water only when the soil is fully dry, which may mean on
 
 Winter greenery does not need a holiday to justify it. Olive branches, eucalyptus, pampas, forced branches, terrariums, seed heads, ivy, herbs, lavender, and succulents keep a flat alive and beautiful from November to March, and none of them need to come down in January, because they were never pretending to be Christmas. Start with the easiest one — a bundle of eucalyptus in the shower, or a basket of pinecones on the table — and let the green build from there. By February, when everyone else's flat is bare again, yours will still be growing.
 
+## Shop this look: winter greenery without tinsel
+
+- **Faux olive branches** — tall vase greenery that never drops. [Shop olive branches](https://www.amazon.com/s?k=faux+olive+branches+for+vase&tag={{AMAZON_TAG}})
+- **Dried eucalyptus bundle** — shower bundles and vase filler. [Shop eucalyptus](https://www.amazon.com/s?k=dried+eucalyptus+bundle&tag={{AMAZON_TAG}})
+- **Dried pampas grass** — height for a floor vase. [Shop pampas grass](https://www.amazon.com/s?k=dried+pampas+grass+for+vase&tag={{AMAZON_TAG}})
+- **Tall ceramic vase** — the anchor for branches and stems. [Shop tall vases](https://www.amazon.com/s?k=tall+ceramic+vase+for+branches&tag={{AMAZON_TAG}})
+- **Glass terrarium kit** — moss and fern under glass. [Shop terrarium kits](https://www.amazon.com/s?k=glass+terrarium+kit&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### What greenery can I display in winter without it looking like Christmas?

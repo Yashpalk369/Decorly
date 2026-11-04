@@ -84,6 +84,14 @@ Very dry greenery near [fairy lights](/hang-christmas-lights-rental-guide/) or c
 
 Dispose of greenery through garden waste or compost where available, and check for fallen needles behind furniture and in carpet edges — a thorough clean protects your deposit as well as your safety. Note which varieties lasted longest and where you hung them, so next year's buying and placement decisions start from evidence rather than hope.
 
+## Shop this look: greenery care kit
+
+- **Floral shears** — a clean cut keeps stems drinking. [Shop floral shears](https://www.amazon.com/s?k=floral+shears+for+cut+stems&tag={{AMAZON_TAG}})
+- **Flower food packets** — feed cut branches and slow wilting. [Shop flower food](https://www.amazon.com/s?k=cut+flower+food+packets&tag={{AMAZON_TAG}})
+- **Misting spray bottle** — regular misting for wreaths and garlands. [Shop misting bottles](https://www.amazon.com/s?k=plant+misting+spray+bottle&tag={{AMAZON_TAG}})
+- **Stem water tubes** — water where a vase will not fit. [Shop water tubes](https://www.amazon.com/s?k=floral+water+tubes+for+stems&tag={{AMAZON_TAG}})
+- **Wreath storage bag** — keeps a good wreath for next year. [Shop wreath bags](https://www.amazon.com/s?k=wreath+storage+bag&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 **How long should fresh Christmas greenery last indoors?**

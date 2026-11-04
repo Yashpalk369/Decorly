@@ -80,6 +80,14 @@ Cosiness in a small apartment is not about square footage or spending; it is abo
 
 The test worth applying to every winter change is simple: does it make the room feel warmer without making it feel smaller? If it blocks a walkway, crowds a surface, or cannot be lifted away when spring comes, it does not belong in a small flat, however cosy it looks in the shop.
 
+## Shop this look: cosy winter layers
+
+- **Chunky knit throw** — the fastest way to warm up a sofa. [Shop chunky throws](https://www.amazon.com/s?k=chunky+knit+throw+blanket&tag={{AMAZON_TAG}})
+- **Warm white fairy lights** — soft light at three heights, as the guide suggests. [Shop warm fairy lights](https://www.amazon.com/s?k=warm+white+fairy+lights+indoor&tag={{AMAZON_TAG}})
+- **Flameless pillar candles** — evening glow without a naked flame. [Shop flameless candles](https://www.amazon.com/s?k=flameless+pillar+candles+with+timer&tag={{AMAZON_TAG}})
+- **Draft stopper** — keeps cold air out from under the door. [Shop draft stoppers](https://www.amazon.com/s?k=door+draft+stopper&tag={{AMAZON_TAG}})
+- **Thick velvet curtains** — insulate the windows and darken the room. [Shop velvet curtains](https://www.amazon.com/s?k=velvet+curtains+thermal&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### How do I make a small apartment cosy without spending much?

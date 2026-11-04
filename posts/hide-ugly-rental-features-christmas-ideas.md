@@ -96,6 +96,14 @@ The thread through all ten ideas is the same: do not fight the rental's flaws, a
 
 Start with the flaw that bothers you most — the one you see first every morning — and hide it this weekend. Once one flaw disappears behind a garland or a wreath, the rest of the flat starts to look better too, because you have stopped seeing the rental and started seeing Christmas.
 
+## Shop this look: cover-ups that come down clean
+
+- **Peel-and-stick wall decals** — hide stains, peel off in January. [Shop wall decals](https://www.amazon.com/s?k=peel+and+stick+christmas+wall+decals&tag={{AMAZON_TAG}})
+- **Festive area rug** — covers tired tiles in one move. [Shop festive rugs](https://www.amazon.com/s?k=christmas+area+rug&tag={{AMAZON_TAG}})
+- **Paper star lanterns** — a glowing display over a flawed wall. [Shop paper stars](https://www.amazon.com/s?k=paper+star+lanterns+christmas&tag={{AMAZON_TAG}})
+- **Artificial garland** — frames mirrors and hides cracked edges. [Shop garlands](https://www.amazon.com/s?k=artificial+christmas+garland&tag={{AMAZON_TAG}})
+- **Removable wall hooks** — hang it all without losing the deposit. [Shop removable hooks](https://www.amazon.com/s?k=removable+wall+hooks+no+damage&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### Can I hang Christmas decorations in a rental without losing my deposit?

@@ -86,6 +86,14 @@ Keep it to one page and keep it friendly — this is a welcome note, not a tenan
 
 Preparing a rental for winter guests is mostly tidying, stocking, and thinking one step ahead — not buying, building, or renovating. A comfortable sleep setup, one surface and hook per guest, a stocked bathroom, a drinks station, a dry entryway, enough seats, a curtain for privacy, a kitchen ready for group cooking, and a one-page guide: that is the whole system, and every piece of it comes down or folds away when guests leave. The flat goes back to normal in an afternoon, the deposit is safe, and the guests leave saying the stay felt easy — which is the highest compliment a small rental can earn.
 
+## Shop this look: guest-ready rental kit
+
+- **Inflatable mattress with pump** — a sleep setup that packs away after. [Shop air mattresses](https://www.amazon.com/s?k=inflatable+mattress+with+built+in+pump&tag={{AMAZON_TAG}})
+- **Spare towel set** — one clean set per guest, hotel-style. [Shop towel sets](https://www.amazon.com/s?k=guest+towel+set&tag={{AMAZON_TAG}})
+- **Folding luggage rack** — a suitcase spot that is not the bed. [Shop luggage racks](https://www.amazon.com/s?k=folding+luggage+rack&tag={{AMAZON_TAG}})
+- **Boot tray** — wet coats and boots stay by the door. [Shop boot trays](https://www.amazon.com/s?k=boot+tray+for+entryway&tag={{AMAZON_TAG}})
+- **Guest toiletries set** — mini bottles so nobody has to ask. [Shop guest toiletries](https://www.amazon.com/s?k=guest+toiletries+set&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### How do I host overnight guests with no guest room?

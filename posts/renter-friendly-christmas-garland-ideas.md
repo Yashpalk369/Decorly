@@ -96,6 +96,14 @@ Where it fits: wound along the balcony railing with zip ties or ribbon, using ou
 
 Whatever spot you choose, the same three rules keep your deposit safe. First, weigh the garland with its ornaments before you choose a hook — most Command hooks list their weight limit on the packet, and garland plus baubles is heavier than it looks. Second, follow the hook instructions properly: clean the surface, press for thirty seconds, wait an hour before hanging. Third, remove hooks the way the packet says, pulling the strip straight down slowly, not ripping it off the wall. A garland hung well and removed well leaves nothing behind but a good December.
 
+## Shop this look: garland hanging kit
+
+- **Artificial garland** — full, reusable, and shed-free. [Shop garlands](https://www.amazon.com/s?k=artificial+christmas+garland&tag={{AMAZON_TAG}})
+- **Adhesive hooks** — hang garland anywhere, remove clean. [Shop adhesive hooks](https://www.amazon.com/s?k=adhesive+hooks+for+garland&tag={{AMAZON_TAG}})
+- **Battery fairy lights** — weave light through without an outlet nearby. [Shop battery fairy lights](https://www.amazon.com/s?k=battery+operated+fairy+lights&tag={{AMAZON_TAG}})
+- **Garland ties** — twist ties that hold swags in place. [Shop garland ties](https://www.amazon.com/s?k=garland+twist+ties&tag={{AMAZON_TAG}})
+- **Over-door garland hanger** — a doorway swag with no nails. [Shop garland hangers](https://www.amazon.com/s?k=over+door+garland+hanger&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 **How do I hang garland without nails in a rental?**

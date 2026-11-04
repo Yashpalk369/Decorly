@@ -96,6 +96,14 @@ Where it fits: in the centre of a table that is not too crowded with food, or on
 
 The thread running through all ten ideas is not really about Christmas at all — it is about putting something between your decoration and your table. A tray, a board, a tea towel, or a mat costs almost nothing, it is usually something you already own, and it is the difference between a festive table and a damage deposit dispute. Pick the idea that suits your table size and your budget, protect the surface underneath it, and enjoy a centrepiece that looks the part without costing you anything in January.
 
+## Shop this look: centerpiece supplies
+
+- **Decorative serving tray** — the base every candle cluster needs. [Shop serving trays](https://www.amazon.com/s?k=decorative+serving+tray+for+centerpiece&tag={{AMAZON_TAG}})
+- **Pinecone filler bag** — fills a bowl in seconds. [Shop pinecone filler](https://www.amazon.com/s?k=pinecone+filler+for+vase+and+bowl&tag={{AMAZON_TAG}})
+- **Battery fairy lights** — glow inside a bowl or jar, no outlet. [Shop battery fairy lights](https://www.amazon.com/s?k=battery+operated+fairy+lights&tag={{AMAZON_TAG}})
+- **Glass apothecary jars** — candy, greenery, or candles on display. [Shop glass jars](https://www.amazon.com/s?k=glass+apothecary+jars+set&tag={{AMAZON_TAG}})
+- **Table runner** — grounds the whole centerpiece. [Shop table runners](https://www.amazon.com/s?k=christmas+table+runner&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 **How do I protect my table from candle heat at Christmas?**

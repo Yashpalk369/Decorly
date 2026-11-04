@@ -94,6 +94,14 @@ Spray in the morning so the scent settles by evening, and test on a hidden corne
 
 The thread through all ten ideas is the same: Christmas scent in a rental should be warm, cheap, and removable. Pick one signature scent — cinnamon and orange, pine and clove, vanilla and amber — and carry it through the flat in two or three forms: a strong source like a simmer pot or candle, a background source like sachets or a garland, and a finishing touch like linen spray. Nothing here needs a nail, a drill, or a landlord's permission, and nothing here needs storing in January beyond a jar of cloves. Start with the simmer pot tonight, and your flat will smell like Christmas before the decorations are even out of the box.
 
+## Shop this look: Christmas scent kit
+
+- **Simmer pot spice kit** — cinnamon, clove, and orange ready to simmer. [Shop simmer spices](https://www.amazon.com/s?k=stovetop+simmer+pot+spice+kit&tag={{AMAZON_TAG}})
+- **Dried orange slices** — garlands, simmer pots, and pomanders. [Shop dried oranges](https://www.amazon.com/s?k=dried+orange+slices+for+decoration&tag={{AMAZON_TAG}})
+- **Cinnamon sticks bundle** — tie into vases or simmer whole. [Shop cinnamon sticks](https://www.amazon.com/s?k=cinnamon+sticks+for+decoration&tag={{AMAZON_TAG}})
+- **Essential oil diffuser** — a winter blend that runs for hours. [Shop diffusers](https://www.amazon.com/s?k=essential+oil+diffuser+for+home&tag={{AMAZON_TAG}})
+- **Linen spray** — Christmas scent on curtains and bedding. [Shop linen spray](https://www.amazon.com/s?k=christmas+linen+spray&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### What is the cheapest way to make a flat smell like Christmas?

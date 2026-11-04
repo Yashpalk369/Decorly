@@ -98,6 +98,14 @@ None of these ideas needs a large table, a large budget or a landlord's permissi
 
 The best small-table Christmas setting is the one you notice when the candles are lit and forget about entirely when the food arrives. That is the test worth applying to every decoration: if it blocks a face, crowds a plate or cannot be lifted off in one move, it does not belong on a tiny table.
 
+## Shop this look: small table settings
+
+- **Table runner** — a runner instead of a full tablecloth. [Shop table runners](https://www.amazon.com/s?k=christmas+table+runner&tag={{AMAZON_TAG}})
+- **Taper candles in varied heights** — height without crowding the table. [Shop taper candles](https://www.amazon.com/s?k=taper+candles+varied+heights&tag={{AMAZON_TAG}})
+- **Cloth napkins** — layered plates with a festive napkin. [Shop cloth napkins](https://www.amazon.com/s?k=christmas+cloth+napkins&tag={{AMAZON_TAG}})
+- **Pinecone filler** — natural confetti down the centre. [Shop pinecone filler](https://www.amazon.com/s?k=pinecone+filler+for+vase+and+bowl&tag={{AMAZON_TAG}})
+- **Place card holders** — cards that double as favours. [Shop place card holders](https://www.amazon.com/s?k=place+card+holders+for+christmas&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### How do I decorate a small dining table for Christmas without crowding it?

@@ -82,6 +82,14 @@ A small apartment hallway decorated for Christmas should feel like an entrance, 
 
 Start with the wreath and the lights — those two alone will change how the hallway feels — and add the rest only if the space genuinely allows it. The best hallway Christmas decor is the kind guests notice in the first three seconds and never trip over once.
 
+## Shop this look: hallway Christmas in a small space
+
+- **Over-door wreath hanger** — a wreath with no holes in the door. [Shop wreath hangers](https://www.amazon.com/s?k=over+door+wreath+hanger&tag={{AMAZON_TAG}})
+- **Adhesive wall hooks** — hold lights and garlands, come off clean. [Shop adhesive hooks](https://www.amazon.com/s?k=adhesive+hooks+for+christmas+lights&tag={{AMAZON_TAG}})
+- **Battery fairy lights** — no outlet needed along the ceiling line. [Shop battery fairy lights](https://www.amazon.com/s?k=battery+operated+fairy+lights&tag={{AMAZON_TAG}})
+- **Hallway runner rug** — a festive strip that protects the floor. [Shop hallway runners](https://www.amazon.com/s?k=christmas+hallway+runner+rug&tag={{AMAZON_TAG}})
+- **Flameless tea lights** — safe glow for a console shelf. [Shop flameless tea lights](https://www.amazon.com/s?k=flameless+tea+lights+with+timer&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### How do I decorate a narrow hallway for Christmas without blocking it?

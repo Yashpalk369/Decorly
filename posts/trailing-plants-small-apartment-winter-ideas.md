@@ -96,6 +96,14 @@ Where it fits: in a corner by a window, on a plant stand with multiple levels, o
 
 Trailing plants in winter need three things: less water than you think, as much light as you can give them, and protection from cold draughts and hot radiators alike. Water only when the top inch of soil is dry, move plants closer to windows during the shortest days, and keep them away from both the cold glass and the radiator below it. Do not feed in winter — most houseplants rest in the cold months, and fertiliser in December does more harm than good. Follow those four rules and your vines will come into spring ready to grow hard.
 
+## Shop this look: trailing plant kit
+
+- **Macrame plant hangers** — the classic trailing display. [Shop macrame hangers](https://www.amazon.com/s?k=macrame+plant+hangers+set&tag={{AMAZON_TAG}})
+- **Hanging planters with drainage** — window light without drips. [Shop hanging planters](https://www.amazon.com/s?k=hanging+planters+with+drainage&tag={{AMAZON_TAG}})
+- **Adhesive plant hooks** — trail vines along walls, no holes. [Shop plant hooks](https://www.amazon.com/s?k=adhesive+hooks+for+hanging+plants&tag={{AMAZON_TAG}})
+- **Clip-on grow light** — winter light for a dark corner. [Shop grow lights](https://www.amazon.com/s?k=clip+on+grow+light+for+indoor+plants&tag={{AMAZON_TAG}})
+- **Trailing pothos plant** — the easiest cascade to start with. [Shop pothos](https://www.amazon.com/s?k=pothos+plant+live+trailing&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 **Which trailing plant is best for a beginner in winter?**

@@ -82,6 +82,14 @@ A fresh wreath made from grocery store greenery costs a fraction of a shop-bough
 
 Start with the frame, the wire and three bunches of greenery, and give yourself a free hour. By the end of it, your door will smell like Christmas, and you will have a new December tradition that costs almost nothing and impresses everyone who walks through the door.
 
+## Shop this look: wreath-making supplies
+
+- **Wire wreath frame** — the ring everything wires onto. [Shop wreath frames](https://www.amazon.com/s?k=wire+wreath+frame&tag={{AMAZON_TAG}})
+- **Florist wire** — holds each bundle tight to the frame. [Shop florist wire](https://www.amazon.com/s?k=florist+wire+for+wreaths&tag={{AMAZON_TAG}})
+- **Pruning shears** — cut greenery into even small bundles. [Shop pruning shears](https://www.amazon.com/s?k=pruning+shears+for+wreath+making&tag={{AMAZON_TAG}})
+- **Dried orange slices** — the classic wreath decoration. [Shop dried oranges](https://www.amazon.com/s?k=dried+orange+slices+for+decoration&tag={{AMAZON_TAG}})
+- **Pinecone pack** — texture and scent for the finished ring. [Shop pinecones](https://www.amazon.com/s?k=natural+pinecones+for+crafts&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### How much does it cost to make a fresh Christmas wreath?

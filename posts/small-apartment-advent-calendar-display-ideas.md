@@ -92,6 +92,14 @@ Why it works: not every advent display needs a wall. A tray on a coffee table co
 
 Where it fits: a coffee table, a dining table centre, or an ottoman tray. Use boxes small enough that all twenty-four fit on one tray — matchbox size is ideal — and number them clearly so the daily hunt is short. This is the best option for renters with strict wall rules, since it uses no fixings at all, and it packs away into a single box in January.
 
+## Shop this look: advent display supplies
+
+- **Hanging pocket advent calendar** — fills a door, needs no shelf. [Shop pocket calendars](https://www.amazon.com/s?k=hanging+pocket+advent+calendar&tag={{AMAZON_TAG}})
+- **Mini kraft envelopes** — peg to a string for a homemade countdown. [Shop mini envelopes](https://www.amazon.com/s?k=mini+kraft+envelopes+for+advent&tag={{AMAZON_TAG}})
+- **Wooden peg clips** — hold envelopes, jars, and tags on a garland. [Shop peg clips](https://www.amazon.com/s?k=mini+wooden+peg+clips&tag={{AMAZON_TAG}})
+- **Numbered sticker set** — 1 to 24 for jars, tags, and envelopes. [Shop number stickers](https://www.amazon.com/s?k=number+stickers+1+to+24&tag={{AMAZON_TAG}})
+- **Mini ornaments** — a tabletop tree countdown, one per day. [Shop mini ornaments](https://www.amazon.com/s?k=mini+christmas+ornaments+set&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 **What is the best advent calendar idea for a very small apartment?**

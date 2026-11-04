@@ -82,6 +82,14 @@ Hosting a Christmas party in a rental is not about being cautious — it is abou
 
 The real test of a rental party is not whether guests had fun — they will — but whether you wake up relaxed instead of anxious. Plan for the deposit, and you get to enjoy the party twice: once while it happens, and once the next morning when the flat is exactly as you left it.
 
+## Shop this look: party supplies that protect the deposit
+
+- **Floor protector mats** — clear cover for the busiest walkways. [Shop floor protectors](https://www.amazon.com/s?k=clear+floor+protector+mat+for+parties&tag={{AMAZON_TAG}})
+- **Sturdy disposable plates** — look deliberate, bin in seconds. [Shop party plates](https://www.amazon.com/s?k=elegant+disposable+plates+for+parties&tag={{AMAZON_TAG}})
+- **Flameless candles** — table light with no wax on the tablecloth. [Shop flameless candles](https://www.amazon.com/s?k=flameless+candles+for+table+setting&tag={{AMAZON_TAG}})
+- **Drink dispenser** — a self-serve station that keeps traffic out of the kitchen. [Shop drink dispensers](https://www.amazon.com/s?k=drink+dispenser+with+stand&tag={{AMAZON_TAG}})
+- **Folding coat rack** — a coats and bags zone by the door. [Shop coat racks](https://www.amazon.com/s?k=folding+coat+rack+for+parties&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### Can I hang Christmas party decorations in a rental without losing my deposit?

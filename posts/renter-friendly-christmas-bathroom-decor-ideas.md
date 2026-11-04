@@ -116,6 +116,14 @@ Budget tip: a festive bath mat is often the cheapest item in the Christmas homew
 
 The thread running through all ten ideas is not really about Christmas at all — it is about choosing decorations that sit on, hang over, or lie on surfaces instead of being fixed to them. Towels, a curtain, a basket, a tray, a mat, and a wreath on an over-door hook all come down in January in minutes, with no holes to fill, no adhesive to scrape off, and no marks for a checkout inspection to find. Pick the three or four ideas that suit your bathroom size and your budget, keep everything battery-powered near water, and enjoy a bathroom that feels properly festive all December and perfectly ordinary again by mid-January.
 
+## Shop this look: festive bathroom swaps
+
+- **Festive hand towel set** — the quickest bathroom swap there is. [Shop festive towels](https://www.amazon.com/s?k=christmas+hand+towel+set&tag={{AMAZON_TAG}})
+- **Mini artificial tree** — fits a windowsill or shelf. [Shop mini trees](https://www.amazon.com/s?k=mini+christmas+tree+tabletop&tag={{AMAZON_TAG}})
+- **Battery candles** — safe glow around the bath. [Shop battery candles](https://www.amazon.com/s?k=battery+operated+candles+for+bathroom&tag={{AMAZON_TAG}})
+- **Christmas shower curtain** — swapped back in January, no damage. [Shop shower curtains](https://www.amazon.com/s?k=christmas+shower+curtain&tag={{AMAZON_TAG}})
+- **Suction cup hooks** — hang a wreath or lights with no holes. [Shop suction hooks](https://www.amazon.com/s?k=suction+cup+hooks+for+bathroom&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### Can I hang fairy lights in a bathroom safely?

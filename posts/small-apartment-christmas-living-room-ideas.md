@@ -98,6 +98,14 @@ A small living room does not need less Christmas; it needs more considered Chris
 
 The test worth applying to every decoration in a small room is simple: does it make the room feel warmer without making it feel smaller? If the answer is yes, it stays. If it blocks a walkway, crowds a surface, or cannot be lifted away in one move, it does not belong in a tiny living room, however festive it looks in the shop.
 
+## Shop this look: small living room Christmas
+
+- **Festive cushion covers** — swap the covers, not the sofa. [Shop cushion covers](https://www.amazon.com/s?k=christmas+cushion+covers&tag={{AMAZON_TAG}})
+- **Warm fairy lights** — layered light instead of more decorations. [Shop fairy lights](https://www.amazon.com/s?k=warm+white+fairy+lights+indoor&tag={{AMAZON_TAG}})
+- **Chunky throw blanket** — makes the sofa the cosiest seat in the flat. [Shop chunky throws](https://www.amazon.com/s?k=chunky+knit+throw+blanket&tag={{AMAZON_TAG}})
+- **Tabletop mini tree** — a tree that fits the corner that wastes space. [Shop mini trees](https://www.amazon.com/s?k=mini+christmas+tree+tabletop&tag={{AMAZON_TAG}})
+- **Artificial garland** — real greenery feel on windows and shelves. [Shop garlands](https://www.amazon.com/s?k=artificial+christmas+garland&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### How do I fit a Christmas tree in a very small living room?

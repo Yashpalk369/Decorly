@@ -72,6 +72,14 @@ Pack your child-proofing kit with the decorations: the fishing line, adhesive ho
 
 Child-proofing is not about removing the magic; it is about moving it to where it can be enjoyed safely. An anchored tree, shatterproof lower branches, hidden cords, high fragile displays, safe plants, flameless candles, a yes-space, and a planned takedown give you a home that looks festive in photos and feels relaxed in real life. Your toddler gets to explore, your decorations survive December, and your landlord gets the flat back exactly as you found it. That is the whole point of renter-friendly decorating: a beautiful home that costs you nothing in damage, stress, or deposit deductions.
 
+## Shop this look: child-proof Christmas basics
+
+- **Shatterproof ornament set** — bounces instead of breaking on the lower branches. [Shop shatterproof ornaments](https://www.amazon.com/s?k=shatterproof+christmas+ornaments+set&tag={{AMAZON_TAG}})
+- **Tree stabilizer strap** — anchors the tree to the wall without drilling. [Shop tree straps](https://www.amazon.com/s?k=christmas+tree+stabilizer+strap+no+drill&tag={{AMAZON_TAG}})
+- **Cord cover** — hides light cables and battery packs from curious hands. [Shop cord covers](https://www.amazon.com/s?k=cord+cover+for+christmas+lights&tag={{AMAZON_TAG}})
+- **Flameless pillar candles** — candle glow with no flame near the fireplace. [Shop flameless candles](https://www.amazon.com/s?k=flameless+pillar+candles+with+timer&tag={{AMAZON_TAG}})
+- **Felt ornament set** — soft, light, and safe for the lowest branches. [Shop felt ornaments](https://www.amazon.com/s?k=felt+christmas+ornaments+for+kids&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 **Can I anchor a [Christmas tree](/small-apartment-christmas-tree-ideas/) in a rental without drilling?**

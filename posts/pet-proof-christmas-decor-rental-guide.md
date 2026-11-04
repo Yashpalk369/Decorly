@@ -84,6 +84,14 @@ Once a day, ideally before bed, walk the decorated rooms and check for fallen or
 
 Keep a small box by the tree for recovered ornaments and hooks, so the sweep is quick and the pieces are not lost. At the end of the season, pack the pet-proofing kit — fishing line, adhesive hooks, cord covers, museum putty — together with the decorations, so next December starts safe instead of starting from scratch.
 
+## Shop this look: pet-proof Christmas basics
+
+- **Tree stabilizer strap** — anchors the tree against a climbing cat or wagging tail. [Shop tree straps](https://www.amazon.com/s?k=christmas+tree+stabilizer+strap+no+drill&tag={{AMAZON_TAG}})
+- **Shatterproof ornament set** — safe for the lowest branches. [Shop shatterproof ornaments](https://www.amazon.com/s?k=shatterproof+christmas+ornaments+set&tag={{AMAZON_TAG}})
+- **Cord protector covers** — keep light cables out of chewing range. [Shop cord protectors](https://www.amazon.com/s?k=cord+protector+covers+for+pets&tag={{AMAZON_TAG}})
+- **Pet playpen barrier** — a tidy fence between pets and the tree. [Shop pet barriers](https://www.amazon.com/s?k=pet+playpen+barrier+indoor&tag={{AMAZON_TAG}})
+- **Flameless candles** — glow without a flame a pet can knock over. [Shop flameless candles](https://www.amazon.com/s?k=flameless+candles+with+timer&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 **Are real [Christmas tree](/small-apartment-christmas-tree-ideas/)s safe with pets?**
