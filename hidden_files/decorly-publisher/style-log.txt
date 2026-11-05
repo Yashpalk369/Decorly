@@ -47,3 +47,7 @@ greenery-decor: B Guide (2026-11-03 keep-real-christmas-tree-alive-small-apartme
 small-spaces: B Guide (2026-11-04 cozy-small-apartment-winter-guide)
 rental-friendly: B Guide (2026-11-04 prepare-rental-winter-guests-guide); also A Listicle renter-friendly-christmas-scent-ideas same day
 greenery-decor: A Listicle (2026-11-04 winter-greenery-decor-ideas-not-christmas); also C Roundup grow-lights-dark-winter-apartments-under-25 same day
+# 2026-11-05 run (2/1/2 split):
+small-spaces: A Listicle (2026-11-05 cozy-november-decor-small-apartments-ideas); also C Roundup winter-candle-holders-small-apartments-under-25 same day
+rental-friendly: B Guide (2026-11-05 protect-rental-floors-winter-salt-guide)
+greenery-decor: B Guide (2026-11-05 dry-citrus-flowers-winter-decor-guide); also A Listicle eucalyptus-decor-winter-ideas same day
