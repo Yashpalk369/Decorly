@@ -55,3 +55,7 @@ greenery-decor: B Guide (2026-11-05 dry-citrus-flowers-winter-decor-guide); also
 small-spaces: A Listicle (2026-11-06 colourful-maximalist-small-apartment-ideas); also B Guide striped-ceiling-bedroom-rental-guide same day
 rental-friendly: A Listicle (2026-11-06 renter-friendly-christmas-card-display-ideas); also C Roundup starburst-light-fixtures-small-rentals-under-25 same day
 greenery-decor: B Guide (2026-11-06 woven-basket-wall-trailing-plants-guide)
+# 2026-11-07 run (2/1/2 split):
+small-spaces: A Listicle (2026-11-07 neo-deco-living-room-ideas-small-apartments); also C Roundup art-deco-mirrors-small-spaces-under-25 same day
+rental-friendly: B Guide (2026-11-07 decorate-rental-front-door-christmas-guide)
+greenery-decor: A Listicle (2026-11-07 pearlescent-vase-styling-winter-greenery-ideas); also C Roundup mudcloth-planters-under-25 same day
