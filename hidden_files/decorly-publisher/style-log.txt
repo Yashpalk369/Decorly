@@ -59,3 +59,7 @@ greenery-decor: B Guide (2026-11-06 woven-basket-wall-trailing-plants-guide)
 small-spaces: A Listicle (2026-11-07 neo-deco-living-room-ideas-small-apartments); also C Roundup art-deco-mirrors-small-spaces-under-25 same day
 rental-friendly: B Guide (2026-11-07 decorate-rental-front-door-christmas-guide)
 greenery-decor: A Listicle (2026-11-07 pearlescent-vase-styling-winter-greenery-ideas); also C Roundup mudcloth-planters-under-25 same day
+# 2026-11-08 run (1/2/2 split):
+small-spaces: A Listicle (2026-11-08 small-apartment-christmas-bookshelf-styling-ideas)
+rental-friendly: A Listicle (2026-11-08 renter-friendly-winter-curtain-ideas-keep-heat-in); also C Roundup christmas-tree-toppers-small-trees-under-25 same day
+greenery-decor: A Listicle (2026-11-08 pinecone-decor-ideas-winter-cost-almost-nothing); also B Guide style-air-plants-small-apartment-winter-guide same day
