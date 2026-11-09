@@ -8,7 +8,7 @@ hero: hero-sage
 motif: 🪟
 ---
 
-Windows are where a rental loses most of its heat. A single-glazed or draughty window can make a whole room feel cold no matter how high you turn the heating up, and in a rental you cannot replace the glass, add secondary glazing, or fit a new frame. What you can do — without a drill, a screw, or a word to the landlord — is hang a better curtain. The right curtain at the right length can cut the cold draught from a window dramatically, and it changes the look of the room at the same time.
+Windows are where a rental loses most of its heat. A single-glazed or [draughty](/winter-proof-drafty-rental-guide/) window can make a whole room feel cold no matter how high you turn the heating up, and in a rental you cannot replace the glass, add secondary glazing, or fit a new frame. What you can do — without a drill, a screw, or a word to the landlord — is hang a better curtain. The right curtain at the right length can cut the cold draught from a window dramatically, and it changes the look of the room at the same time.
 
 Every idea below is removable, affordable, and deposit-safe. No drilling, no permanent fixings, and nothing that leaves a mark on the wall or the window frame. Most of them use things you already own or can buy for very little, and all of them come down in spring without a trace. Here are ten ways to make your rental's curtains work as hard in winter as your heating does.
 
@@ -58,7 +58,7 @@ Magnetic tape is cheap, removable, and leaves no mark if you use the adhesive ki
 
 Warm air rises, and the gap above a curtain rod is where it escapes — over the top of the curtain, down the cold glass, and back into the room as a draught. A pelmet blocks that path, and a renter can make one from a plain shelf. Mount a narrow shelf above the window on Command strips or a tension-rod bracket, hang the curtain from a rod fixed beneath the shelf, and the shelf becomes a pelmet that stops the warm air escaping over the top.
 
-Dress the shelf with a plant, a few books, or a string of fairy lights, and it looks like a styling choice rather than a draught fix. The shelf itself is removable and the fixing leaves no holes. If a shelf feels like too much, a simple fabric valance hung from the same rod achieves a similar effect for even less money.
+Dress the shelf with a plant, a few books, or a string of [fairy lights](/hang-christmas-lights-rental-guide/), and it looks like a styling choice rather than a draught fix. The shelf itself is removable and the fixing leaves no holes. If a shelf feels like too much, a simple fabric valance hung from the same rod achieves a similar effect for even less money.
 
 ### 7. Hang a blanket as a temporary winter curtain
 
@@ -96,7 +96,7 @@ Make it a habit rather than a chore — close them when you turn the lights on, 
 
 ### Can I hang thermal curtains in a rental without drilling?
 
-Yes. A tension rod wedges inside the window frame with spring pressure and needs no screws at all, and most thermal curtains are light enough for one. For heavier curtains, use a Command-hook rod holder rated for the weight, or a no-drill bracket that clamps onto the frame.
+Yes. A tension rod wedges inside the window frame with spring pressure and needs no screws at all, and most thermal curtains are light enough for one. For heavier curtains, use a Command-hook rod holder rated for the weight, or a [no-drill](/no-drill-wall-decor-renters/) bracket that clamps onto the frame.
 
 ### Do thermal curtains actually keep a room warmer?
 

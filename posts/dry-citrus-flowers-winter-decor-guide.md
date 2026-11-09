@@ -8,7 +8,7 @@ hero: hero-sage
 motif: 🍊
 ---
 
-Dried citrus and flowers are the hardest-working winter decor there is: they cost almost nothing, they last for months, they smell wonderful, and they suit every style from rustic to minimal. A garland of dried orange slices glows like stained glass in a window; a jar of dried lavender scents a whole room; a pressed flower in a frame looks like a shop bought it. The techniques are simple, but the details matter — slice thickness, oven temperature, and drying time are the difference between translucent amber slices and burnt crisps. Here is every method that actually works, in the order to try them.
+Dried citrus and flowers are the hardest-working winter decor there is: they cost almost nothing, they last for months, they smell wonderful, and they suit every style from rustic to minimal. A [garland](/renter-friendly-christmas-garland-ideas/) of dried orange slices glows like stained glass in a window; a jar of dried lavender scents a whole room; a pressed flower in a frame looks like a shop bought it. The techniques are simple, but the details matter — slice thickness, oven temperature, and drying time are the difference between translucent amber slices and burnt crisps. Here is every method that actually works, in the order to try them.
 
 ### 1. Slice citrus thin and evenly
 
@@ -16,7 +16,7 @@ Dried citrus and flowers are the hardest-working winter decor there is: they cos
 
 Everything starts with the slice. Cut oranges, lemons, or grapefruit into slices about 5 millimetres thick — roughly the width of a pencil — and keep them as even as you can, because uneven slices dry unevenly: thin edges burn while thick centres stay wet. A sharp knife and a steady hand beat a mandoline here, since citrus slips on a mandoline blade and the slices come out ragged. Pat each slice dry with a kitchen towel before it goes anywhere near heat; surface moisture is the main cause of sticky, darkened slices.
 
-Choose fruit that is firm and heavy for its size, which means more juice and better colour after drying. Blood oranges dry to a deep ruby that looks spectacular in a garland, lemons dry pale gold, and grapefruit makes large dramatic slices for wreaths. One orange yields about eight good slices, so a garland for a shelf needs two oranges and a garland for a doorway needs four — buy one extra, because a slice always tears or burns.
+Choose fruit that is firm and heavy for its size, which means more juice and better colour after drying. Blood oranges dry to a deep ruby that looks spectacular in a garland, lemons dry pale gold, and grapefruit makes large dramatic slices for [wreaths](/make-fresh-christmas-wreath-guide/). One orange yields about eight good slices, so a garland for a shelf needs two oranges and a garland for a doorway needs four — buy one extra, because a slice always tears or burns.
 
 ### 2. Oven-dry citrus low and slow
 
@@ -72,7 +72,7 @@ Sachets are also the answer to the question of what to do with a drying batch th
 
 Dried citrus and flowers last for months, but only if stored dry, dark, and still. Humidity is the enemy: a garland stored in a damp loft goes soft and mouldy, and flowers stored in sunlight fade to straw. After winter, pack garlands in tissue paper in a rigid box — never a bag, which crushes slices — and store flowers in airtight jars or boxes with a silica gel packet, in a dark cupboard. Handle dried flowers as little as possible, because every touch sheds petals and breaks stems.
 
-Properly stored, dried citrus lasts a full year and often longer, which means this winter's garland can come back next November without a second oven session. Dried flowers last a year too, though their colour softens — lavender keeps its scent long after its purple fades, and roses keep their shape long after their red dulls. When a piece finally sheds too much to display, it still has one last life: crumbled into a simmer pot, where looks no longer matter and scent is everything.
+Properly stored, dried citrus lasts a full year and often longer, which means this winter's garland can come back next November without a second oven session. Dried flowers last a year too, though their colour softens — lavender keeps its scent long after its purple fades, and roses keep their shape long after their red dulls. When a piece finally sheds too much to display, it still has one last life: crumbled into a [simmer pot](/renter-friendly-christmas-scent-ideas/), where looks no longer matter and scent is everything.
 
 ## Start with One Orange
 

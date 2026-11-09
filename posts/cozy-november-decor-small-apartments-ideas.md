@@ -14,7 +14,7 @@ November is the awkward month for small apartments. The pumpkins have gone soft,
 
 ![A small apartment sofa dressed with a chunky knit throw in warm cream](/assets/cozy-november-decor-small-apartments-ideas/idea-01.jpg)
 
-Nothing says November faster than a chunky knit throw folded over the sofa arm. It is the single highest-impact swap in a small flat, because it changes both how the room looks and how it feels to sit in — texture reads as temperature, and a heavy knit instantly makes a light summer sofa look winter-ready. Choose one warm neutral — cream, oatmeal, or rust — rather than a loud pattern, so the throw works with everything else you already own and survives the move into December without clashing with Christmas colours.
+Nothing says November faster than a [chunky knit throw](/cozy-throw-blankets-renters-under-25/) folded over the sofa arm. It is the single highest-impact swap in a small flat, because it changes both how the room looks and how it feels to sit in — texture reads as temperature, and a heavy knit instantly makes a light summer sofa look winter-ready. Choose one warm neutral — cream, oatmeal, or rust — rather than a loud pattern, so the throw works with everything else you already own and survives the move into December without clashing with Christmas colours.
 
 In a small apartment, one good throw beats three mediocre ones. Drape it over the arm of the sofa or the back of your favourite chair, not folded in a basket on the floor where it eats precious square footage. If you already own a warm throw, this idea costs nothing at all: wash it, fold it visibly over the sofa, and let it do the work it was already doing, only on display. For renters, throws are the perfect decor because they leave no trace — no holes, no adhesive, no argument with a landlord — and they pack into one bag when spring comes.
 
@@ -24,13 +24,13 @@ In a small apartment, one good throw beats three mediocre ones. Drape it over th
 
 November evenings arrive early, and a small flat lit by one overhead bulb feels like an office after dark. Switch the ceiling light off and light candles instead — three pillar candles of different heights on a tray on the coffee table, or a cluster of tealights along a shelf. The tray matters: it corrals the candles into one deliberate display, protects the surface underneath, and lets you move the whole arrangement in one lift when you need the table.
 
-Warm white light is the whole trick. Cool white bulbs make a small room feel clinical, while candlelight and warm fairy lights make it feel like a place you want to stay in. If your tenancy restricts open flames, battery-operated pillar candles with timers give you the same glow and switch themselves on every evening at the same time — one less thing to remember in the dark months. Keep the ritual simple: same candles, same time, every evening, and November starts to feel cosy on purpose rather than dark by accident.
+Warm white light is the whole trick. Cool white bulbs make a small room feel clinical, while candlelight and warm fairy lights make it feel like a place you want to stay in. If your tenancy restricts open flames, [battery-operated](/battery-christmas-candles-small-apartments-under-20/) pillar candles with timers give you the same glow and switch themselves on every evening at the same time — one less thing to remember in the dark months. Keep the ritual simple: same candles, same time, every evening, and November starts to feel cosy on purpose rather than dark by accident.
 
 ### 3. Hang a dried orange garland
 
 ![A dried orange slice garland draped along a small apartment shelf](/assets/cozy-november-decor-small-apartments-ideas/idea-03.jpg)
 
-A dried orange garland is November decor at its best: it looks autumnal now, it looks festive in December, and it costs almost nothing to make. Slice oranges thin, dry them low in the oven, and thread them on twine with cinnamon sticks and a few sprigs of rosemary. Drape the garland along a shelf, a mirror frame, or a curtain rail — anywhere it catches the light, because dried orange slices glow like stained glass when the sun hits them.
+A dried orange garland is November decor at its best: it looks autumnal now, it looks festive in December, and it costs almost nothing to make. Slice oranges thin, dry them low in the oven, and thread them on twine with cinnamon sticks and a few sprigs of rosemary. Drape the garland along a shelf, a mirror frame, or a curtain rail — anywhere it catches the light, because [dried orange slices](/dry-citrus-flowers-winter-decor-guide/) glow like stained glass when the sun hits them.
 
 In a small flat, a garland is decor that takes up no surface at all, which is exactly why it works. It uses vertical space you were not using, it adds colour and scent without a single new object on a table, and it comes down in one lift. Make it now and it is already done for December too: the same garland moves to the mantel, the doorway, or the tree without a second thought. If you would rather buy than bake, dried orange garlands are widely sold in autumn — but the homemade version smells better, and the scent is half the point.
 
@@ -62,7 +62,7 @@ Layering works best when the top rug is smaller than the one beneath it, with a 
 
 ![A small apartment kitchen shelf styled with soup bowls, herbs and a simmer pot](/assets/cozy-november-decor-small-apartments-ideas/idea-07.jpg)
 
-November is soup season, and a small kitchen can celebrate it without a single decorative purchase. Stack your prettiest bowls on an open shelf, put a wooden board and a jar of dried herbs where you can see them, and keep a simmer pot — water, orange peel, cinnamon, cloves — on the stove in the evenings. The kitchen starts to look like a place where good food happens, because it is one, and the scent does the decorating for you.
+November is soup season, and a small kitchen can celebrate it without a single decorative purchase. Stack your prettiest bowls on an open shelf, put a wooden board and a jar of dried herbs where you can see them, and keep a [simmer pot](/renter-friendly-christmas-scent-ideas/) — water, orange peel, cinnamon, cloves — on the stove in the evenings. The kitchen starts to look like a place where good food happens, because it is one, and the scent does the decorating for you.
 
 This is decor that earns its place, which matters in a small kitchen where every object competes for counter space. A bowl stack is storage that looks like styling; a herb jar is an ingredient that looks like decor; a simmer pot is dinner preparation that smells like a candle. Nothing here is purely ornamental, so nothing here wastes space — the small-apartment test every November idea should pass.
 

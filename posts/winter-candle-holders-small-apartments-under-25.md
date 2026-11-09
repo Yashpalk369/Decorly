@@ -24,7 +24,7 @@ Budget tip: look for [black metal lanterns](https://www.amazon.com/s?k=black+met
 
 ![A pair of brass taper candle holders with tall candles on a small dining table](/assets/winter-candle-holders-small-apartments-under-25/idea-02.jpg)
 
-Why it works: brass taper holders lift candlelight to eye level, which is where it flatters a room most, and brass itself catches and throws the light around in a way no other material does. A pair on a dining table turns an ordinary weeknight dinner into something that feels like an occasion, for the price of a takeaway.
+Why it works: brass taper holders lift candlelight to eye level, which is where it flatters a room most, and brass itself catches and throws the light around in a way no other material does. A pair on a [dining table](/small-apartment-christmas-table-setting-ideas/) turns an ordinary weeknight dinner into something that feels like an occasion, for the price of a takeaway.
 
 Where it fits: on a small dining table, a console, or a mantel if your rental has one. Tapers are slim, so a pair of holders takes up almost no surface — the whole display is narrower than a dinner plate.
 
@@ -36,7 +36,7 @@ Budget tip: solid brass costs more, but brass-finished holders look identical in
 
 Why it works: a wooden tray corrals several pillar candles into one display, protects the surface underneath from wax and heat, and adds a warm natural texture that suits winter perfectly. Three pillars of different heights on one tray is the classic stylist arrangement, and the tray is what makes it look deliberate instead of accidental.
 
-Where it fits: on a coffee table as the room's centrepiece, or on a dining table as a permanent winter display that dinner simply works around. When you need the table, the whole tray lifts away in one move.
+Where it fits: on a coffee table as the room's [centrepiece](/renter-friendly-christmas-centerpiece-ideas/), or on a dining table as a permanent winter display that dinner simply works around. When you need the table, the whole tray lifts away in one move.
 
 Budget tip: buy the tray and the candles separately — bundled sets usually overcharge for the candles. Look for [wooden candle trays](https://www.amazon.com/s?k=wooden+candle+tray+decorative&tag={{AMAZON_TAG}}) in mango or acacia wood, which are sturdy, warm-toned, and cheap for the quality.
 
@@ -74,7 +74,7 @@ Budget tip: sets of three are almost always better value than singles, and gold-
 
 ![Candles arranged on a rustic wood slice plate with pinecones](/assets/winter-candle-holders-small-apartments-under-25/idea-07.jpg)
 
-Why it works: a wood slice — a cross-section of a log, bark edge and all — is a candle plate that looks like it came from a cabin, and it brings a natural, woodland texture into a flat that otherwise has none. Pair it with a pillar candle and a pinecone or two, and you have a winter centrepiece that cost less than a pizza.
+Why it works: a wood slice — a cross-section of a log, bark edge and all — is a candle plate that looks like it came from a cabin, and it brings a natural, woodland texture into a flat that otherwise has none. Pair it with a pillar candle and a [pinecone](/pinecone-decor-ideas-winter-cost-almost-nothing/) or two, and you have a winter centrepiece that cost less than a pizza.
 
 Where it fits: on a coffee table, a dining table, or an entryway console as a seasonal display. The bark edge contains wax drips and gives the arrangement a finished border, so the candles never look like they were just set down.
 
@@ -112,7 +112,7 @@ A heavy holder with a wide base — stone, concrete, or a lantern with glass pan
 
 ### Can I use candle holders if my tenancy bans open flames?
 
-Yes — every holder on this list works just as well with a battery-operated pillar or tealight, and lanterns and hurricanes in particular look identical with a flickering LED candle inside. Check your tenancy terms first, and use LED candles wherever flames are restricted.
+Yes — every holder on this list works just as well with a [battery-operated](/battery-christmas-candles-small-apartments-under-20/) pillar or tealight, and lanterns and hurricanes in particular look identical with a flickering LED candle inside. Check your tenancy terms first, and use LED candles wherever flames are restricted.
 
 ### How many candle holders does a small apartment need?
 

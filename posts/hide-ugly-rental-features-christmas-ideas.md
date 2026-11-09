@@ -14,7 +14,7 @@ Every rental has them: the stained patch the landlord never repainted, the radia
 
 ![A Christmas garland draped over an old rental radiator in a small living room](/assets/hide-ugly-rental-features-christmas-ideas/idea-01.jpg)
 
-Old radiators are the classic rental eyesore: rusty, chipped, and impossible to ignore in winter when they are also the warmest object in the room. A garland draped along the top turns it into a display shelf instead. The greenery hides the rust, the ornaments distract the eye, and the radiator's own heat gently releases the scent of pine into the room.
+Old radiators are the classic rental eyesore: rusty, chipped, and impossible to ignore in winter when they are also the warmest object in the room. A [garland](/renter-friendly-christmas-garland-ideas/) draped along the top turns it into a display shelf instead. The greenery hides the rust, the ornaments distract the eye, and the radiator's own heat gently releases the scent of pine into the room.
 
 Keep the garland light and the ornaments unbreakable — a radiator gets hot, and anything resting on it needs to tolerate warmth. Avoid real candles here entirely, and keep fabric and paper away from the hottest sections. When January comes, the garland lifts off and the radiator is exactly as ugly as before, but your deposit is untouched and December looked wonderful.
 
@@ -30,7 +30,7 @@ Use a single removable hook above the box and a hanging with a rod pocket or loo
 
 ![Paper stars hung over a stained rental wall as Christmas decoration](/assets/hide-ugly-rental-features-christmas-ideas/idea-03.jpg)
 
-A stain or scuff that the landlord never fixed is hard to hide with furniture, because furniture does not reach wall height. A cluster of paper stars, hung at different heights from removable hooks, does. The stars draw the eye to their shapes and shadows, and the stained patch behind them simply stops registering. It is the oldest decorating trick in the book — give the eye something better to look at — and at Christmas it reads as festive rather than strategic.
+A stain or scuff that the landlord never fixed is hard to hide with furniture, because furniture does not reach wall height. A cluster of paper stars, hung at different heights from [removable hooks](/command-hook-christmas-decor-renters-under-20/), does. The stars draw the eye to their shapes and shadows, and the stained patch behind them simply stops registering. It is the oldest decorating trick in the book — give the eye something better to look at — and at Christmas it reads as festive rather than strategic.
 
 Paper stars are ideal because they are light, cheap, and flat enough to hang close to the wall. Hang five to seven in a loose cluster over the problem area, varying the sizes, and keep the colour palette to one or two shades so the display reads as intentional. Removable hooks leave no mark, and the stars fold flat for storage, which matters in a flat with no spare cupboard.
 
@@ -62,7 +62,7 @@ Test one decal in an inconspicuous corner first, and leave it for a day, to make
 
 ![A Christmas wreath on a scuffed rental front door](/assets/hide-ugly-rental-features-christmas-ideas/idea-07.jpg)
 
-Scuffed doors are almost universal in rentals — years of shoes, keys, and moving furniture leave their mark at exactly hand height. A wreath hung on a removable over-door hook covers the worst of it and turns the door into the festive entrance it should be. A full, lush wreath covers more door than a sparse one, so choose fullness over fanciness, and hang it at eye level where the scuffs are.
+Scuffed doors are almost universal in rentals — years of shoes, keys, and moving furniture leave their mark at exactly hand height. A [wreath](/no-drill-christmas-wreath-hanging-renters/) hung on a removable over-door hook covers the worst of it and turns the door into the festive entrance it should be. A full, lush wreath covers more door than a sparse one, so choose fullness over fanciness, and hang it at eye level where the scuffs are.
 
 An over-door hook needs no nails and no adhesive, which makes it the most deposit-safe hanging method in the whole flat. If your door has a peephole or a knocker that a wreath would cover, hang the wreath slightly off-centre or choose a smaller one — blocking a peephole is a security issue, not just a decorating one. Inside doors work too: a wreath on a bedroom door hides scuffs just as well as one on the front door.
 
@@ -78,7 +78,7 @@ Build the village on a tray or a board so the whole thing lifts out in one motio
 
 ![Festive bows tied on tired rental kitchen cabinet handles](/assets/hide-ugly-rental-features-christmas-ideas/idea-09.jpg)
 
-Tired cabinet doors — chipped, stained, or just dated — are hard to hide because there are so many of them. The trick is not to hide them but to distract from them: tie a small festive bow to each handle, or hang a tiny ornament from a few of them, and the eye reads "Christmas kitchen" instead of "old kitchen". The bows cost almost nothing, take ten minutes to tie, and transform the whole room's feel.
+Tired cabinet doors — chipped, stained, or just dated — are hard to hide because there are so many of them. The trick is not to hide them but to distract from them: tie a small festive bow to each handle, or hang a tiny ornament from a few of them, and the eye reads "[Christmas kitchen](/small-apartment-christmas-kitchen-decor-ideas/)" instead of "old kitchen". The bows cost almost nothing, take ten minutes to tie, and transform the whole room's feel.
 
 Use ribbon in one colour for a coordinated look, and tie the bows to the handles rather than sticking anything to the doors themselves. Avoid adhesive on cabinet doors — it can pull finish off when removed, which is exactly the deposit damage you are trying to avoid. When the bows come down in January, the cabinets are exactly as they were, and the kitchen feels strangely bare, which is how you know the trick worked.
 

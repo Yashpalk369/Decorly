@@ -38,7 +38,7 @@ Hang the wreath with a removable adhesive hook or an over-the-door hanger, both 
 
 ![A eucalyptus garland runner laid along a small dining table](/assets/eucalyptus-decor-winter-ideas/idea-04.jpg)
 
-A eucalyptus runner is the easiest festive table there is: lay stems end to end down the centre of the table, overlapping them so no gaps show, and add candles or a few dried orange slices if you like. There is no arranging, no florist foam, no water to spill on the tablecloth — just greenery, laid flat, looking like you hired someone.
+A eucalyptus runner is the easiest festive table there is: lay stems end to end down the centre of the table, overlapping them so no gaps show, and add candles or a few [dried orange slices](/dry-citrus-flowers-winter-decor-guide/) if you like. There is no arranging, no florist foam, no water to spill on the tablecloth — just greenery, laid flat, looking like you hired someone.
 
 For a small dining table, a runner beats a centrepiece because it uses no height and no width beyond the table's centre line — plates, glasses, and elbows all fit around it. Fresh stems last a dinner party and several days after; dried stems last the whole season and shed less on the table. Either way, the runner comes off the table in one lift when the meal is over, and the table is a table again.
 
@@ -46,7 +46,7 @@ For a small dining table, a runner beats a centrepiece because it uses no height
 
 ![Small sprigs of eucalyptus tucked between books on a bookshelf](/assets/eucalyptus-decor-winter-ideas/idea-05.jpg)
 
-A bookshelf is the most overlooked place for greenery, and eucalyptus sprigs are the perfect shelf plant because they need no pot, no soil, and no watering. Tuck a short sprig upright between books, lay one across a stack of horizontal books, or stand a small bunch in a jar on a shelf end. The soft green breaks up rows of book spines and makes a shelf look styled rather than merely stored.
+A [bookshelf](/small-apartment-christmas-bookshelf-styling-ideas/) is the most overlooked place for greenery, and eucalyptus sprigs are the perfect shelf plant because they need no pot, no soil, and no watering. Tuck a short sprig upright between books, lay one across a stack of horizontal books, or stand a small bunch in a jar on a shelf end. The soft green breaks up rows of book spines and makes a shelf look styled rather than merely stored.
 
 This is also the best use for the short offcuts left over from bigger arrangements — the stems too short for a vase become shelf sprigs, so one bunch decorates the bathroom, the table, and the bookshelf. Replace shelf sprigs when they dry out completely and start shedding, which takes about a month, and keep them away from open flames, because dried eucalyptus is flammable and a candle on the same shelf is a bad combination.
 
@@ -70,7 +70,7 @@ Dried eucalyptus lasts for months in a bedroom, sheds very little if undisturbed
 
 ![Eucalyptus garland wrapped around a curtain rod in a small apartment](/assets/eucalyptus-decor-winter-ideas/idea-08.jpg)
 
-In a small flat with no mantel and no staircase, the curtain rod is the garland spot — and eucalyptus garland on a curtain rod frames a window in soft green that no curtain can match. Wire or tie small bunches along a length of twine to make a garland, then drape or wrap it along the rod, letting the ends trail slightly at each side. The window light shines through the leaves, and the whole window looks dressed even with the curtains open.
+In a small flat with no mantel and no staircase, the curtain rod is the garland spot — and [eucalyptus garland](/renter-friendly-christmas-garland-ideas/) on a curtain rod frames a window in soft green that no curtain can match. Wire or tie small bunches along a length of twine to make a garland, then drape or wrap it along the rod, letting the ends trail slightly at each side. The window light shines through the leaves, and the whole window looks dressed even with the curtains open.
 
 The same technique works on a stair rail, a shelf edge, or a bed frame in a flat that has them. Fresh garland lasts about two weeks before it starts to dry — and drying on the rod is fine, because dried eucalyptus garland looks just as good as fresh, only greyer. This is the idea to try when you want a room to feel festive without a single Christmas decoration in sight.
 
@@ -98,7 +98,7 @@ The real lesson of eucalyptus is not any single idea on this list — it is that
 
 ### How long does fresh eucalyptus last?
 
-In a vase with weekly water changes, fresh eucalyptus lasts three to four weeks. In a shower bundle it lasts two to three weeks before the scent fades, and as a table runner it stays fresh-looking for about a week before drying gracefully in place.
+In a vase with weekly water changes, fresh eucalyptus lasts three to four weeks. In a shower bundle it lasts two to three weeks before the scent fades, and as a [table runner](/small-apartment-christmas-table-setting-ideas/) it stays fresh-looking for about a week before drying gracefully in place.
 
 ### Is eucalyptus safe around pets?
 

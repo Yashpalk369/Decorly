@@ -74,7 +74,7 @@ Real greenery also solves the small-room problem of decorations looking cheap. P
 
 At Christmas, the living room's job is to be the place everyone wants to sit, and in a small flat that means the sofa has to work overtime. Layer it like a bed: a soft throw folded over the back, a second blanket in a basket beside it, cushions at both ends so two people can curl up properly. The goal is a sofa that looks so inviting that guests choose it over their phones.
 
-This is also the cheapest way to make the room feel festive, because most of it uses things you already own. A throw you already have, in a warm colour, does more work than a bag of new ornaments. Add one new element — a festive cushion cover, a chunky knit throw — and the whole arrangement reads as intentional. Keep a basket of blankets by the sofa all December, and the room becomes the kind of place where people linger, which is the real test of Christmas decorating.
+This is also the cheapest way to make the room feel festive, because most of it uses things you already own. A throw you already have, in a warm colour, does more work than a bag of new ornaments. Add one new element — a festive cushion cover, a [chunky knit throw](/cozy-throw-blankets-renters-under-25/) — and the whole arrangement reads as intentional. Keep a basket of blankets by the sofa all December, and the room becomes the kind of place where people linger, which is the real test of Christmas decorating.
 
 ### 9. Let the television wall do festive work
 
@@ -90,7 +90,7 @@ Keep it simple and symmetrical. A garland that sags in the middle or lights that
 
 The most memorable part of a small living room at Christmas is rarely the biggest decoration. It is the tiny ritual corner: a candle on the windowsill you light every evening, a festive mug that only comes out in December, a small stack of Christmas books or a puzzle on the side table. These small, personal touches are what make the room feel like your Christmas, not a catalogue's.
 
-Pick one corner — the windowsill, the end of a shelf, the side table by the sofa — and give it one job: the evening candle, the advent calendar, the place where the Christmas cards go. Keep it small enough that it never gets in the way, and make it something you actually use every day. A ritual corner costs almost nothing, takes up almost no space, and is the thing you will miss most when January comes and the decorations go back into their box.
+Pick one corner — the windowsill, the end of a shelf, the side table by the sofa — and give it one job: the evening candle, the [advent calendar](/small-apartment-advent-calendar-display-ideas/), the place where the [Christmas cards](/renter-friendly-christmas-card-display-ideas/) go. Keep it small enough that it never gets in the way, and make it something you actually use every day. A ritual corner costs almost nothing, takes up almost no space, and is the thing you will miss most when January comes and the decorations go back into their box.
 
 ## Small Room, Full Christmas
 

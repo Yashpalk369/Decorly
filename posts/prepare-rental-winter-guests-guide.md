@@ -46,7 +46,7 @@ Keep it compact — a single tray, not a whole counter — and put it somewhere 
 
 ![A rental entryway ready for winter guests with a boot tray, coats on hooks and a warm doormat](/assets/prepare-rental-winter-guests-guide/idea-05.jpg)
 
-Winter guests arrive wet, and the entryway is where that wetness either stays contained or spreads through the flat. Set a boot tray or an old towel by the door, hang removable hooks for coats (one per guest, plus one for you), and put a sturdy doormat down. Guests who can take off wet boots and hang a dripping coat the moment they arrive feel looked after, and your floors stay dry.
+Winter guests arrive wet, and the [entryway](/small-apartment-winter-entryway-ideas/) is where that wetness either stays contained or spreads through the flat. Set a [boot tray](/protect-rental-floors-winter-salt-guide/) or an old towel by the door, hang removable hooks for coats (one per guest, plus one for you), and put a sturdy [doormat](/renter-friendly-christmas-doormats-under-25/) down. Guests who can take off wet boots and hang a dripping coat the moment they arrive feel looked after, and your floors stay dry.
 
 If your entryway is tiny — a hallway nook, a corner by the door — a single tray and a row of hooks is still enough. Add a small bench or sturdy stool if you have one, because sitting to take boots off is much easier than balancing in a doorway. Keep a spare umbrella and a couple of old towels by the door for guests who arrive in rain. And clear the entryway before guests arrive: it is the first thing they see, and a cluttered entrance makes the whole flat feel smaller than it is.
 

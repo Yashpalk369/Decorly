@@ -8,7 +8,7 @@ hero: hero-clay
 motif: 🧂
 ---
 
-Winter is the season that eats rental deposits. Every time someone walks in with snowy boots, they track in a slurry of water, grit, and road salt — and salt is the quiet villain, because it does not just dirty a floor, it damages it. Salt crystals scratch wood, stain grout, eat into laminate seams, and leave white rings on stone that no amount of mopping fully removes. Landlords notice floors first at checkout, and "winter damage" is one of the few deductions that is genuinely hard to argue. The good news: protecting a rental floor costs almost nothing, needs no landlord permission, and starts at the front door, not with a renovation.
+Winter is the season that eats [rental deposits](/remove-holiday-decor-rental-no-damage-guide/). Every time someone walks in with snowy boots, they track in a slurry of water, grit, and road salt — and salt is the quiet villain, because it does not just dirty a floor, it damages it. Salt crystals scratch wood, stain grout, eat into laminate seams, and leave white rings on stone that no amount of mopping fully removes. Landlords notice floors first at checkout, and "winter damage" is one of the few deductions that is genuinely hard to argue. The good news: protecting a rental floor costs almost nothing, needs no landlord permission, and starts at the front door, not with a renovation.
 
 ### 1. Start with a boot tray at the door
 
@@ -46,7 +46,7 @@ For wood floors, wring the mop nearly dry — standing water is wood's other win
 
 ![A heavy-duty doormat layered over carpet in a rental entryway](/assets/protect-rental-floors-winter-salt-guide/idea-05.jpg)
 
-Carpeted entryways are the hardest rental floors to protect, because carpet absorbs salt water instead of showing it — the damage hides until it smells or stains permanently. The answer is a removable layer: a heavy-duty, low-pile doormat or a washable carpet tile laid over the rental carpet for the whole winter season. It takes the salt, it takes the water, and in spring it lifts away to reveal the carpet underneath in the condition it was in November.
+Carpeted [entryways](/small-apartment-winter-entryway-ideas/) are the hardest rental floors to protect, because carpet absorbs salt water instead of showing it — the damage hides until it smells or stains permanently. The answer is a removable layer: a heavy-duty, low-pile [doormat](/renter-friendly-christmas-doormats-under-25/) or a washable carpet tile laid over the rental carpet for the whole winter season. It takes the salt, it takes the water, and in spring it lifts away to reveal the carpet underneath in the condition it was in November.
 
 Choose a mat with a waterproof or rubber backing so meltwater does not soak straight through to the carpet below — a pretty coir mat without a backing is decoration, not protection. Shake the mat outside weekly and hose it down monthly, because a saturated mat stops absorbing and starts holding salty water against the carpet it was meant to protect. If your entryway carpet is already stained from a previous winter, a dark mat also hides the old damage while preventing new damage, which is a deposit-saving double win.
 

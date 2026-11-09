@@ -34,9 +34,9 @@ Budget tip: tapers are often sold in pairs, so two pairs give you a full table d
 
 ![Battery-operated tealights glowing inside festive holders on a small apartment table](/assets/battery-christmas-candles-small-apartments-under-20/idea-03.jpg)
 
-Why it works: tealights are the workhorse of Christmas lighting — tiny, cheap, and able to go anywhere. A multipack of battery tealights lets you scatter light across the whole flat: inside lanterns, along a garland, in jars on the windowsill, inside a glass cloche. Individually they are subtle; together they create the layered glow that makes a small room feel like Christmas.
+Why it works: tealights are the workhorse of Christmas lighting — tiny, cheap, and able to go anywhere. A multipack of battery tealights lets you scatter light across the whole flat: inside [lanterns](/winter-candle-holders-small-apartments-under-25/), along a [garland](/renter-friendly-christmas-garland-ideas/), in jars on the windowsill, inside a glass cloche. Individually they are subtle; together they create the layered glow that makes a small room feel like Christmas.
 
-Where it fits: everywhere a real tealight would be a risk — inside a paper lantern, under a glass dome, in a stocking display, or tucked into a wreath. Because they are small and light, they also travel: from the table at dinner to the bathroom shelf for a bath, to the bedroom for the evening.
+Where it fits: everywhere a real tealight would be a risk — inside a paper lantern, under a glass dome, in a [stocking display](/christmas-stocking-holders-no-mantel/), or tucked into a wreath. Because they are small and light, they also travel: from the table at dinner to the bathroom shelf for a bath, to the bedroom for the evening.
 
 Budget tip: buy the largest multipack you can find under $20, since you will use more tealights than you expect. [Battery tealight multipacks](https://www.amazon.com/s?k=battery+operated+tealight+candles+bulk&tag={{AMAZON_TAG}}) with a simple on-off switch are cheapest; remote-controlled ones cost a little more but save endless fiddling.
 
@@ -64,7 +64,7 @@ Budget tip: a lantern with a candle included is usually cheaper than buying the 
 
 ![Battery window candles glowing in the windows of a small apartment at Christmas](/assets/battery-christmas-candles-small-apartments-under-20/idea-06.jpg)
 
-Why it works: window candles are a classic Christmas look — a single glowing candle in each window, visible from the street — and the battery versions finally make it practical. They clip or suction to the window, run on a timer, and glow every evening without a single trailing cable or a flame near a curtain. From outside, a row of lit windows looks like a proper Christmas house; from inside, the glow is soft and warm.
+Why it works: [window candles](/christmas-window-candles-small-apartments-under-25/) are a classic Christmas look — a single glowing candle in each window, visible from the street — and the battery versions finally make it practical. They clip or suction to the window, run on a timer, and glow every evening without a single trailing cable or a flame near a curtain. From outside, a row of lit windows looks like a proper Christmas house; from inside, the glow is soft and warm.
 
 Where it fits: one in each front-facing window, or a pair flanking a single large window in a small flat. Because they are slim and self-contained, they suit windowsills of any depth, and they are the rare decoration that is enjoyed more by passers-by than by you — which is part of the charm.
 

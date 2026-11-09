@@ -8,7 +8,7 @@ hero: hero-umber
 motif: 🌲
 ---
 
-A real Christmas tree in a small apartment is a commitment: it smells wonderful, it looks wonderful, and it will punish you for every mistake by dropping needles across a floor you have to vacuum by hand. The good news is that keeping a real tree alive is not complicated — it is mostly about water, placement, and choosing the right tree in the first place. Follow these eight steps and your tree will still be green, fragrant, and firmly attached to its needles on New Year's Day.
+A real Christmas tree in a small apartment is a commitment: it smells wonderful, it looks wonderful, and it will punish you for every mistake by dropping needles across a floor you have to vacuum by hand. The good news is that keeping a real tree alive is not complicated — it is mostly about water, placement, and [choosing the right tree](/small-apartment-christmas-tree-ideas/) in the first place. Follow these eight steps and your tree will still be green, fragrant, and firmly attached to its needles on New Year's Day.
 
 ### Step 1. Choose a fresh tree, not just a pretty one
 
@@ -54,7 +54,7 @@ Plain tap water is all a tree needs. The old additives — sugar, aspirin, bleac
 
 ![Misting the branches of a real Christmas tree to keep needles fresh](/assets/keep-real-christmas-tree-alive-small-apartment-guide/idea-06.jpg)
 
-Small apartments in winter are dry — central heating, sealed windows, and small rooms all push the humidity down, and dry air pulls moisture out of needles faster than the trunk can replace it. Misting the branches with a spray bottle every day or two slows this down noticeably, especially on the outer branches that dry first. Mist in the morning so the branches dry during the day, and keep the spray light rather than drenching.
+Small apartments in winter are dry — central heating, sealed windows, and small rooms all push the [humidity](/humidify-houseplants-without-humidifier/) down, and dry air pulls moisture out of needles faster than the trunk can replace it. Misting the branches with a spray bottle every day or two slows this down noticeably, especially on the outer branches that dry first. Mist in the morning so the branches dry during the day, and keep the spray light rather than drenching.
 
 Misting also helps with the other small-apartment tree problem: dust and static. A light mist settles the dust that collects on branches in a small, lived-in room, and it keeps the tree smelling fresh rather than dusty. Be careful with electrical decorations — mist with the lights off, let the branches dry before switching them back on, and never mist directly onto plugs or transformers. A few minutes of care here buys you a week or more of extra green.
 
@@ -64,7 +64,7 @@ Misting also helps with the other small-apartment tree problem: dust and static.
 
 Heavy ornaments are the enemy of a small-apartment tree, because small trees have thinner, weaker branches than the big trees they imitate. A heavy glass bauble on a thin branch bends it downward, stresses the branch, and accelerates needle loss on that branch. Use lightweight ornaments — plastic, felt, wood, and paper — on the outer and upper branches, and save anything heavy for the thickest branches near the trunk, where it can be supported properly.
 
-String the lights before the ornaments, and keep the light strings light too — LED strings are far lighter than old incandescent ones and run cool, which matters for a tree that is already fighting dry air. When you decorate, work from the inside out and the top down, so you are not reaching through finished branches and snapping them. A tree decorated gently lasts longer than one decorated enthusiastically, and it looks better too, because the branches hold their natural shape.
+String the lights before the ornaments, and keep the [light strings](/hang-christmas-lights-rental-guide/) light too — LED strings are far lighter than old incandescent ones and run cool, which matters for a tree that is already fighting dry air. When you decorate, work from the inside out and the top down, so you are not reaching through finished branches and snapping them. A tree decorated gently lasts longer than one decorated enthusiastically, and it looks better too, because the branches hold their natural shape.
 
 ### Step 8. Know when to let go, and recycle properly
 

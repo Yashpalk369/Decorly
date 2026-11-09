@@ -8,7 +8,7 @@ hero: hero-moss
 motif: 🪝
 ---
 
-Command hooks are the renter's best friend at Christmas. They hold garlands, wreaths, stockings, and lights, they peel off cleanly in January, and they cost a fraction of the deposit you would lose from a single nail hole. But not all hooks are equal, and the wrong one — too weak for a garland, too visible under a wreath, the wrong shape for a light string — is the difference between a display that stays up all December and one that crashes down at midnight. Here are nine hook-based finds under $20 that actually work for renters.
+Command hooks are the renter's best friend at Christmas. They hold garlands, wreaths, [stockings](/christmas-stocking-holders-no-mantel/), and lights, they peel off cleanly in January, and they cost a fraction of the deposit you would lose from a single nail hole. But not all hooks are equal, and the wrong one — too weak for [a garland](/renter-friendly-christmas-garland-ideas/), too visible under a wreath, the wrong shape for a light string — is the difference between a display that stays up all December and one that crashes down at midnight. Here are nine hook-based finds under $20 that actually work for renters.
 
 ### 1. Medium utility hooks for garlands
 
@@ -44,7 +44,7 @@ Budget tip: a pack of small wire hooks is usually under $10, and they are useful
 
 ![A large Christmas wreath hung with removable picture-hanging strips in a rental](/assets/command-hook-christmas-decor-renters-under-20/idea-04.jpg)
 
-Why it works: a heavy wreath is the decoration most likely to defeat a standard hook, and picture-hanging strips are the answer. They distribute the weight across a wide adhesive area, hold up to 7 kilograms in pairs, and remove cleanly without pulling paint. Two strips on the back of a wreath hanger, or directly on a lightweight wreath frame, will hold even a full, lush wreath all December.
+Why it works: [a heavy wreath](/no-drill-christmas-wreath-hanging-renters/) is the decoration most likely to defeat a standard hook, and picture-hanging strips are the answer. They distribute the weight across a wide adhesive area, hold up to 7 kilograms in pairs, and remove cleanly without pulling paint. Two strips on the back of a wreath hanger, or directly on a lightweight wreath frame, will hold even a full, lush wreath all December.
 
 Where it fits: on a front door (inside face), an interior door, or a wall where a wreath is the main display. Strips work best on smooth, clean surfaces, so wipe the area first and let it dry — dust and grease are the main reason strips fail.
 
@@ -54,7 +54,7 @@ Budget tip: a [large picture-hanging strip pack](https://www.amazon.com/s?k=comm
 
 ![Clear mini hooks holding fairy lights along a rental window frame](/assets/command-hook-christmas-decor-renters-under-20/idea-05.jpg)
 
-Why it works: fairy lights are light but fiddly, and they look terrible when they sag or dangle. Clear mini hooks are almost invisible against a wall or window frame, and they hold a light string in exactly the line you want — along a window, around a mirror, or across a shelf. Because they are clear, the lights appear to float, which is a much cleaner look than a row of white hooks.
+Why it works: [fairy lights](/hang-christmas-lights-rental-guide/) are light but fiddly, and they look terrible when they sag or dangle. Clear mini hooks are almost invisible against a wall or window frame, and they hold a light string in exactly the line you want — along a window, around a mirror, or across a shelf. Because they are clear, the lights appear to float, which is a much cleaner look than a row of white hooks.
 
 Where it fits: along window frames, mirror edges, bookshelf fronts, and door frames — anywhere a light string needs to follow a precise line. Space them about 30 centimetres apart for a taut, professional look, and run the string through the hooks rather than draping it over them.
 

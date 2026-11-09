@@ -32,7 +32,7 @@ Where you put a mini tree changes everything about how it reads. The best spots 
 
 Avoid the classic small-space mistakes. Don't squeeze the tree behind the sofa where only the top pokes out, don't put it on a wobbly plant stand, and don't place it where the front door swings or where coats get thrown. A tree that gets brushed past ten times a day will shed needles and ornaments, and you'll stop enjoying it by the second week of December.
 
-Light is the other half of the decision. A tree near a window catches daylight and glows in the evening; a tree in a dark corner needs more lights to avoid looking flat. If your best spot is far from a socket, that's fine — battery fairy lights and LED candles exist precisely for renters. Choose the spot, then choose the lights to suit it.
+Light is the other half of the decision. A tree near a window catches daylight and glows in the evening; a tree in a dark corner needs more lights to avoid looking flat. If your best spot is far from a socket, that's fine — battery fairy lights and [LED candles](/battery-christmas-candles-small-apartments-under-20/) exist precisely for renters. Choose the spot, then choose the lights to suit it.
 
 ## Step 3: Pick a tree that fits your budget
 
@@ -70,7 +70,7 @@ Warm white is the colour to choose for a small space. Cool white reads clinical 
 
 Here's the styling rule that makes a mini tree look expensive: hang the biggest ornaments first, deepest in the branches, then work outwards and upwards to the smallest. Big baubles near the trunk give the tree visual weight and fill the gaps between branches; small ornaments on the tips add sparkle without overwhelming the shape. A mini tree needs only 12–20 ornaments total — far fewer than you'd expect, and fewer is what keeps it looking curated rather than cluttered.
 
-Pick a tight colour story and stick to it. Three colours maximum, plus metallics: terracotta, cream, and gold is warm and modern; sage, cream, and wood is calm and Scandi; classic red, gold, and green works if your flat already leans traditional. Buy one mixed pack of baubles in your palette ($10–15) rather than ten individual ornaments, and fill the gaps with what you already own — dried orange slices, cinnamon sticks tied with string, pinecones from the park, and a few paper stars.
+Pick a tight colour story and stick to it. Three colours maximum, plus metallics: terracotta, cream, and gold is warm and modern; sage, cream, and wood is calm and Scandi; classic red, gold, and green works if your flat already leans traditional. Buy one mixed pack of baubles in your palette ($10–15) rather than ten individual ornaments, and fill the gaps with what you already own — [dried orange slices](/dry-citrus-flowers-winter-decor-guide/), cinnamon sticks tied with string, [pinecones](/pinecone-decor-ideas-winter-cost-almost-nothing/) from the park, and a few paper stars.
 
 Hang ornaments with short lengths of ribbon or twine instead of wire hooks. Ribbon is cheaper, looks intentional, and lets you adjust the drop height so nothing dangles into the branches below. Step back after every five ornaments and check the balance from across the room — a mini tree is small enough that one heavy side is visible instantly.
 
@@ -90,7 +90,7 @@ Add a finishing layer at the very bottom: a small tray or a folded linen cloth u
 
 A mini tree does not need a full-size topper — it needs a small one, or none at all. A full-size star or angel will dwarf a 60 cm tree and make it look like a hat on a child. Choose a topper no taller than about 10 cm, or skip the traditional topper entirely and finish with a simple bow, a paper star, or a sprig of dried eucalyptus tied to the top branch. A bow made from the same ribbon as your ornaments ties the whole tree together for about $2.
 
-The last touches are the ones that make the tree feel personal rather than purchased. A short garland of wooden beads or dried orange slices draped loosely around the tree adds texture without weight. A few sprigs of fresh eucalyptus or rosemary tucked into the branches add scent — and in a small flat, scent is half the Christmas atmosphere. Keep it to one garland and two or three sprigs; a mini tree has no room for a second idea.
+The last touches are the ones that make the tree feel personal rather than purchased. A short garland of wooden beads or dried orange slices draped loosely around the tree adds texture without weight. A few sprigs of [fresh eucalyptus](/eucalyptus-decor-winter-ideas/) or rosemary tucked into the branches add scent — and in a small flat, scent is half the Christmas atmosphere. Keep it to one garland and two or three sprigs; a mini tree has no room for a second idea.
 
 Finally, style the space around the tree, not just the tree itself. A couple of wrapped empty boxes at the base, a candle (battery, if the tree is near curtains), and a small stack of books beside it turn a tree on a sideboard into a Christmas corner. Then switch the lights on, step back, and enjoy the one corner of your flat that now looks like a magazine — for under $30, with nothing nailed, drilled, or damaged.
 
