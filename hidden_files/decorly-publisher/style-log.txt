@@ -67,3 +67,7 @@ greenery-decor: A Listicle (2026-11-08 pinecone-decor-ideas-winter-cost-almost-n
 small-spaces: B Guide (2026-11-09 style-mini-christmas-tree-small-apartment-guide); also C Roundup christmas-window-candles-small-apartments-under-25 same day
 rental-friendly: A Listicle (2026-11-09 renter-friendly-christmas-decor-10-minutes-ideas); also B Guide host-christmas-cookie-swap-small-rental-guide same day
 greenery-decor: A Listicle (2026-11-09 norfolk-pine-decor-ideas-christmas)
+# 2026-11-10 run (1/2/2 split):
+small-spaces: A Listicle (2026-11-10 christmas-village-display-ideas-small-spaces)
+rental-friendly: A Listicle (2026-11-10 host-christmas-movie-night-small-rental); also C Roundup renter-friendly-christmas-wall-decals-under-25 same day
+greenery-decor: B Guide (2026-11-10 rosemary-christmas-tree-grow-style-guide); also C Roundup winter-plant-stands-small-apartments-under-25 same day
