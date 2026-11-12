@@ -75,3 +75,7 @@ greenery-decor: B Guide (2026-11-10 rosemary-christmas-tree-grow-style-guide); a
 small-spaces: B Guide (2026-11-11 small-apartment-christmas-without-tree-guide); also C Roundup christmas-table-runners-small-apartments-under-25 same day
 rental-friendly: B Guide (2026-11-11 christmas-countdown-ideas-rental-guide); also C Roundup renter-friendly-christmas-tree-alternatives-under-25 same day
 greenery-decor: A Listicle (2026-11-11 fresh-evergreen-branch-decor-ideas-small-apartments)
+# 2026-11-12 run (1/2/2 split):
+small-spaces: A Listicle (2026-11-12 afrohemian-living-room-ideas-small-apartments)
+rental-friendly: B Guide (2026-11-12 host-winter-dinner-party-small-rental-guide); also A Listicle renter-friendly-new-years-eve-table-decor-ideas same day
+greenery-decor: B Guide (2026-11-12 keep-norfolk-pine-alive-after-christmas-guide); also C Roundup winter-greenery-wreaths-under-25 same day
