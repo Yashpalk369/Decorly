@@ -79,3 +79,7 @@ greenery-decor: A Listicle (2026-11-11 fresh-evergreen-branch-decor-ideas-small-
 small-spaces: A Listicle (2026-11-12 afrohemian-living-room-ideas-small-apartments)
 rental-friendly: B Guide (2026-11-12 host-winter-dinner-party-small-rental-guide); also A Listicle renter-friendly-new-years-eve-table-decor-ideas same day
 greenery-decor: B Guide (2026-11-12 keep-norfolk-pine-alive-after-christmas-guide); also C Roundup winter-greenery-wreaths-under-25 same day
+# 2026-11-13 run (2/1/2 split):
+small-spaces: B Guide (2026-11-13 decorate-small-apartment-thanksgiving-guide); also C Roundup christmas-tree-skirts-small-trees-under-25 same day
+rental-friendly: C Roundup (2026-11-13 budget-christmas-ornaments-small-trees-under-25)
+greenery-decor: A Listicle (2026-11-13 winter-terrarium-ideas-small-apartments); also B Guide make-dried-flower-wreath-winter-guide same day
