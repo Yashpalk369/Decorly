@@ -83,3 +83,7 @@ greenery-decor: B Guide (2026-11-12 keep-norfolk-pine-alive-after-christmas-guid
 small-spaces: B Guide (2026-11-13 decorate-small-apartment-thanksgiving-guide); also C Roundup christmas-tree-skirts-small-trees-under-25 same day
 rental-friendly: C Roundup (2026-11-13 budget-christmas-ornaments-small-trees-under-25)
 greenery-decor: A Listicle (2026-11-13 winter-terrarium-ideas-small-apartments); also B Guide make-dried-flower-wreath-winter-guide same day
+# 2026-11-14 run (2/2/1 split):
+small-spaces: A Listicle (2026-11-14 dopamine-decor-living-room-ideas-small-apartments); also B Guide winter-gallery-wall-small-apartment-guide same day
+rental-friendly: A Listicle (2026-11-14 renter-friendly-winter-lighting-ideas); also C Roundup cosy-winter-rugs-small-rentals-under-25 same day
+greenery-decor: A Listicle (2026-11-14 winter-plant-shelf-display-ideas-small-apartments)
