@@ -58,7 +58,7 @@ Wire each focal flower individually, pushing the wire through the stem and aroun
 
 With the focal flowers in place, fill the gaps with small flowers and seed heads: baby's breath, statice, tiny dried grasses and seed heads, tucked into the spaces between the big blooms. This is the step that makes the wreath look full and professional, because a wreath with gaps looks unfinished, while a wreath with every gap filled looks abundant. Work in small tufts, wiring or gluing each one into place, and keep stepping back to check the balance — a wreath should look full from every angle, not just from the front.
 
-Use the smallest pieces last, poking them into the remaining holes with a dab of hot glue or a twist of wire. A few sprigs of dried eucalyptus or rosemary add scent as well as texture, and a handful of tiny pinecones adds a winter feel without any Christmas clichés. This step is the most satisfying part of the whole project, because the wreath goes from "almost there" to "finished" in about twenty minutes, and every gap you fill makes it look more expensive.
+Use the smallest pieces last, poking them into the remaining holes with a dab of hot glue or a twist of wire. A few sprigs of [dried eucalyptus](/eucalyptus-decor-winter-ideas/) or rosemary add scent as well as texture, and a handful of [tiny pinecones](/pinecone-decor-ideas-winter-cost-almost-nothing/) adds a winter feel without any Christmas clichés. This step is the most satisfying part of the whole project, because the wreath goes from "almost there" to "finished" in about twenty minutes, and every gap you fill makes it look more expensive.
 
 ### 7. Add a Ribbon and a Hanging Loop
 
@@ -66,7 +66,7 @@ Use the smallest pieces last, poking them into the remaining holes with a dab of
 
 A wreath is not finished until it can be hung, and the ribbon is both the hanger and the final decoration. Choose a ribbon that matches your room — velvet for a cosy flat, linen for a modern one, satin for a glam one — and cut a length about twice the height of the wreath. Thread it through the top of the ring, tie it in a loop, and then tie a bow at the front where the ribbon meets the flowers. The bow should sit at the top of the wreath, slightly to one side, because a centred bow looks stiff and a slightly off-centre bow looks handmade.
 
-Wire the ribbon to the ring as well as tying it, because a wreath is heavier than it looks and a knot alone can slip. If you are hanging the wreath on a door, use a removable adhesive hook rated for the wreath's weight — a dried flower wreath weighs less than a fresh one, so most hooks will hold it — and hang it on the inside of the front door if your landlord controls the outside. A wreath hung on a bedroom door or a living-room wall works just as well, and it lasts longer out of the draught.
+Wire the ribbon to the ring as well as tying it, because a wreath is heavier than it looks and a knot alone can slip. If you are hanging the wreath on a door, use a removable adhesive hook rated for the wreath's weight — a dried flower wreath weighs less than a fresh one, so most hooks will hold it — and hang it on the inside of [the front door](/decorate-rental-front-door-christmas-guide/) if your landlord controls the outside. A wreath hung on a bedroom door or a living-room wall works just as well, and it lasts longer out of the draught.
 
 ### 8. Care for Your Wreath All Winter
 

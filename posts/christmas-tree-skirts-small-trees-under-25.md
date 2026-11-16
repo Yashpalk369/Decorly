@@ -8,7 +8,7 @@ hero: hero-terra
 motif: 🎄
 ---
 
-A tree skirt is the cheapest way to make a small Christmas tree look finished. It hides the stand, covers the tangle of wires, catches the fallen needles and gives the whole tree a base that looks intentional instead of improvised. A good skirt costs less than a string of lights, fits a tree of any size by folding or tucking, and works just as well under a mini tree on a table as under a six-foot tree in the corner. Every skirt in this roundup costs $25 or less, and each one was chosen for a small space first: light, easy to store flat, and simple enough to suit a rented home.
+A tree skirt is the cheapest way to make a small Christmas tree look finished. It hides the stand, covers the tangle of wires, catches the fallen needles and gives the whole tree a base that looks intentional instead of improvised. A good skirt costs less than a string of lights, fits a tree of any size by folding or tucking, and works just as well under a [mini tree](/style-mini-christmas-tree-small-apartment-guide/) on a table as under a six-foot tree in the corner. Every skirt in this roundup costs $25 or less, and each one was chosen for a small space first: light, easy to store flat, and simple enough to suit a rented home.
 
 Measure before you buy: a skirt of 75 to 90 centimetres suits a small or mini tree, while anything larger will bunch up and swallow the presents. Pick a fabric that matches your room, lay it flat under the tree, and the tree is dressed.
 
@@ -20,7 +20,7 @@ A red knit tree skirt is the original, and it is still the best: chunky cable kn
 
 **Why it works:** The knit texture adds warmth and a handmade feel, and the red anchors the whole tree so the ornaments have something to sit against.
 
-**Where it fits:** A traditional or farmhouse-style flat, under a small tree with warm white lights and wooden ornaments.
+**Where it fits:** A traditional or farmhouse-style flat, under a small tree with warm white lights and [wooden ornaments](/budget-christmas-ornaments-small-trees-under-25/).
 
 [Shop red knit tree skirts](https://www.amazon.com/s?k=red+knit+christmas+tree+skirt&tag={{AMAZON_TAG}})
 
@@ -80,7 +80,7 @@ A deep green velvet tree skirt is the most dramatic option under $25, and it cos
 
 **Why it works:** Velvet adds depth, richness and a jewel tone that makes a small tree look like a deliberate design choice rather than a compromise.
 
-**Where it fits:** A glam or neo deco flat, under a tree with gold, brass and jewel-toned ornaments.
+**Where it fits:** A glam or [neo deco](/neo-deco-living-room-ideas-small-apartments/) flat, under a tree with gold, brass and jewel-toned ornaments.
 
 [Shop velvet tree skirts](https://www.amazon.com/s?k=green+velvet+christmas+tree+skirt&tag={{AMAZON_TAG}})
 

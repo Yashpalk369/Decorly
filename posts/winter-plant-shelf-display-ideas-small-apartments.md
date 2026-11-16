@@ -56,7 +56,7 @@ Let the vines grow long — resist the urge to trim them until they reach at lea
 
 ![A shelf with matching terracotta pots holding green plants in a small apartment](/assets/winter-plant-shelf-display-ideas-small-apartments/idea-06.jpg)
 
-Matching pots are the simplest way to make a plant shelf look deliberate rather than accidental. A row of identical terracotta pots, or a set of cream ceramic pots in the same shape, turns a collection of different plants into a display. The uniformity of the pots lets the plants themselves be the stars — the different leaf shapes, heights and colours stand out more when the pots are quiet. It is the same principle as a gallery wall: repetition creates order.
+Matching pots are the simplest way to make a plant shelf look deliberate rather than accidental. A row of identical terracotta pots, or a set of cream ceramic pots in the same shape, turns a collection of different plants into a display. The uniformity of the pots lets the plants themselves be the stars — the different leaf shapes, heights and colours stand out more when the pots are quiet. It is the same principle as [a gallery wall](/winter-gallery-wall-small-apartment-guide/): repetition creates order.
 
 You do not need to buy a matching set. Paint plain terracotta pots the same colour with a sample pot of paint, or cover mismatched pots with the same fabric or paper. The plants do not care what the pots look like; your eye does. A shelf of matching pots is also the easiest plant display to photograph, which matters if you share your flat on social media — and it is the one that makes visitors ask where you bought it.
 
@@ -64,7 +64,7 @@ You do not need to buy a matching set. Paint plain terracotta pots the same colo
 
 ![A plant shelf with warm grow lights tucked underneath in a small apartment](/assets/winter-plant-shelf-display-ideas-small-apartments/idea-07.jpg)
 
-Winter light is the hardest problem for indoor plants, and a grow light tucked under a shelf is the most elegant solution. A slim LED bar, stuck to the underside of the shelf above your plants, gives the shelf below it exactly the light it needs — no bulky lamp, no floor space, nothing to trip over. The plants on the lit shelf will grow through winter as if it were spring, while the ones on unlit shelves slow down and rest.
+Winter light is the hardest problem for indoor plants, and [a grow light](/grow-lights-dark-winter-apartments-under-25/) tucked under a shelf is the most elegant solution. A slim LED bar, stuck to the underside of the shelf above your plants, gives the shelf below it exactly the light it needs — no bulky lamp, no floor space, nothing to trip over. The plants on the lit shelf will grow through winter as if it were spring, while the ones on unlit shelves slow down and rest.
 
 Choose a full-spectrum LED bar rather than the purple grow lights, because the purple glow makes a living room look like a nightclub. Full-spectrum light looks like ordinary warm white light, so the shelf looks natural and the room stays cosy. Put the light on a timer for ten to twelve hours a day, and your plants will think it is May. A grow light under a shelf is the single best investment for anyone who wants a green flat all winter.
 
@@ -74,7 +74,7 @@ Choose a full-spectrum LED bar rather than the purple grow lights, because the p
 
 The bathroom is the warmest, most humid room in a small flat, and a shelf there is paradise for ferns, calatheas and other humidity lovers that struggle in dry, heated living rooms. A small shelf above the sink or over the toilet holds two or three plants that will thrive on the steam from your shower alone. Ferns that go brown in the living room stay green in the bathroom, and the plants make the smallest room in the flat feel like a spa.
 
-Check the light before you commit: a bathroom with a window is ideal, but a windowless bathroom needs a plant that tolerates low light, such as a pothos or a snake plant. Use plastic or ceramic pots rather than terracotta in a bathroom, because the humidity keeps terracotta damp and it can grow mould. Water sparingly — the steam does half the work — and wipe the leaves occasionally, because bathroom plants collect dust and soap residue.
+Check the light before you commit: a bathroom with a window is ideal, but a windowless bathroom needs a plant that tolerates [low light](/low-light-indoor-plants-dark-apartments/), such as a pothos or a snake plant. Use plastic or ceramic pots rather than terracotta in a bathroom, because the humidity keeps terracotta damp and it can grow mould. Water sparingly — the steam does half the work — and wipe the leaves occasionally, because bathroom plants collect dust and soap residue.
 
 ### 9. A Shelf Styled With Books and Plants
 
@@ -82,7 +82,7 @@ Check the light before you commit: a bathroom with a window is ideal, but a wind
 
 Books and plants belong together on a shelf. The books give the plants structure and height, the plants soften the hard edges of the books, and the combination looks like a home rather than a garden centre. Try a stack of three books with a small plant on top, a row of upright books with a trailing plant at the end, or a plant nestled between two bookends. The rule is simple: the plants and the books should share the shelf, not compete for it.
 
-Keep the plants small on a bookshelf, because a big plant will shade the books and a big book will shade the plant. Succulents, air plants and small ferns are the best bookshelf plants — they stay compact, they need little water, and they look good next to a row of spines. Put a saucer under every pot, because a water stain on a bookshelf is forever, and rotate the plants every few weeks so they grow evenly towards the light.
+Keep the plants small on a bookshelf, because a big plant will shade the books and a big book will shade the plant. Succulents, [air plants](/style-air-plants-small-apartment-winter-guide/) and small ferns are the best bookshelf plants — they stay compact, they need little water, and they look good next to a row of spines. Put a saucer under every pot, because a water stain on a bookshelf is forever, and rotate the plants every few weeks so they grow evenly towards the light.
 
 ### 10. A Rotating Seasonal Shelf
 

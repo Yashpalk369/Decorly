@@ -8,7 +8,7 @@ hero: hero-clay
 motif: 🔑
 ---
 
-New Year's Eve is the easiest party of the year to decorate for, because the whole look is black, gold and candlelight — three things that cost almost nothing and need no drilling, no nails and no damage to a rented flat. A small table dressed in black and gold looks like a celebration, not a compromise, and every idea here packs away into a single box in January.
+[New Year's Eve](/renter-friendly-new-year-party-decor-under-25/) is the easiest party of the year to decorate for, because the whole look is black, gold and candlelight — three things that cost almost nothing and need no drilling, no nails and no damage to a rented flat. A small table dressed in black and gold looks like a celebration, not a compromise, and every idea here packs away into a single box in January.
 
 The palette does the heavy lifting, so keep it strict: black, gold, cream and one metallic accent, and nothing else. A table that sticks to two colours and candlelight looks expensive; a table with five colours and tinsel looks like a clearance sale. Work through these ten ideas, pick the five or six that suit your table, and leave the rest for next year. Everything here is removable, washable and landlord-proof.
 
@@ -34,13 +34,13 @@ Use battery candles for the tallest tapers if you are nervous about flames near 
 
 A champagne coupe filled with fairy lights is the prettiest centrepiece on this list and one of the cheapest. Fill two or three vintage-style coupes or wine glasses with a short string of battery fairy lights, and they glow like captured starlight down the middle of the table. The glasses catch the light, the lights catch the gold, and the whole table sparkles without a single decoration bought for the purpose.
 
-Use glasses you already own — charity shops sell coupes for $1–2 each — and coil the lights loosely so they fill the bowl without bulging over the rim. Battery fairy lights cost $3–5 a string and last for several parties, so buy warm white rather than cool white: warm light flatters the gold palette, cool light makes it look like a fridge. Tuck a sprig of evergreen or a single gold bauble beside each glass to finish the look.
+Use glasses you already own — charity shops sell coupes for $1–2 each — and coil the lights loosely so they fill the bowl without bulging over the rim. Battery fairy lights cost $3–5 a string and last for several parties, so buy warm white rather than cool white: [warm light](/renter-friendly-winter-lighting-ideas/) flatters the gold palette, cool light makes it look like a fridge. Tuck a sprig of evergreen or a single gold bauble beside each glass to finish the look.
 
 ### 4. Gold Charger Plates and Black Napkins
 
 ![Gold charger plates with black napkins at a New Year's Eve table setting](/assets/renter-friendly-new-years-eve-table-decor-ideas/idea-04.jpg)
 
-Charger plates are the rental decorator's secret weapon: they make a plain table setting look like a restaurant, they cost $2–3 each in gold plastic or thin metal, and they protect a rented table from hot plates at the same time. Layer a gold charger under a plain white or black dinner plate, add a black cloth napkin folded simply on top, and the place setting is done before a single decoration goes on the table.
+Charger plates are the rental decorator's secret weapon: they make [a plain table setting](/small-apartment-christmas-table-setting-ideas/) look like a restaurant, they cost $2–3 each in gold plastic or thin metal, and they protect a rented table from hot plates at the same time. Layer a gold charger under a plain white or black dinner plate, add a black cloth napkin folded simply on top, and the place setting is done before a single decoration goes on the table.
 
 Plastic chargers are light, cheap and washable, which makes them better for a small flat than heavy metal ones that chip and dent. Buy one per guest plus one spare, and store them flat in a drawer with a sheet of tissue between each one so they do not scratch. Black napkins hide stains better than white ones, which matters at midnight, and a simple fold — a rectangle, a triangle, a loose roll — looks better than a complicated swan.
 

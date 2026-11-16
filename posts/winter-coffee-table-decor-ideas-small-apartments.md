@@ -40,9 +40,9 @@ The top of the stack is a ready-made pedestal for something small: a candle, a t
 
 ![Fresh evergreen sprigs in a small vase on a coffee table in a small apartment](/assets/winter-coffee-table-decor-ideas-small-apartments/idea-04.jpg)
 
-A sprig of evergreen is winter decor at its simplest and cheapest. A few cuttings of pine, fir or eucalyptus in a small vase or laid along the table bring scent, colour and life into a room for almost nothing. Ask a Christmas tree seller for offcuts, trim a branch from your own tree, or gather fallen sprigs on a walk — just check they are safe to bring indoors and give them a shake outside first.
+A sprig of evergreen is winter decor at its simplest and cheapest. A few cuttings of pine, fir or [eucalyptus](/eucalyptus-decor-winter-ideas/) in a small vase or laid along the table bring scent, colour and life into a room for almost nothing. Ask a Christmas tree seller for offcuts, trim a branch from your own tree, or gather fallen sprigs on a walk — just check they are safe to bring indoors and give them a shake outside first.
 
-Keep the arrangement small so it does not crowd the table. A single stem in a slim vase, or three short sprigs laid across a tray, is plenty. Evergreen lasts for weeks if you change the water and trim the stems every few days, and when it finally dries out, it still looks good — dried evergreen has a softer, silvery look that suits January perfectly. If fresh greenery is hard to come by, a good-quality faux sprig, bought once and reused every year, is the budget-friendly alternative.
+Keep the arrangement small so it does not crowd the table. A single stem in a slim vase, or three short sprigs laid across a tray, is plenty. Evergreen lasts for weeks if you change the water and trim the stems every few days, and when it finally dries out, it still looks good — dried evergreen has a softer, silvery look that suits January perfectly. If [fresh greenery](/make-dried-flower-wreath-winter-guide/) is hard to come by, a good-quality faux sprig, bought once and reused every year, is the budget-friendly alternative.
 
 ### 5. A Mug Station for Slow Mornings
 
@@ -80,7 +80,7 @@ Battery lights are the renter-friendly choice — no trailing wires, no socket n
 
 ![Pinecones and natural winter finds arranged in a bowl on a small coffee table](/assets/winter-coffee-table-decor-ideas-small-apartments/idea-09.jpg)
 
-Pinecones, acorns and dried seed heads are free winter decor, and a small bowl of them on the coffee table is the most honest kind of seasonal styling. Gather them on a walk, rinse them, and let them dry on a baking tray in a low oven for twenty minutes to kill any tiny passengers before bringing them indoors. A wooden bowl, a ceramic dish, or even a large mug holds them neatly and keeps them from rolling across the table.
+[Pinecones](/pinecone-decor-ideas-winter-cost-almost-nothing/), acorns and dried seed heads are free winter decor, and a small bowl of them on the coffee table is the most honest kind of seasonal styling. Gather them on a walk, rinse them, and let them dry on a baking tray in a low oven for twenty minutes to kill any tiny passengers before bringing them indoors. A wooden bowl, a ceramic dish, or even a large mug holds them neatly and keeps them from rolling across the table.
 
 A bowl of pinecones works because it is tactile — guests pick one up, turn it over, put it back — and because it is genuinely seasonal without shouting Christmas. Mix in a few cinnamon sticks or dried orange slices for scent, and keep the bowl small enough that it leaves room for everything else on the table. When spring arrives, tip the pinecones into the garden or the compost and the bowl is free for something else.
 

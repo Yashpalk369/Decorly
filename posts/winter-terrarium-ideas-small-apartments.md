@@ -24,7 +24,7 @@ Keep the jar out of direct sun — a closed terrarium in sunlight cooks — and 
 
 ![An air plant terrarium with warm fairy lights on a small apartment shelf](/assets/winter-terrarium-ideas-small-apartments/idea-02.jpg)
 
-Air plants are the perfect terrarium plant because they need no soil at all — just air, a little light and a misting once a week. Set two or three air plants in an open glass bowl with a few pebbles and a string of battery fairy lights, and you have a glowing centrepiece that weighs almost nothing and cannot be overwatered. Air plants come in dozens of shapes, from spiky stars to soft curls, and they cost a few dollars each from a garden centre or online.
+[Air plants](/style-air-plants-small-apartment-winter-guide/) are the perfect terrarium plant because they need no soil at all — just air, a little light and a misting once a week. Set two or three air plants in an open glass bowl with a few pebbles and a string of battery [fairy lights](/hang-christmas-lights-rental-guide/), and you have a glowing centrepiece that weighs almost nothing and cannot be overwatered. Air plants come in dozens of shapes, from spiky stars to soft curls, and they cost a few dollars each from a garden centre or online.
 
 Hang the terrarium from a removable adhesive hook if you want it off the shelf, or keep it on the dining table where the fairy lights can glow through dinner. Mist the plants once a week and turn them upside down to dry, because air plants rot if water sits in their centre. The fairy lights are the secret: they make the terrarium glow after dark, which is when a winter flat needs it most, and a string of battery lights costs less than the plants.
 
@@ -32,7 +32,7 @@ Hang the terrarium from a removable adhesive hook if you want it off the shelf, 
 
 ![A fern terrarium in a glass bowl in a dark corner of a small apartment](/assets/winter-terrarium-ideas-small-apartments/idea-03.jpg)
 
-A fern terrarium is the answer to the darkest corner of a flat — the one where nothing else survives. Small ferns like button fern, maidenhair and baby tears love the humid, sheltered air inside a closed terrarium, and they thrive in low light that would kill a succulent in a week. Build it in a large glass bowl or a demijohn, with pebbles, charcoal and soil, and plant two or three small ferns with a little space between them. They will fill the glass within a few months.
+A fern terrarium is the answer to the darkest corner of a flat — the one where nothing else survives. Small ferns like button fern, maidenhair and baby tears love the humid, sheltered air inside a closed terrarium, and they thrive in [low light](/low-light-indoor-plants-dark-apartments/) that would kill a succulent in a week. Build it in a large glass bowl or a demijohn, with pebbles, charcoal and soil, and plant two or three small ferns with a little space between them. They will fill the glass within a few months.
 
 Ferns need humidity more than light, so a closed lid is your friend — it traps moisture and creates the steamy air ferns love. Open the lid for an hour once a week to let fresh air in, and trim any brown fronds with scissors. A fern terrarium in a dark corner turns the worst spot in the flat into the prettiest one, and it proves that a dark apartment is not a plant-free apartment, just one that needs the right plants.
 
@@ -48,7 +48,7 @@ Keep the fairy garden in an open container so the miniature houses do not fog up
 
 ![A succulent terrarium in a vintage teacup on a small apartment shelf](/assets/winter-terrarium-ideas-small-apartments/idea-05.jpg)
 
-A succulent terrarium in a teacup is the smallest garden on this list and the most charming: one tiny succulent, a spoonful of cactus soil and a few pebbles, in a chipped teacup from a charity shop. Succulents need bright light and almost no water, so a teacup terrarium belongs on the sunniest windowsill in the flat, and it needs a drink only once a month in winter. The teacup makes it a decoration as well as a plant — a little piece of vintage charm on a shelf.
+A succulent terrarium in a teacup is the smallest garden on this list and the most charming: one [tiny succulent](/winter-succulent-care-ideas-small-apartments/), a spoonful of cactus soil and a few pebbles, in a chipped teacup from a charity shop. Succulents need bright light and almost no water, so a teacup terrarium belongs on the sunniest windowsill in the flat, and it needs a drink only once a month in winter. The teacup makes it a decoration as well as a plant — a little piece of vintage charm on a shelf.
 
 Build a row of three teacup terrariums in different cups for a windowsill display, or give one as a gift — a teacup succulent is the present that costs a few dollars and looks like it cost much more. Do not use a closed lid for succulents: they need dry air and airflow, and a sealed jar will rot them in weeks. An open teacup, a sunny sill and a monthly watering is all a succulent asks, and it will reward you by staying alive through the whole winter.
 

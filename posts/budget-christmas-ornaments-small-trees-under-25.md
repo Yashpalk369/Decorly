@@ -8,7 +8,7 @@ hero: hero-gold
 motif: ✨
 ---
 
-A small tree needs small ornaments. Full-size baubles overwhelm a mini tree, drag its branches down and make the whole thing look top-heavy, while a set of light, well-chosen ornaments makes the same tree look full, intentional and expensive. The best budget ornaments are shatterproof, light enough for thin branches, and sold in sets, so one box dresses the whole tree. Every set in this roundup costs $25 or less, and each one was chosen for a rented flat first: no glass to smash on a hard floor, no hooks that damage branches, and nothing that needs a ladder to hang.
+A small tree needs small ornaments. Full-size baubles overwhelm a [mini tree](/style-mini-christmas-tree-small-apartment-guide/), drag its branches down and make the whole thing look top-heavy, while a set of light, well-chosen ornaments makes the same tree look full, intentional and expensive. The best budget ornaments are shatterproof, light enough for thin branches, and sold in sets, so one box dresses the whole tree. Every set in this roundup costs $25 or less, and each one was chosen for a rented flat first: no glass to smash on a hard floor, no hooks that damage branches, and nothing that needs a ladder to hang.
 
 Count before you buy: a mini tree of 60 to 90 centimetres needs about 20 to 30 small ornaments, and a small tree of 120 centimetres needs about 40. Buy one set, hang the ornaments in odd numbers, and leave a few branches bare — a tree with breathing room looks better than a tree stuffed to the trunk.
 
@@ -80,7 +80,7 @@ Gold and brass metal ornaments — stars, bells, icicles and geometric shapes in
 
 **Why it works:** Metal adds shine and structure, and gold against green is the classic luxury combination that makes a cheap tree look expensive.
 
-**Where it fits:** A glam or neo deco flat, on a small tree with warm white lights and a velvet tree skirt.
+**Where it fits:** A glam or [neo deco](/neo-deco-living-room-ideas-small-apartments/) flat, on a small tree with warm white lights and a [velvet tree skirt](/christmas-tree-skirts-small-trees-under-25/).
 
 [Shop gold metal ornaments](https://www.amazon.com/s?k=gold+metal+christmas+ornaments+set&tag={{AMAZON_TAG}})
 
@@ -90,7 +90,7 @@ Gold and brass metal ornaments — stars, bells, icicles and geometric shapes in
 
 Pinecone ornaments are the cheapest real thing you can hang on a tree: natural mini pinecones, sometimes tipped with white paint or glitter, sold in sets of 20 to 30 for $8–15, or gathered free from a park and strung on twine in an afternoon. They add texture and a woodland feel that no manufactured ornament can match, and they are light enough for the thinnest branch. A pinecone ornament also hides a multitude of sins — hang one on a bare patch and the tree looks full.
 
-**Why it works:** Pinecones add weight, texture and a natural woodland character, and they cost almost nothing while looking crafted rather than bought.
+**Why it works:** [Pinecones](/pinecone-decor-ideas-winter-cost-almost-nothing/) add weight, texture and a natural woodland character, and they cost almost nothing while looking crafted rather than bought.
 
 **Where it fits:** A rustic or farmhouse flat, on a tree with wooden ornaments, burlap ribbon and warm white lights.
 

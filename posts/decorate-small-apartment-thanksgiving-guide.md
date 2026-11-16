@@ -8,7 +8,7 @@ hero: hero-olive
 motif: 🍂
 ---
 
-Thanksgiving in a small apartment does not need a big budget, a big table or a big house. It needs a plan, a few warm layers and one room that smells like cinnamon when guests walk in. Fifty dollars, spent in the right order, will dress a whole flat: the table, the entry, a shelf or two, and the scent that does the rest. The trick is to decorate where people actually look — the table, the front door and the kitchen counter — and to leave the rest of the flat alone.
+Thanksgiving in a small apartment does not need a big budget, a big table or a big house. It needs a plan, a few warm layers and one room that smells like cinnamon when guests walk in. Fifty dollars, spent in the right order, will dress a whole flat: the table, the entry, a shelf or two, and the scent that does the rest. The trick is to decorate where people actually look — the table, [the front door](/decorate-rental-front-door-christmas-guide/) and the kitchen counter — and to leave the rest of the flat alone.
 
 This guide works in order, so follow it from step one to step eight and you will be finished in an afternoon, with money left over for the turkey. Every step is renter-friendly, nothing needs a nail or a drill, and everything packs away into one box when the weekend is over. Start a week before the day if you can, but even the night before is enough if you keep the list short and the plan simple.
 
@@ -48,7 +48,7 @@ Work in odd numbers and in layers: tall at the back, low at the front, and a lit
 
 ![Warm candlelight on a small apartment shelf decorated for Thanksgiving](/assets/decorate-small-apartment-thanksgiving-guide/idea-05.jpg)
 
-In a small flat, candlelight does more decorating than any object you can buy. Three or four candles of different heights on the table, one on the windowsill and one by the front door will make the whole flat glow, and warm light flatters a small room in a way that bright overhead light never does. Turn the ceiling light off when guests arrive and let the candles and one low lamp do the work — the room will feel bigger, warmer and more expensive in seconds.
+In a small flat, candlelight does more decorating than any object you can buy. Three or four candles of different heights on the table, one on the windowsill and one by the front door will make the [whole flat glow](/renter-friendly-winter-lighting-ideas/), and warm light flatters a small room in a way that bright overhead light never does. Turn the ceiling light off when guests arrive and let the candles and one low lamp do the work — the room will feel bigger, warmer and more expensive in seconds.
 
 Use battery candles if your lease bans open flames or if you are nervous about candles near a tablecloth, and group real candles on plates or inside jam jars so drips never reach a surface. Keep candles away from curtains, paper decorations and the edge of the table where a sleeve might catch them. One scented candle is enough for the whole flat — cinnamon, clove or baked apple — because two competing scents just smell like a candle shop. Light the scented one an hour before guests arrive so the flat smells like Thanksgiving before the oven even starts.
 
@@ -64,7 +64,7 @@ If your landlord controls the outside of the door, keep everything inside and it
 
 ![A pot of simmering spices and oranges on a stove in a small apartment kitchen](/assets/decorate-small-apartment-thanksgiving-guide/idea-07.jpg)
 
-Scent is the cheapest decoration there is, and in a small flat it works better than in a big house because there is less air to fill. An hour before guests arrive, put a small pan of water on the hob with orange peel, a cinnamon stick, a few cloves and a star anise, and let it simmer gently with the lid off. The flat will smell like baking and spice within twenty minutes, and the pan costs less than a dollar to make. Keep it simmering on the lowest heat while guests are there, topping up the water when it gets low.
+[Scent](/renter-friendly-christmas-scent-ideas/) is the cheapest decoration there is, and in a small flat it works better than in a big house because there is less air to fill. An hour before guests arrive, put a small pan of water on the hob with orange peel, a cinnamon stick, a few cloves and a star anise, and let it simmer gently with the lid off. The flat will smell like baking and spice within twenty minutes, and the pan costs less than a dollar to make. Keep it simmering on the lowest heat while guests are there, topping up the water when it gets low.
 
 If you would rather not watch a pan, bake something. A tray of roasted squash, a pan of cinnamon rolls or even a loaf of bread from a packet mix will fill the flat with the right smell and give guests something to eat while the turkey rests. Open the windows for five minutes before guests arrive to clear out cooking smells, then close them and let the good scent build. Scent is the decoration guests remember after the plates are cleared, and it is the one no photograph can capture, which is exactly why it matters.
 
@@ -74,7 +74,7 @@ If you would rather not watch a pan, bake something. A tray of roasted squash, a
 
 The last step of decorating is planning how it all comes down, because in a small flat, decorations that linger become clutter by Monday. Before guests arrive, put an empty box or a large bag in a cupboard and label it "Thanksgiving". When the evening ends, everything seasonal — the pumpkins, the leaves, the wreath, the runner — goes into the box in ten minutes, and the flat is back to normal before bed. The candles stay out, because candles are not seasonal, and the tablecloth goes in the wash.
 
-Keep a note in the box of what you bought, what it cost and what worked, so next year you shop from the box instead of from scratch. The pumpkins and leaves compost, the squash gets cooked, and the things you keep — the runner, the wreath, the candle holders — are the start of next year's decor. A fifty-dollar Thanksgiving that leaves you with a box of reusable decorations and no clutter is a better investment than a two-hundred-dollar one that leaves you with bags of glitter and a flat you have to clean for a week.
+Keep a note in the box of what you bought, what it cost and what worked, so next year you shop from the box instead of from scratch. The pumpkins and leaves compost, the squash gets cooked, and the things you keep — the runner, the wreath, the [candle holders](/winter-candle-holders-small-apartments-under-25/) — are the start of next year's decor. A fifty-dollar Thanksgiving that leaves you with a box of reusable decorations and no clutter is a better investment than a two-hundred-dollar one that leaves you with bags of glitter and a flat you have to clean for a week.
 
 ## Frequently Asked Questions
 

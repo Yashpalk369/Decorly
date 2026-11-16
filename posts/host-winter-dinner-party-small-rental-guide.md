@@ -26,7 +26,7 @@ Invite people who already know each other, or at least share one friend in commo
 
 Clear the room before you start cooking, not after. Move the laundry airer, the pile of books, the charging cables and anything else that lives on flat surfaces into the bedroom and shut the door. A clear room looks twice as big, and guests will use every surface you leave free — coats on the bed, bags on a chair, drinks on a side table. Decide in advance where coats and bags go, and put a hook or a chair there so nobody has to ask.
 
-Protect the floors and the table now, while the room is empty. Lay a washable rug or an old sheet under the dining area if you have hard floors, put felt pads under chair legs if they are missing, and cover the table with a proper tablecloth or a runner that hangs over the edges. Red wine on a rented table is a deposit dispute; red wine on a $12 tablecloth is laundry. For more deposit-safe ideas, see our guide to [hosting a Christmas party in a rental without damage](/host-christmas-party-rental-no-damage-guide/).
+Protect the floors and the table now, while the room is empty. Lay a washable rug or an old sheet under the dining area if you have hard floors, put felt pads under chair legs if they are missing, and cover the table with a proper tablecloth or [a runner](/christmas-table-runners-small-apartments-under-25/) that hangs over the edges. Red wine on a rented table is a deposit dispute; red wine on a $12 tablecloth is laundry. For more deposit-safe ideas, see our guide to [hosting a Christmas party in a rental without damage](/host-christmas-party-rental-no-damage-guide/).
 
 ### 3. Seat Everyone at One Table
 
@@ -34,7 +34,7 @@ Protect the floors and the table now, while the room is empty. Lay a washable ru
 
 One table, everyone together, is the whole point of a dinner party, and in a small flat it usually means pulling the dining table away from the wall and adding a leaf, a board or a borrowed card table at the end. Measure first: each guest needs about 60 centimetres of table edge, so six guests need 3.6 metres around the table, which a 120-centimetre table with two people at each side and one at each end just about provides. If the maths does not work, drop to four guests rather than squeezing six.
 
-Mismatched chairs are fine and even charming, as long as they are all the same height — a tall bar stool next to a low dining chair makes one guest eat at chin level. Tie the chairs together visually with matching cushions or a folded throw over each back. Set the table the night before if you can: plates, glasses, cutlery and a simple centrepiece, so the morning of the party is for cooking, not for hunting for the good glasses.
+Mismatched chairs are fine and even charming, as long as they are all the same height — a tall bar stool next to a low dining chair makes one guest eat at chin level. Tie the chairs together visually with matching cushions or a folded throw over each back. Set the table the night before if you can: plates, glasses, cutlery and [a simple centrepiece](/small-apartment-christmas-table-setting-ideas/), so the morning of the party is for cooking, not for hunting for the good glasses.
 
 ### 4. Cook a Make-Ahead, One-Pot Menu
 
@@ -48,9 +48,9 @@ Serve family-style from the pot in the middle of the table rather than plating i
 
 ![Warm candlelight and fairy lights over a small winter dinner party table](/assets/host-winter-dinner-party-small-rental-guide/idea-05.jpg)
 
-Winter dinner parties live or die on lighting. Turn the overhead light off, light the candles, and let the room glow. Three or four candles of different heights down the centre of the table, a string of warm fairy lights along a shelf or a window, and one low lamp in the corner are enough for a whole room. Warm light flatters food, flatters faces and hides the fact that the room is small.
+Winter dinner parties live or die on lighting. Turn the overhead light off, light the candles, and let the room glow. Three or four candles of different heights down the centre of the table, a string of warm [fairy lights](/hang-christmas-lights-rental-guide/) along a shelf or a window, and one low lamp in the corner are enough for a whole room. Warm light flatters food, flatters faces and hides the fact that the room is small.
 
-Use battery candles if you are nervous about flames near a tablecloth, and never put a lit candle under a shelf or near a curtain. Keep one small light on in the kitchen or hallway so guests can find the bathroom without a torch. The right lighting also saves you decorating: a room that glows needs almost no other decoration, which is why this step matters more than any centrepiece you could buy.
+Use [battery candles](/battery-christmas-candles-small-apartments-under-20/) if you are nervous about flames near a tablecloth, and never put a lit candle under a shelf or near a curtain. Keep one small light on in the kitchen or hallway so guests can find the bathroom without a torch. The right lighting also saves you decorating: a room that glows needs almost no other decoration, which is why this step matters more than any centrepiece you could buy.
 
 ### 6. Set Up a Drinks Station
 

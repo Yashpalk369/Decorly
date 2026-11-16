@@ -8,7 +8,7 @@ hero: hero-umber
 motif: 🎲
 ---
 
-A winter games night is the perfect small-rental party: no one needs to dress up, nobody expects a three-course dinner, and the entertainment is a box you already own. When the evenings are dark and cold, a living room full of friends, a board game spread across the coffee table and a pot of hot chocolate is the cosiest night in there is. The trick is planning for the space you actually have, not the space you wish you had — and that is where most games nights in small flats go wrong.
+A winter games night is the perfect small-rental party: no one needs to dress up, nobody expects a three-course dinner, and the entertainment is a box you already own. When the evenings are dark and cold, a living room full of friends, a board game spread across the [coffee table](/winter-coffee-table-decor-ideas-small-apartments/) and a pot of [hot chocolate](/host-christmas-eve-small-rental-guide/) is the cosiest night in there is. The trick is planning for the space you actually have, not the space you wish you had — and that is where most games nights in small flats go wrong.
 
 The good news is that a games night is one of the cheapest parties you can throw in a rental. You do not need new furniture, you do not need to buy games, and you do not need to decorate. You need a clear surface, enough places to sit, snacks that will not stain the carpet, and a plan for keeping the noise down.
 
@@ -44,7 +44,7 @@ Keep one spare seat free if you can — someone always brings a plus-one. And if
 
 ![Warm lamplight and candles in a cosy living room ready for a games night](/assets/host-winter-games-night-small-rental-guide/idea-04.jpg)
 
-Winter games nights live or die on atmosphere, and lighting does most of the work for free. Turn off the overhead light — it is harsh, it flattens the room, and it makes everyone look tired. Use lamps instead: a floor lamp in the corner, a table lamp on a sideboard, and a string of fairy lights along a shelf or window. Warm light makes a small room feel cosy rather than cramped, and it makes the whole evening feel like an occasion.
+Winter games nights live or die on atmosphere, and lighting does most of the work for free. Turn off the overhead light — it is harsh, it flattens the room, and it makes everyone look tired. Use lamps instead: a floor lamp in the corner, a table lamp on a sideboard, and a string of [fairy lights](/hang-christmas-lights-rental-guide/) along a shelf or window. Warm light makes a small room feel cosy rather than cramped, and it makes the whole evening feel like an occasion.
 
 You still need enough light to read cards, so do not go too dim: a lamp aimed at the table, or a small battery lantern on the floor beside it, gives players the light they need without flooding the room. Fairy lights are ideal in a rental because they hang with removable hooks and leave no marks. Avoid real candles on or near the game table — one knocked-over candle is a disaster, and wax on a carpet is a deposit deduction waiting to happen. Battery candles give the same glow with none of the risk.
 
@@ -64,7 +64,7 @@ Serve food that can be eaten with one hand, because the other hand is holding ca
 
 A games night gets loud. Someone wins a round, someone else loses spectacularly, and suddenly the whole room is cheering. In a small rental with neighbours on the other side of a thin wall, that is the one thing that can turn a great evening into a complaint. The fix is planning, not policing your friends. Tell your neighbours in advance — a quick knock or a friendly note saying you are having a few friends over until about eleven is worth more than any amount of soundproofing, and most neighbours are far more forgiving when they have been warned.
 
-Keep the loudest games for earlier in the evening and save the quiet, thinky games for after ten. Party games that involve shouting or singing are brilliant at eight o'clock and a problem at midnight, so if the volume is rising, switch to a card game — the change of pace naturally brings the room down a notch. Close the windows, draw the curtains, and lay a rug or thick blanket on wooden floors to absorb sound.
+Keep the loudest games for earlier in the evening and save the quiet, thinky games for after ten. Party games that involve shouting or singing are brilliant at eight o'clock and a problem at midnight, so if the volume is rising, switch to a card game — the change of pace naturally brings the room down a notch. Close the windows, draw the curtains, and lay [a rug](/cosy-winter-rugs-small-rentals-under-25/) or thick blanket on wooden floors to absorb sound.
 
 Set a finish time when you send the invitations, and stick to it. "Games until eleven, then we wind down" gives everyone a clear expectation and a natural reason to start the tidy-up. If the group wants to keep going, move to the kitchen or suggest a walk to the local pub. A games night that ends on time, with the neighbours happy, is one you can repeat every month.
 

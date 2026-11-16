@@ -8,7 +8,7 @@ hero: hero-gold
 motif: 🍽️
 ---
 
-A table runner is the smartest £20 you can spend on Christmas decor in a small apartment. It is the one decoration that does three jobs at once: it protects a rented table from hot plates and red wine, it sets the colour scheme for the whole meal, and it makes a plain table look dressed without a single extra ornament. Unlike a full tablecloth, it leaves the wood visible at the edges, which matters when your dining table is also your desk, your wrapping station and your breakfast bar. And unlike a centrepiece, it folds flat into a drawer in January.
+A table runner is the smartest £20 you can spend on Christmas decor in a small apartment. It is the one decoration that does three jobs at once: it protects a rented table from hot plates and red wine, it sets the colour scheme for the whole meal, and it makes a plain table look dressed without a single extra ornament. Unlike a full tablecloth, it leaves the wood visible at the edges, which matters when your dining table is also your desk, your [wrapping station](/holiday-gift-wrapping-station-small-apartment-guide/) and your breakfast bar. And unlike [a centrepiece](/small-apartment-christmas-table-setting-ideas/), it folds flat into a drawer in January.
 
 Every runner in this roundup costs $25 or less, and each one was chosen for a small table first. That means lengths that suit a two- or four-seater rather than a banqueting hall, fabrics that survive a washing machine, and colours that work with the warm terracotta, cream and sage palette of a cosy rented flat. Measure your table before you buy: a runner should hang 15 to 30 centimetres over each end, and for a small table that usually means a length of 180 centimetres or under. Pick one that matches your room, lay it down, and the table is dressed in thirty seconds.
 
@@ -92,7 +92,7 @@ A linen runner printed with pine branches, holly or eucalyptus is the botanical 
 
 **Why it works:** It brings the greenery theme onto the table itself, tying the meal to the rest of your festive decor.
 
-**Where it fits:** A table dressed with fresh evergreen and white candles, where the runner echoes the greenery rather than competing with it.
+**Where it fits:** A table dressed with [fresh evergreen](/fresh-evergreen-branch-decor-ideas-small-apartments/) and white candles, where the runner echoes the greenery rather than competing with it.
 
 [Shop pine print linen table runners](https://www.amazon.com/s?k=pine+print+linen+christmas+table+runner&tag={{AMAZON_TAG}})
 
@@ -104,7 +104,7 @@ A gold sequin runner is the glamour pick, and it earns its place because nothing
 
 **Why it works:** It turns candlelight into a feature, making a small table sparkle with almost no other decoration.
 
-**Where it fits:** Christmas Eve drinks or a New Year's Eve table, over a dark tablecloth, with plain white plates and gold cutlery.
+**Where it fits:** Christmas Eve drinks or a [New Year's Eve table](/renter-friendly-new-years-eve-table-decor-ideas/), over a dark tablecloth, with plain white plates and gold cutlery.
 
 [Shop gold sequin table runners](https://www.amazon.com/s?k=gold+sequin+christmas+table+runner&tag={{AMAZON_TAG}})
 

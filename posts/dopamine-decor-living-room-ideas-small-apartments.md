@@ -16,7 +16,7 @@ These ten ideas are all renter-friendly and budget-first. Nothing here needs a d
 
 ![A small living room with a bold colourful sofa and cream walls](/assets/dopamine-decor-living-room-ideas-small-apartments/idea-01.jpg)
 
-A colourful sofa is the fastest way to make a small living room feel joyful. You do not need to buy a new one — a bright throw draped over the back and arms, or a fitted slipcover in a bold colour, does the same job for a fraction of the price. Mustard, teal, terracotta or a deep berry all work beautifully against cream walls, and in a small room one strong colour reads as confident rather than overwhelming. The sofa is the biggest object in the room, so when it is colourful, the whole room feels colourful.
+A colourful sofa is the fastest way to make a small living room feel joyful. You do not need to buy a new one — [a bright throw](/cozy-throw-blankets-renters-under-25/) draped over the back and arms, or a fitted slipcover in a bold colour, does the same job for a fraction of the price. Mustard, teal, terracotta or a deep berry all work beautifully against cream walls, and in a small room one strong colour reads as confident rather than overwhelming. The sofa is the biggest object in the room, so when it is colourful, the whole room feels colourful.
 
 Keep everything else calm for the first week and see how the colour makes you feel. If you love it, add a cushion in a second bright colour. If it feels like too much, fold the throw over one arm instead of the whole sofa. The point of dopamine decor is that it makes you happy — if a colour does not lift your mood, it is the wrong colour for you, no matter how trendy it is. Your sofa, your rules.
 
@@ -40,7 +40,7 @@ Shop your own home before you buy anything: cushions migrate between rooms, and 
 
 ![A joyful gallery wall with colourful art prints in a small living room](/assets/dopamine-decor-living-room-ideas-small-apartments/idea-04.jpg)
 
-A gallery wall is where dopamine decor gets personal. Instead of matching prints in matching frames, fill the wall with things that genuinely make you smile: a postcard from a holiday, a child's drawing, a print in a colour you love, a photo of your favourite place. The mix is the point — a gallery wall of pure joy does not follow a theme, it follows your mood. In a small living room, one full wall of happy art makes the room feel curated rather than cluttered.
+[A gallery wall](/winter-gallery-wall-small-apartment-guide/) is where dopamine decor gets personal. Instead of matching prints in matching frames, fill the wall with things that genuinely make you smile: a postcard from a holiday, a child's drawing, a print in a colour you love, a photo of your favourite place. The mix is the point — a gallery wall of pure joy does not follow a theme, it follows your mood. In a small living room, one full wall of happy art makes the room feel curated rather than cluttered.
 
 Use removable adhesive strips to hang everything, so the wall stays damage-free and you can rearrange whenever the mood strikes. Start by laying the frames on the floor and playing with the arrangement until it feels right, then transfer it to the wall one piece at a time. Leave a little breathing room between frames — a few centimetres of wall showing through keeps the wall feeling joyful rather than chaotic.
 
@@ -80,9 +80,9 @@ You do not need a full rainbow to make it work. Even three colour groups — war
 
 ![Brightly coloured plant pots with green houseplants on a small living room shelf](/assets/dopamine-decor-living-room-ideas-small-apartments/idea-09.jpg)
 
-Plants are already joyful, but bright pots double the effect. A trailing pothos in a coral pot, a snake plant in a mustard pot, a fern in a teal pot — the colour of the pot is as much a part of the display as the plant itself. In a small living room, three plants in three bright pots on one shelf create a focal point that costs almost nothing, especially if you paint plain terracotta pots yourself with leftover paint or sample pots.
+Plants are already joyful, but bright pots double the effect. A trailing pothos in a coral pot, a snake plant in a mustard pot, a fern in a teal pot — the colour of the pot is as much a part of the display as the plant itself. In a small living room, three plants in three [bright pots](/winter-plant-pots-small-apartments-under-25/) on one shelf create a focal point that costs almost nothing, especially if you paint plain terracotta pots yourself with leftover paint or sample pots.
 
-Painting pots is a perfect rainy-afternoon project: one coat of bright paint, a day to dry, and a plain pot becomes a piece of dopamine decor. Keep the plants themselves easy — pothos, snake plants and spider plants thrive on neglect and low light, which is exactly what a small flat offers. The combination of green leaves and bright colour is the happiest thing you can put on a shelf.
+Painting pots is a perfect rainy-afternoon project: one coat of bright paint, a day to dry, and a plain pot becomes a piece of dopamine decor. Keep the plants themselves easy — pothos, snake plants and spider plants thrive on neglect and [low light](/low-light-indoor-plants-dark-apartments/), which is exactly what a small flat offers. The combination of green leaves and bright colour is the happiest thing you can put on a shelf.
 
 ### 10. A Fun Mirror That Bounces Light and Colour
 

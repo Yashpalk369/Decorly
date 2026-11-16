@@ -16,7 +16,7 @@ The rule for winter lighting is simple: several small lights beat one big one. A
 
 ![Warm fairy lights draped along a shelf in a small rental flat](/assets/renter-friendly-winter-lighting-ideas/idea-01.jpg)
 
-Fairy lights are the first thing to try, because they are cheap, instant and impossible to get wrong. Drape a string of warm white fairy lights along the top of a bookshelf, around a window frame, or along a picture rail, and the whole room softens. Battery-operated strings are the renter's best friend: no plug needed, no cable trailing across the room, and most come with a timer that switches them on at dusk and off six hours later. A timer means the flat is already glowing when you walk in.
+Fairy lights are the first thing to try, because they are cheap, instant and impossible to get wrong. Drape a string of warm white [fairy lights](/hang-christmas-lights-rental-guide/) along the top of a bookshelf, around a window frame, or along a picture rail, and the whole room softens. Battery-operated strings are the renter's best friend: no plug needed, no cable trailing across the room, and most come with a timer that switches them on at dusk and off six hours later. A timer means the flat is already glowing when you walk in.
 
 Choose warm white, not cool white — cool white fairy lights look like a hospital corridor, while warm white looks like candlelight. Tuck the battery pack behind a book or a plant so it disappears, and use small removable hooks or a little washi tape to hold the wire in place. One string is a decoration; three strings in different corners is a lighting scheme.
 
@@ -56,7 +56,7 @@ Hang one star in the living room window and one in the bedroom, at slightly diff
 
 ![A light-up eucalyptus garland draped over a doorway in a small rental flat](/assets/renter-friendly-winter-lighting-ideas/idea-06.jpg)
 
-A garland with lights built in does two jobs: it decorates a doorway and it lights it. Drape a eucalyptus or pine garland with warm fairy lights over a door frame, along the top of a bookshelf, or across a mantelpiece, and you have a focal point that glows every evening. Battery-operated garlands are the renter's choice — no plug, no trailing cable, and a timer that handles the switching on and off. Hang it with removable hooks at each end and one in the middle so it does not sag.
+[A garland](/renter-friendly-christmas-garland-ideas/) with lights built in does two jobs: it decorates a doorway and it lights it. Drape a [eucalyptus](/eucalyptus-decor-winter-ideas/) or pine garland with warm fairy lights over a door frame, along the top of a bookshelf, or across a mantelpiece, and you have a focal point that glows every evening. Battery-operated garlands are the renter's choice — no plug, no trailing cable, and a timer that handles the switching on and off. Hang it with removable hooks at each end and one in the middle so it does not sag.
 
 Choose a garland in greenery rather than tinsel if you want it to last all winter: eucalyptus and pine look seasonal without screaming Christmas, so you can put it up in November and leave it until February. Fluff the branches when you hang it, because a squashed garland looks sad and a full one looks expensive. One garland over the living room doorway is enough to change the whole feel of the room after dark.
 
@@ -108,7 +108,7 @@ Warm white, around 2700K, is best for living rooms and bedrooms in winter. It lo
 
 ### Are battery candles safe in a small flat?
 
-Yes — that is the point. Battery candles give you flickering light with no flame, no heat and no smoke, so they are safe around cushions, curtains, pets and children. Choose flickering LED candles inside a lantern or frosted glass for the most realistic effect.
+Yes — that is the point. [Battery candles](/battery-christmas-candles-small-apartments-under-20/) give you flickering light with no flame, no heat and no smoke, so they are safe around cushions, curtains, pets and children. Choose flickering LED candles inside a lantern or frosted glass for the most realistic effect.
 
 ### How many light sources should a small living room have?
 

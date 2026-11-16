@@ -8,7 +8,7 @@ hero: hero-moss
 motif: 🌿
 ---
 
-A wreath is the fastest way to make a small apartment feel like winter has arrived, and it is one of the cheapest decorations you can buy. A good greenery wreath hangs on the inside of a front door, a bedroom door or a blank wall, needs no floor space, and lasts from the first week of December until New Year — or all winter, if you choose one without Christmas-specific details. Every wreath in this roundup costs $25 or less, and each one was chosen for a small space first: light enough for a removable adhesive hook, small enough for a flat door, and simple enough to suit a rented home.
+A wreath is the fastest way to make a small apartment feel like winter has arrived, and it is one of the cheapest decorations you can buy. A good greenery wreath hangs on the inside of [a front door](/decorate-rental-front-door-christmas-guide/), a bedroom door or a blank wall, needs no floor space, and lasts from the first week of December until New Year — or all winter, if you choose one without Christmas-specific details. Every wreath in this roundup costs $25 or less, and each one was chosen for a small space first: light enough for a removable adhesive hook, small enough for a flat door, and simple enough to suit a rented home.
 
 Measure your door before you buy: a wreath of 30 to 45 centimetres suits a standard flat door, while anything larger overwhelms it and anything smaller disappears. Hang it on the inside of the front door if your landlord controls the outside, or on a bedroom door or a living-room wall if the front door is not an option. Pick one that matches your room, hang it in thirty seconds, and the flat is dressed.
 
@@ -16,7 +16,7 @@ Measure your door before you buy: a wreath of 30 to 45 centimetres suits a stand
 
 ![A classic fresh evergreen wreath with pinecones hanging on a small apartment door](/assets/winter-greenery-wreaths-under-25/idea-01.jpg)
 
-A fresh evergreen wreath is the original, and it is still the best: real pine, fir or cedar branches, a pinecone or two, and the smell of a forest every time you open the door. Fresh wreaths cost $15–25 from a florist or a garden centre, last three to four weeks if you mist them every couple of days, and compost cleanly in January. Nothing artificial smells like a real evergreen wreath, and nothing photographs like one either.
+[A fresh evergreen wreath](/fresh-evergreen-branch-decor-ideas-small-apartments/) is the original, and it is still the best: real pine, fir or cedar branches, a pinecone or two, and the smell of a forest every time you open the door. Fresh wreaths cost $15–25 from a florist or a garden centre, last three to four weeks if you mist them every couple of days, and compost cleanly in January. Nothing artificial smells like a real evergreen wreath, and nothing photographs like one either.
 
 **Why it works:** Real greenery brings scent as well as colour, and the natural variation in the branches makes every wreath look handmade.
 
@@ -136,4 +136,4 @@ Three to four weeks if you mist it every couple of days and keep it away from ra
 
 ### Can I leave a greenery wreath up after Christmas?
 
-Yes, if you choose a season-neutral wreath — eucalyptus, magnolia, olive or a minimalist hoop — it looks right all winter. Wreaths with baubles, glitter or explicitly Christmas details should come down in January, but plain greenery works from November to March. For more on keeping greenery fresh, see our guide to [making a fresh Christmas wreath](/make-fresh-christmas-wreath-guide/).
+Yes, if you choose a season-neutral wreath — eucalyptus, magnolia, olive or a minimalist hoop — it looks right all winter. Wreaths with baubles, glitter or explicitly Christmas details should come down in January, but [plain greenery](/keep-cut-christmas-greenery-fresh-guide/) works from November to March. For more on keeping greenery fresh, see our guide to [making a fresh Christmas wreath](/make-fresh-christmas-wreath-guide/).

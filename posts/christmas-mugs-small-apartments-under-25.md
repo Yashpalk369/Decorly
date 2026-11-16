@@ -8,9 +8,9 @@ hero: hero-blush
 motif: ☕
 ---
 
-There is something about a Christmas mug that makes a small apartment feel like a holiday home. You do not need a fireplace, a mantel, or a tree that touches the ceiling. One warm mug, one slow morning, and a little steam curling up past the fairy lights — that is the whole season, really.
+There is something about a Christmas mug that makes a small apartment feel like a holiday home. You do not need a fireplace, a mantel, or a tree that touches the ceiling. One warm mug, one slow morning, and a little steam curling up past the [fairy lights](/hang-christmas-lights-rental-guide/) — that is the whole season, really.
 
-Mugs are also one of the smartest budget buys for renters. They cost less than a wreath, they take up almost no space, and unlike most Christmas decor, you actually use them every single day from the first week of December through to January. A single shelf, a mug tree, or even two hooks under a kitchen cabinet is all the storage they need, and when the season ends they stack neatly into one cupboard box.
+Mugs are also one of the smartest budget buys for renters. They cost less than [a wreath](/winter-greenery-wreaths-under-25/), they take up almost no space, and unlike most Christmas decor, you actually use them every single day from the first week of December through to January. A single shelf, a mug tree, or even two hooks under a kitchen cabinet is all the storage they need, and when the season ends they stack neatly into one cupboard box.
 
 This roundup is built for small spaces and small budgets. Every mug below costs under $25, works for cocoa, tea, coffee, or mulled cider, and earns its place in a tiny kitchen. We have mixed classic ceramic, speckled stoneware, lightweight enamel, and a few playful characters, so whether your style is minimalist sage or full-on reindeer, there is a pick here with your name on it. Prices are approximate at the time of writing, and all of them leave room in the budget for the marshmallows.
 
@@ -50,7 +50,7 @@ For small apartments, the real win is weight and storage. Enamel mugs are feathe
 
 Nothing says December quite like plaid, and this mug doubles down with a removable knit cozy in a chunky cable pattern. The cozy keeps your hands comfortable and your drink warm, and when you slide it off, you have a classic red-and-green plaid mug underneath — two looks for one price, around $13.50. It is the closest thing to wearing a Christmas jumper, for your cocoa.
 
-In a small apartment, the knit cozy does double duty as texture. Set the mug on your coffee table next to a folded throw blanket and it instantly makes a plain corner look styled for the season. The cozy also means you can hold a very hot drink without a handle burn, which matters when your sofa is two steps from your kitchen and you are carrying cocoa across the room.
+In a small apartment, the knit cozy does double duty as texture. Set the mug on your coffee table next to a folded [throw blanket](/cozy-throw-blankets-renters-under-25/) and it instantly makes a plain corner look styled for the season. The cozy also means you can hold a very hot drink without a handle burn, which matters when your sofa is two steps from your kitchen and you are carrying cocoa across the room.
 
 [Shop the plaid Christmas mug with knit cozy on Amazon](https://www.amazon.com/s?k=plaid+christmas+mug+knit+cozy&tag={{AMAZON_TAG}})
 
@@ -70,7 +70,7 @@ Where it fits best is right out in the open. This is not a mug to hide in a cupb
 
 If the reindeer is the life of the party, the snowman is the cosy one. This mug wears a painted carrot nose, coal-button smile, and a little scarf wrapped around its base, and it practically begs to be filled with cocoa and topped with marshmallows. At about $12.49, it is one of the most affordable character mugs you will find, and it holds a generous 12 oz — plenty of room for whipped cream.
 
-In a small apartment, the snowman mug works as a tiny centrepiece. Set it on a tray with a jar of marshmallows and a small candle, and you have a hot cocoa station that fits on a single shelf or the corner of a kitchen counter. When the season ends, it nests inside your other mugs, and its cheerful face makes it the one you will miss most in January.
+In a small apartment, the snowman mug works as a tiny centrepiece. Set it on a tray with a jar of marshmallows and a small candle, and you have a [hot cocoa station](/host-christmas-eve-small-rental-guide/) that fits on a single shelf or the corner of a kitchen counter. When the season ends, it nests inside your other mugs, and its cheerful face makes it the one you will miss most in January.
 
 [Shop the snowman cocoa mug on Amazon](https://www.amazon.com/s?k=snowman+face+christmas+cocoa+mug&tag={{AMAZON_TAG}})
 

@@ -8,7 +8,7 @@ hero: hero-clay
 motif: 🖼️
 ---
 
-A gallery wall is the single best thing you can do for a small apartment in winter. When the days are short and the light is grey, a wall full of art, photos and things you love turns a plain room into a place that feels warm and personal. It costs almost nothing if you use frames you already own, it needs no drilling, and it makes a small space feel finished in a way that no single picture ever can. This guide walks you through the whole job, step by step, in one afternoon.
+A gallery wall is the single best thing you can do for a small apartment in winter. When the days are short and the light is grey, a wall full of art, photos and things you love turns a plain room into a place that feels warm and personal. It costs almost nothing if you use frames you already own, it needs [no drilling](/no-drill-wall-decor-renters/), and it makes a small space feel finished in a way that no single picture ever can. This guide walks you through the whole job, step by step, in one afternoon.
 
 The winter angle matters: a gallery wall built for the cold months should feel warm. Think rich colours, textured frames, photos from summer holidays that remind you of sunshine, and prints that glow a little in lamplight. You are not decorating for a magazine; you are building a wall that makes January feel less grey. Every step below keeps renters in mind — nothing here damages a wall, and everything can come down in minutes when you move.
 
@@ -56,7 +56,7 @@ Work from the centre outwards, hanging your anchor piece first and building arou
 
 ![A gallery wall mixing art prints, photos and small woven objects in a small apartment](/assets/winter-gallery-wall-small-apartment-guide/idea-06.jpg)
 
-The best gallery walls are not all pictures. Mix in a small woven basket, a tiny mirror, a dried flower in a frame, a postcard, a piece of fabric — anything flat enough to hang and light enough for a strip. Objects break up the rectangles and make the wall feel like a collection rather than a display. In winter, natural textures work beautifully: a woven disc, a wooden ornament, a sprig of dried eucalyptus in a small frame. They add warmth that a print alone cannot.
+The best gallery walls are not all pictures. Mix in [a small woven basket](/woven-basket-wall-trailing-plants-guide/), [a tiny mirror](/art-deco-mirrors-small-spaces-under-25/), [a dried flower](/make-dried-flower-wreath-winter-guide/) in a frame, a postcard, a piece of fabric — anything flat enough to hang and light enough for a strip. Objects break up the rectangles and make the wall feel like a collection rather than a display. In winter, natural textures work beautifully: a woven disc, a wooden ornament, a sprig of dried eucalyptus in a small frame. They add warmth that a print alone cannot.
 
 Keep the objects small and light, and give each one the same spacing as the frames around it. One or two objects are enough; more than that and the wall starts to look like a shelf that fell over. The objects should also follow your colour story — a terracotta woven disc fits a terracotta wall, a gold mirror fits a gold wall. If an object does not fit the colours, it will stick out for the wrong reason.
 

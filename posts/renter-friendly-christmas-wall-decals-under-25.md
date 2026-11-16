@@ -8,7 +8,7 @@ hero: hero-sage
 motif: ✨
 ---
 
-Christmas in a rented home is a balancing act. You want the flat to feel properly festive, but every decoration has to come down in January without taking paint, plaster or your deposit with it. Wall decals are one of the easiest wins for renters: they stick on in seconds, fill a blank wall with colour and cheer, and peel off cleanly when the season ends — as long as you choose genuinely removable, peel-and-stick designs rather than permanent vinyl.
+Christmas in a rented home is a balancing act. You want the flat to feel properly festive, but every decoration has to come down in January without taking paint, plaster or your deposit with it. Wall decals are one of the easiest wins for renters: they stick on in seconds, fill a blank wall with colour and cheer, and [peel off](/temporary-wallpaper-renters/) cleanly when the season ends — as long as you choose genuinely removable, peel-and-stick designs rather than permanent vinyl.
 
 Every decal in this roundup costs under $25 for the pack size listed, and every one is made for temporary use on smooth painted walls. A word of caution before you buy: always check whether the price covers a single decal or a whole set, because listings vary — a $9 "tree decal" might be one large tree, while a $12 "snowflake set" could contain fifty pieces. The prices below are for the listed pack size, and we have noted where a set gives you far more pieces than a single statement decal. Stick to removable vinyl or static-cling designs, avoid anything described as permanent adhesive, and test one small piece on a hidden patch of wall first if your paint is matt or freshly applied.
 
@@ -18,7 +18,7 @@ Every decal in this roundup costs under $25 for the pack size listed, and every 
 
 The classic of the category, and for good reason. A large peel-and-stick Christmas tree decal, typically $8–15 for a single tree around 90–120 cm tall, turns a bare wall into a festive focal point without a single nail or hook. Most packs include a decorated tree plus a scattering of bauble and star decals you can arrange around it, so the finished look feels layered rather than flat. The best versions use a low-tack adhesive that grips painted plasterboard and smooth wallpaper but lifts away without residue, which is exactly what a renter needs.
 
-If your flat is too small for a real tree — or your landlord bans them — this is the closest thing to the real deal. Pair it with a few fairy lights draped from [command hooks](https://decorly.homes/command-hook-christmas-decor-renters-under-20) and a stack of wrapped boxes underneath, and guests will barely notice there is no pine in the room. When January comes, peel from a corner slowly and warm the adhesive with a hairdryer on low for a few seconds if anything feels stubborn.
+If your flat is too small for [a real tree](/keep-real-christmas-tree-alive-small-apartment-guide/) — or your landlord bans them — this is the closest thing to the real deal. Pair it with a few fairy lights draped from [command hooks](https://decorly.homes/command-hook-christmas-decor-renters-under-20) and a stack of wrapped boxes underneath, and guests will barely notice there is no pine in the room. When January comes, peel from a corner slowly and warm the adhesive with a hairdryer on low for a few seconds if anything feels stubborn.
 
 **Why it works:** One big decal fills an entire wall for the price of a takeaway coffee run, and the removable adhesive is designed for exactly this kind of short-term use.
 
@@ -32,7 +32,7 @@ If your flat is too small for a real tree — or your landlord bans them — thi
 
 Snowflake sets are the best value in this whole roundup. For $7–12 you usually get a pack of 40–60 individual snowflakes in assorted sizes, which is enough to dress a whole wall, a window surround and a door frame from a single purchase. The flakes are small and light, so they cling well even to slightly textured paint, and because you place each one yourself, you control the density — a gentle scatter over the bedhead or a full blizzard effect across the living room wall.
 
-They also work brilliantly as a supporting act. Layer snowflakes around a larger tree or village decal to tie the whole scheme together, or use the smallest flakes to fill gaps on a gallery wall. White and silver flakes suit a cool, Scandi-inspired scheme, while iridescent ones catch the light beautifully in the evening. Keep a few spares in the packet for touch-ups if one loses its grip mid-season.
+They also work brilliantly as a supporting act. Layer snowflakes around a larger tree or village decal to tie the whole scheme together, or use the smallest flakes to fill gaps on [a gallery wall](/winter-gallery-wall-small-apartment-guide/). White and silver flakes suit a cool, Scandi-inspired scheme, while iridescent ones catch the light beautifully in the evening. Keep a few spares in the packet for touch-ups if one loses its grip mid-season.
 
 **Why it works:** A single cheap set covers a huge area, the pieces are endlessly rearrangeable, and removal is a matter of seconds per flake.
 
@@ -116,7 +116,7 @@ Because the decal stays up for the whole of December, durability matters more he
 
 A set of gold star decals is the most versatile pick in this roundup. For $7–13 you typically get 50–100 stars in mixed sizes, which is enough to cover a whole wall, frame a window, or scatter across a ceiling edge. Gold stars read as festive in December and, unlike a Santa or a tree, they can stay up into January without looking out of season — or come down with everything else in a few minutes.
 
-Use them to fill the gaps other decals leave behind. A trail of stars leading from the front door to the tree, a constellation above the bed, or a border around a mirror all work beautifully. They also pair well with warm white fairy lights, since the metallic gold catches the glow. If your walls are white or cream, choose a slightly deeper antique gold so the stars stand out; on sage or terracotta walls, bright gold pops perfectly.
+Use them to fill the gaps other decals leave behind. A trail of stars leading from [the front door](/decorate-rental-front-door-christmas-guide/) to the tree, a constellation above the bed, or a border around a mirror all work beautifully. They also pair well with warm white fairy lights, since the metallic gold catches the glow. If your walls are white or cream, choose a slightly deeper antique gold so the stars stand out; on sage or terracotta walls, bright gold pops perfectly.
 
 **Why it works:** Stars suit almost any colour scheme, the sets are generous for the price, and they are the easiest decals to place, move and remove.
 

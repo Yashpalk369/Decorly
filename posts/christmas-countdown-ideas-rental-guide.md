@@ -8,7 +8,7 @@ hero: hero-blush
 motif: 📅
 ---
 
-A Christmas countdown is the decoration that gets better every day. Unlike a wreath or a garland, which looks the same on 1 December as it does on the 24th, a countdown changes — a paper link comes off the chain, an envelope opens, a number flips — and that small daily ritual is what makes December feel like a season rather than a single day. In a rental, though, the classic countdown displays are a problem: the beautiful wooden advent calendars need a nail, the hanging pockets need a hook, and the chalkboard versions need a wall you are allowed to paint.
+A Christmas countdown is the decoration that gets better every day. Unlike a wreath or a [garland](/renter-friendly-christmas-garland-ideas/), which looks the same on 1 December as it does on the 24th, a countdown changes — a paper link comes off the chain, an envelope opens, a number flips — and that small daily ritual is what makes December feel like a season rather than a single day. In a rental, though, the classic countdown displays are a problem: the beautiful wooden advent calendars need a nail, the hanging pockets need a hook, and the chalkboard versions need a wall you are allowed to paint.
 
 The good news is that a countdown does not need a single hole in the wall. Every version in this guide hangs from a removable hook, stands on a shelf, sits on a table, or leans against a wall it never touches. They all cost under £20 to make, most of them take an evening or less, and every one of them packs flat in January. Follow the seven steps, pick the format that suits your flat, and you will have a countdown that the whole household looks forward to opening — and a landlord who never knows it was there.
 
@@ -34,7 +34,7 @@ If you do need to hang something, use removable adhesive hooks, and use more of 
 
 A homemade countdown is one of the cheapest decorations you can make, because the supplies are mostly things you already own. For a paper chain you need coloured paper or old magazines, scissors, a stapler or tape, and string. For an envelope wall you need twenty-five small envelopes, a piece of foam board or a cork board, and removable hooks or a picture ledge to stand it on. For a countdown jar you need a jar, twenty-five slips of paper, and a pen. Add a packet of small treats — chocolates, tea bags, tiny ornaments — and the whole project comes in under £20.
 
-Buy the paper in your festive palette rather than a rainbow: two or three colours, red and cream, or green and gold, look deliberate where five colours look like a classroom. If you are short on time, a shop-bought fillable advent calendar — the kind with twenty-four little drawers or pockets — costs £10–15, needs no making at all, and stands on a shelf. It is the honest shortcut, and there is no shame in it: the daily ritual matters more than whether you cut the paper yourself.
+Buy the paper in your festive palette rather than a rainbow: two or three colours, red and cream, or green and gold, look deliberate where five colours look like a classroom. If you are short on time, a shop-bought fillable [advent calendar](/small-apartment-advent-calendar-display-ideas/) — the kind with twenty-four little drawers or pockets — costs £10–15, needs no making at all, and stands on a shelf. It is the honest shortcut, and there is no shame in it: the daily ritual matters more than whether you cut the paper yourself.
 
 ### 4. Build the Countdown in One Evening
 
@@ -48,7 +48,7 @@ For a jar, write twenty-five activities or treats on slips of paper — "watch a
 
 ![Small envelopes filled with treats for a Christmas countdown in a rental](/assets/christmas-countdown-ideas-rental-guide/idea-05.jpg)
 
-The filling is what turns a decoration into a ritual, and the best fillings are small, daily and personal. Chocolates are the classic, but a countdown that only contains chocolate gets boring by day ten. Mix it up: a tea bag, a small candle, a handwritten note, a Christmas joke, a tiny ornament for the tree, a voucher for a film night or a lie-in. If the countdown is for children, add a small Lego piece a day, or a sticker, or a clue to a treasure hunt on Christmas Eve.
+The filling is what turns a decoration into a ritual, and the best fillings are small, daily and personal. Chocolates are the classic, but a countdown that only contains chocolate gets boring by day ten. Mix it up: a tea bag, [a small candle](/battery-christmas-candles-small-apartments-under-20/), a handwritten note, a Christmas joke, [a tiny ornament](/budget-christmas-ornaments-small-trees-under-25/) for the tree, a voucher for a film night or a lie-in. If the countdown is for children, add a small Lego piece a day, or a sticker, or a clue to a treasure hunt on Christmas Eve.
 
 Keep the fillings flat and light if the countdown hangs on a wall — a heavy envelope will pull a removable hook off the paint. Put the bigger treats in the later envelopes, near the bottom of the display where the weight is best supported, and save the best one for the 24th. If your countdown is a paper chain, write a small activity on the inside of each loop instead of a treat — the chain itself is the decoration, and the activity is the reward. A chain that says "bake biscuits" or "walk to see the lights" costs nothing and gets the household doing things together.
 

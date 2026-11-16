@@ -28,7 +28,7 @@ A felt wall tree is a flat tree shape made of green felt, stuck to the wall with
 
 ![A wooden ladder decorated as a Christmas tree with fairy lights and ornaments](/assets/renter-friendly-christmas-tree-alternatives-under-25/idea-02.jpg)
 
-A small wooden ladder, leaned against the wall and dressed with fairy lights and ornaments, is the most stylish tree alternative on this list. A decorative ladder costs $18–25, or use a step ladder you already own, and the rungs become shelves for ornaments, small gifts and candles. It takes up less floor space than a real tree, leans rather than stands, so it cannot topple, and works as a blanket ladder for the other eleven months of the year.
+A small wooden ladder, leaned against the wall and dressed with fairy lights and ornaments, is the most stylish tree alternative on this list. A decorative ladder costs $18–25, or use a step ladder you already own, and the rungs become shelves for ornaments, small gifts and candles. It takes up less floor space than [a real tree](/keep-real-christmas-tree-alive-small-apartment-guide/), leans rather than stands, so it cannot topple, and works as a blanket ladder for the other eleven months of the year.
 
 **Why it works:** It looks intentional rather than like a compromise, and it earns its keep all year as storage and display.
 
@@ -52,7 +52,7 @@ A potted rosemary plant trained into a cone shape is a living Christmas tree tha
 
 ![A bare branch in a tall vase decorated with hanging Christmas ornaments](/assets/renter-friendly-christmas-tree-alternatives-under-25/idea-04.jpg)
 
-A tall bare branch in a vase, hung with ornaments, is the minimalist's tree: sculptural, elegant, and almost free. A branch from a park or garden, a tall vase you already own, and a dozen ornaments you already have are the only ingredients, and the whole thing costs under $10 if you buy the ornaments new. It suits a modern flat far better than a plastic tree, it takes up the footprint of a single vase, and it looks just as good bare in January with a few fairy lights as it does dressed in December.
+A tall bare branch in a vase, hung with ornaments, is the minimalist's tree: sculptural, elegant, and almost free. A branch from a park or garden, a tall vase you already own, and a dozen ornaments you already have are the only ingredients, and the whole thing costs under $10 if you buy the ornaments new. It suits a modern flat far better than a plastic tree, it takes up the footprint of a single vase, and it looks just as good bare in January with a few [fairy lights](/hang-christmas-lights-rental-guide/) as it does dressed in December.
 
 **Why it works:** It turns ornaments into the decoration and the branch into the display, so the focus is on the things you love rather than on a tree shape.
 
@@ -64,7 +64,7 @@ A tall bare branch in a vase, hung with ornaments, is the minimalist's tree: scu
 
 ![A small tabletop Christmas tree decorated with ornaments on a side table](/assets/renter-friendly-christmas-tree-alternatives-under-25/idea-05.jpg)
 
-A mini tabletop tree, 30 to 60 centimetres tall, is the closest thing to a real tree without the floor space. Artificial mini trees cost $10–22, come pre-lit or plain, and sit on a side table, a shelf or a windowsill where a full tree could never go. Choose one with a sturdy base so it cannot be knocked over, and keep the ornaments small — full-size baubles overwhelm a mini tree and drag the branches down. It stores in a shoebox in January, which is the entire point.
+A mini tabletop tree, 30 to 60 centimetres tall, is the closest thing to a real tree without the floor space. Artificial mini trees cost $10–22, come pre-lit or plain, and sit on a side table, a shelf or a windowsill where a full tree could never go. Choose one with a sturdy base so it cannot be knocked over, and keep the ornaments small — full-size baubles overwhelm [a mini tree](/style-mini-christmas-tree-small-apartment-guide/) and drag the branches down. It stores in a shoebox in January, which is the entire point.
 
 **Why it works:** It is a real tree shape at a fraction of the size, so it satisfies the urge for a tree without demanding a corner of the room.
 

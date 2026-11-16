@@ -26,9 +26,9 @@ Why it works: the pale colour brightens a dark winter room, and the texture adds
 
 ![A woven jute rug in natural tones under a coffee table in a small flat](/assets/cosy-winter-rugs-small-rentals-under-25/idea-02.jpg)
 
-A jute rug brings natural texture and warmth to a small room without adding colour, which makes it the easiest rug to live with. The woven fibres feel firm underfoot rather than soft, but they insulate a cold floor surprisingly well, and the natural tone works with every colour scheme from dopamine brights to calm neutrals. Jute is also one of the cheapest rug materials, so a good-sized one fits comfortably under $25.
+A jute rug brings natural texture and warmth to a small room without adding colour, which makes it the easiest rug to live with. The woven fibres feel firm underfoot rather than soft, but they insulate a cold floor surprisingly well, and the natural tone works with every colour scheme from [dopamine brights](/dopamine-decor-living-room-ideas-small-apartments/) to calm neutrals. Jute is also one of the cheapest rug materials, so a good-sized one fits comfortably under $25.
 
-Why it works: the texture adds interest to a plain floor, and the neutral colour lets your cushions and throws do the colour work. Where it fits: under a coffee table in the living room, or in a hallway where its tough fibres handle foot traffic. Avoid jute in damp rooms — it does not like bathrooms — and shake it outside regularly, because it sheds a little when new.
+Why it works: the texture adds interest to a plain floor, and the neutral colour lets your cushions and [throws](/cozy-throw-blankets-renters-under-25/) do the colour work. Where it fits: under a coffee table in the living room, or in [a hallway](/small-apartment-winter-entryway-ideas/) where its tough fibres handle foot traffic. Avoid jute in damp rooms — it does not like bathrooms — and shake it outside regularly, because it sheds a little when new.
 
 [Shop woven jute rugs](https://www.amazon.com/s?k=woven+jute+area+rug+natural+small&tag={{AMAZON_TAG}})
 
@@ -76,7 +76,7 @@ Why it works: the pattern is busy enough to hide real life and calm enough to li
 
 ![A round braided rug in mustard yellow in a small apartment corner](/assets/cosy-winter-rugs-small-rentals-under-25/idea-07.jpg)
 
-A round rug is the secret weapon for small, awkward spaces. A round braided rug in mustard yellow softens a sharp corner, defines a reading nook, or gives a small dining table a focal point, and the round shape breaks up the rectangles that dominate every small flat. Braided rugs are tough, they lie flat, and the mustard colour is a shot of winter sunshine on a grey day. They are also easy to clean — a good shake outside and a vacuum does the job.
+A round rug is the secret weapon for small, awkward spaces. A round braided rug in mustard yellow softens a sharp corner, defines [a reading nook](/cozy-reading-nook-small-apartment-guide/), or gives a small dining table a focal point, and the round shape breaks up the rectangles that dominate every small flat. Braided rugs are tough, they lie flat, and the mustard colour is a shot of winter sunshine on a grey day. They are also easy to clean — a good shake outside and a vacuum does the job.
 
 Why it works: the round shape and the warm colour together make a corner feel intentional instead of leftover. Where it fits: under a small round side table, in a reading corner with a chair and a lamp, or in front of a fireplace that no longer works. Measure the space first — a round rug that is too big overwhelms a corner, while one that is too small looks like a coaster.
 
