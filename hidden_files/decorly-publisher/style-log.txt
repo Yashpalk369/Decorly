@@ -91,3 +91,7 @@ greenery-decor: A Listicle (2026-11-14 winter-plant-shelf-display-ideas-small-ap
 small-spaces: A Listicle (2026-11-15 winter-coffee-table-decor-ideas-small-apartments)
 rental-friendly: B Guide (2026-11-15 host-winter-games-night-small-rental-guide); also A Listicle renter-friendly-christmas-bedroom-decor-ideas same day
 greenery-decor: B Guide (2026-11-15 keep-herbs-alive-indoors-winter-guide); also C Roundup winter-plant-pots-small-apartments-under-25 same day
+# 2026-11-16 run (2/1/2 split):
+small-spaces: B Guide (2026-11-16 christmas-morning-small-apartment-guide); also C Roundup christmas-mugs-small-apartments-under-25 same day
+rental-friendly: B Guide (2026-11-16 host-christmas-eve-small-rental-guide)
+greenery-decor: A Listicle (2026-11-16 winter-succulent-care-ideas-small-apartments); also B Guide keep-fiddle-leaf-fig-alive-winter-guide same day
