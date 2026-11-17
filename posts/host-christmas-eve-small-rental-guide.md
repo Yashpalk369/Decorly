@@ -80,6 +80,15 @@ The ending of a Christmas Eve gathering matters as much as the beginning, becaus
 
 The morning after is the real test of a deposit-safe party. Walk the room slowly with fresh eyes: check the carpet for stains, the walls for scuffs, the table for rings, the hooks for any paint pulled away. Peel the removable hooks off slowly, following the pull tab, and the wall is exactly as it was. Take the fairy lights down, fold the throw, and put the furniture back where it started. A Christmas Eve gathering that leaves no trace is the best kind of hosting in a rental — your guests remember the cocoa and the carols, your landlord remembers nothing at all, and your deposit stays exactly where you left it.
 
+## Shop this look: Christmas Eve hosting basics
+
+- **Flameless LED pillar candles** — candlelight with no flame near a tree or a guest's sleeve. [Shop flameless LED candles](https://www.amazon.com/s?k=flameless+led+pillar+candles+with+timer&tag={{AMAZON_TAG}})
+- **Warm-white fairy lights** — one string along a shelf or window, overhead light off. [Shop warm white fairy lights](https://www.amazon.com/s?k=warm+white+fairy+lights+indoor&tag={{AMAZON_TAG}})
+- **Slow cooker** — keeps the cocoa warm on the lowest heat all evening. [Shop slow cookers](https://www.amazon.com/s?k=slow+cooker+small&tag={{AMAZON_TAG}})
+- **Christmas stockings** — one per guest, light enough for a removable hook. [Shop Christmas stockings](https://www.amazon.com/s?k=christmas+stockings+set+of+6&tag={{AMAZON_TAG}})
+- **Floor cushions** — real seats for guests when the sofa runs out. [Shop floor cushions](https://www.amazon.com/s?k=floor+cushions+seating+set&tag={{AMAZON_TAG}})
+- **Hot cocoa toppings set** — mini marshmallows, cinnamon, sprinkles and candy canes in one buy. [Shop hot cocoa toppings](https://www.amazon.com/s?k=hot+cocoa+toppings+marshmallows+cinnamon&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### How many guests can a small rental hold on Christmas Eve?

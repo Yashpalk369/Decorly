@@ -92,6 +92,14 @@ Winter is the best time to propagate a spare leaf or two, because it costs nothi
 
 A propagation tray takes up no more space than a paperback, needs no special equipment, and turns one plant into three or four by spring. Keep the tray out of direct midday sun until roots appear, then mist the soil lightly once a week. If a leaf shrivels without rooting, it cost you nothing — try another. By the time the days lengthen, your spare rosettes will be ready for their own tiny pots, and you will have doubled your collection for free, which is the most renter-friendly, budget-first outcome of all.
 
+## Shop this look: winter succulent care basics
+
+- **Clip-on LED grow light** — the cheapest fix for short winter days. [Shop clip-on grow lights](https://www.amazon.com/s?k=clip+on+led+grow+light+indoor+plants&tag={{AMAZON_TAG}})
+- **Terracotta pots with drainage holes** — breathable pots that dry out between waterings. [Shop terracotta pots with drainage](https://www.amazon.com/s?k=terracotta+pots+with+drainage+holes+set&tag={{AMAZON_TAG}})
+- **Cactus and succulent soil mix** — gritty, fast-draining, rot-proof. [Shop succulent soil mix](https://www.amazon.com/s?k=cactus+succulent+soil+mix&tag={{AMAZON_TAG}})
+- **Small watering can** — a tiny spout for a once-a-month soak. [Shop small watering cans](https://www.amazon.com/s?k=small+watering+can+indoor+plants&tag={{AMAZON_TAG}})
+- **Tiered plant stand** — every pot gets its share of the brightest window. [Shop tiered plant stands](https://www.amazon.com/s?k=tiered+plant+stand+indoor+small&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### How often should I water succulents in winter?

@@ -79,6 +79,15 @@ Every Christmas morning deserves at least one good photo, and in a small apartme
 Take the photo early, before the gift pile explodes. The best Christmas morning photos are the ones taken in the first ten minutes: everyone in pyjamas, stockings in hand, tree lights glowing, before the wrapping paper takes over. Use the morning light from the window rather than the flash, stand back far enough to include the tree and the stockings, and take several shots — someone will always be blinking. If you want a photo of the whole household together, prop the phone on a stack of books and use the timer; a slightly imperfect timer photo of everyone together beats a perfect photo of half the household.
 
 
+## Shop this look: Christmas morning basics
+
+- **Mini Christmas tree, 2–3 ft** — the right size for a side table, at eye level. [Shop mini Christmas trees](https://www.amazon.com/s?k=mini+christmas+tree+2+3+ft+tabletop&tag={{AMAZON_TAG}})
+- **Battery-operated warm-white fairy lights, 50 count** — one short string makes a small tree glow. [Shop battery fairy lights](https://www.amazon.com/s?k=battery+operated+warm+white+fairy+lights+50&tag={{AMAZON_TAG}})
+- **Removable adhesive hooks** — hang stockings with no holes in the wall. [Shop removable adhesive hooks](https://www.amazon.com/s?k=removable+adhesive+hooks+command+strips&tag={{AMAZON_TAG}})
+- **Knitted Christmas stockings** — chunky, light, and easy to hang from a hook. [Shop knitted Christmas stockings](https://www.amazon.com/s?k=knitted+christmas+stockings+set&tag={{AMAZON_TAG}})
+- **Flameless battery candles, set of 3** — flickering glow with no flame near wrapping paper. [Shop flameless battery candles](https://www.amazon.com/s?k=flameless+battery+candles+set+of+3+timer&tag={{AMAZON_TAG}})
+- **Kraft wrapping paper with red twine** — a matching palette makes a small gift pile look generous. [Shop kraft wrapping paper](https://www.amazon.com/s?k=kraft+wrapping+paper+roll+red+twine&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### How can I decorate a small apartment for Christmas morning without a fireplace?

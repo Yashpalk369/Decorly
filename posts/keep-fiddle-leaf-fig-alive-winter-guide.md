@@ -94,6 +94,15 @@ While you are wiping, do the weekly winter check, which takes about five minutes
 
 If you do find spider mites — fine webs, tiny pale dots on the leaves, a dusty look on the undersides — do not reach for a chemical spray first. Take the plant to the shower or the bath, if you can carry it, and give the leaves a firm rinse with lukewarm water, which washes most of the mites away. Wipe the leaves dry, raise the humidity around the plant, and repeat the rinse once a week for three weeks. Mites hate humidity and love dry air, so the pebble tray from step three is part of the treatment, not just prevention. A plant that is checked weekly, wiped regularly, and kept in stable conditions is a plant that will still be standing — leaves and all — when spring arrives, ready to grow again.
 
+## Shop this look: fiddle leaf fig winter basics
+
+- **LED grow light bar** — ten to twelve hours of steady light on a timer. [Shop LED grow light bars](https://www.amazon.com/s?k=led+grow+light+bar+indoor+plants&tag={{AMAZON_TAG}})
+- **Soil moisture meter** — about the price of a coffee, and it takes the guesswork out of watering. [Shop soil moisture meters](https://www.amazon.com/s?k=soil+moisture+meter+indoor+plants&tag={{AMAZON_TAG}})
+- **Pebble tray** — raises humidity right around the plant, no humidifier needed. [Shop pebble trays for plants](https://www.amazon.com/s?k=pebble+tray+for+houseplants&tag={{AMAZON_TAG}})
+- **Fine mist spray bottle** — morning misting that dries before nightfall. [Shop plant mist spray bottles](https://www.amazon.com/s?k=fine+mist+spray+bottle+plants&tag={{AMAZON_TAG}})
+- **Small hygrometer** — tells you the actual humidity in the room. [Shop room hygrometers](https://www.amazon.com/s?k=small+room+hygrometer+indoor&tag={{AMAZON_TAG}})
+- **Terracotta pot with drainage** — dries out faster than plastic or glazed ceramic in winter. [Shop terracotta pots with drainage](https://www.amazon.com/s?k=terracotta+pot+with+drainage+hole+large&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### How often should I water a fiddle leaf fig in winter?
