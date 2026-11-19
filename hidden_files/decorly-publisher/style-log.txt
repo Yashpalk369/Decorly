@@ -99,3 +99,11 @@ greenery-decor: A Listicle (2026-11-16 winter-succulent-care-ideas-small-apartme
 small-spaces: A Listicle (2026-11-17 celestial-christmas-decor-ideas-small-apartments); also B Guide hide-christmas-presents-small-apartment-guide same day
 rental-friendly: C Roundup (2026-11-17 renter-friendly-hanukkah-decor-under-25); also A Listicle new-years-day-brunch-small-rental-ideas same day
 greenery-decor: C Roundup (2026-11-17 monstera-care-essentials-small-apartments-under-25)
+# 2026-11-18 run (2/1/2 split):
+small-spaces: A Listicle (2026-11-18 funhaus-decor-ideas-small-apartments); also B Guide make-small-apartment-feel-bigger-christmas-guests-guide same day
+rental-friendly: B Guide (2026-11-18 host-new-years-eve-party-small-rental-guide)
+greenery-decor: A Listicle (2026-11-18 bathroom-plant-ideas-small-apartments); also B Guide repot-houseplants-winter-guide same day
+# 2026-11-19 run (1/2/2 split):
+small-spaces: C Roundup (2026-11-19 winter-wall-art-prints-small-apartments-under-25)
+rental-friendly: A Listicle (2026-11-19 winter-self-care-corner-small-rental-ideas); also C Roundup woven-storage-baskets-small-rentals-under-25 same day
+greenery-decor: A Listicle (2026-11-19 winter-plant-care-mistakes-small-apartments); also C Roundup mini-greenhouses-plant-cloches-under-25 same day
