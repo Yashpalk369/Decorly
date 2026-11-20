@@ -107,3 +107,7 @@ greenery-decor: A Listicle (2026-11-18 bathroom-plant-ideas-small-apartments); a
 small-spaces: C Roundup (2026-11-19 winter-wall-art-prints-small-apartments-under-25)
 rental-friendly: A Listicle (2026-11-19 winter-self-care-corner-small-rental-ideas); also C Roundup woven-storage-baskets-small-rentals-under-25 same day
 greenery-decor: A Listicle (2026-11-19 winter-plant-care-mistakes-small-apartments); also C Roundup mini-greenhouses-plant-cloches-under-25 same day
+# 2026-11-20 run (2/2/1 split):
+small-spaces: A Listicle (2026-11-20 afrohemian-bedroom-ideas-small-apartments); also B Guide layer-rugs-small-apartment-winter-guide same day
+rental-friendly: A Listicle (2026-11-20 renter-friendly-warmth-without-paint-ideas); also B Guide winter-proof-rental-kitchen-guide same day
+greenery-decor: B Guide (2026-11-20 grow-microgreens-indoors-winter-guide)
