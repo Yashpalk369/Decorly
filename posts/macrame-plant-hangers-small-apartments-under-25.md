@@ -1,0 +1,183 @@
+---
+title: 9 Macrame Plant Hangers Under $25 for Small Apartments
+date: 2026-11-21
+category: greenery-decor
+tags: macrame plant hanger under $25, hanging plants small apartment, macrame plant holder renter friendly, trailing plants apartment decor, boho plant hanger no drilling
+description: 9 macrame plant hangers under $25 for small apartments — damage-free ways to hang trailing plants, add warmth, and free up every surface.
+hero: hero-clay
+motif: 🧶
+---
+
+Every small flat reaches the same moment: the windowsill is full, the shelves are full, and yet somehow you still want one more plant. The floor is not an option — there is barely room to walk as it is — and drilling a hook into the ceiling is a conversation with your landlord that nobody wants to have. This is exactly where macrame plant hangers earn their keep. They lift your plants into the empty air above your furniture, turn a bare corner into a styled one, and cost less than a takeaway dinner.
+
+A macrame hanger is, at heart, a net of knotted cotton cord that cradles a pot and hangs from a single point. It sounds simple, and it is — which is part of the charm. There are no brackets to install, no screws, and nothing permanent. A command hook on a wall, an S-hook over a door, or a tension rod across a window frame is all the fixing you need, and when you move out, the whole thing comes down in seconds and leaves nothing behind. For renters, that is the whole point: maximum greenery, zero deposit risk.
+
+They are also the kindest way to show off trailing plants. A pothos or a spider plant in a macrame hanger does what it was born to do — spill downwards in a green curtain — instead of sitting on a shelf where its vines have nowhere to go. Hung at different heights, two or three hangers turn a plain wall into a living display that changes as the plants grow. And because the hangers themselves are handmade-looking cotton in warm natural tones, they add texture and softness to a room in a way a metal bracket never will.
+
+This roundup covers nine picks, all under $25, all suited to small flats and rental living. Some hold a single pot; others stack two. Some are long and dramatic with tassels that reach the floor; others are short and neat for a bathroom window. Every one of them hangs without drilling, and every one of them works with the pots you already own. Prices are approximate and will wobble with sales and stock, so treat the $25 cap as a shopping target rather than a guarantee. If your trailing plants need a styling refresh first, our [trailing plants guide for small apartments](/trailing-plants-small-apartment-winter-ideas/) will help you pick the right vines — then come back here and give them somewhere beautiful to hang.
+
+## How to choose the right macrame plant hanger
+
+Start with weight, because that is what decides everything else. A small terracotta pot with a spider plant might weigh a kilo; a large ceramic pot with a wet monstera can weigh five times that. Check the hanger's stated weight limit before you buy, and weigh your pot after watering — wet soil is far heavier than dry. If you are hanging from a command hook, match the hook's rating to the wet weight, not the dry one, and give yourself a safety margin. A hanger that sags or a hook that creeps down the wall overnight is a plant on the floor by morning.
+
+Next, think about where it will hang, because that decides the fixing. A command hook on a smooth wall or a window frame is the easiest option for most renters, and the large picture-hanging strips hold more than you would expect. An S-hook over the top of a door or a cupboard works brilliantly in kitchens and bathrooms. A tension rod wedged across a window recess lets you hang two or three hangers in a row with no adhesive at all, and it comes down in seconds. Curtain rods, exposed pipes and sturdy shelf brackets can all work too — just never hang a heavy pot from anything you have not tested with a gentle tug first.
+
+Pot size matters more than people expect. Macrame hangers are made to fit a range of pot diameters, usually stated in the listing — a hanger designed for a 15 cm pot will swallow a 10 cm pot whole and leave it rattling around, while a pot that is too wide will sit too high and look squeezed. Measure your pot across the top rim, not the base, and check the hanger's fit range. If you are between sizes, size up: a slightly loose hanger can be tightened with a knot, but a too-small one cannot be stretched.
+
+Finally, match the hanger to the plant. Trailing plants — pothos, string of pearls, ivy, spider plants — are the natural partners for macrame, because their vines drape over the sides and hide the cordwork. Upright plants like snake plants and small ferns work too, but they need a shorter hanger so the pot sits at eye level rather than dangling above your head. And if your plant is a heavy drinker that you water often, choose a hanger with a wooden ring or bead detail at the top rather than a metal one, so there is nothing to rust in a humid bathroom.
+
+## 1. Classic single-pot cotton hanger
+
+![Classic single-pot macrame plant hanger with a trailing pothos in a small apartment living room](/assets/macrame-plant-hangers-small-apartments-under-25/idea-01.jpg)
+
+This is the one to buy if you only buy one. The classic single-pot cotton hanger is the design everyone pictures when they hear the word macrame: a wooden ring at the top, four or five cords knotted into a diamond net, and a tassel at the bottom, all in undyed natural cotton. It holds one pot, usually 15 to 20 cm across, and it goes with absolutely everything — boho, Scandinavian, cottage, or a flat that has no particular style at all beyond "plants everywhere".
+
+Why it works: the simplicity is the point. There is nothing to fight with the plant, so the greenery does all the talking, and the neutral cotton disappears against a white or cream wall. The open net means you can lift the pot out for watering without untying anything, and the wooden ring sits neatly on any hook. It is also the cheapest style on this list — often under $10 — which means you can buy three for the price of one statement piece and hang them at staggered heights for a proper display.
+
+Where it fits: beside a window, in the corner of a living room, or at the end of a kitchen counter where a trailing pothos can spill down without getting in the way. Hang it so the bottom of the pot sits at about shoulder height — high enough that the vines clear the furniture, low enough that you can reach it to water without a chair.
+
+Renter tip: if the tassel brushes a radiator or a lampshade, tie it up in a loose knot to shorten it. Nothing is cut, nothing is damaged, and you can let it down again whenever you move the hanger.
+
+Shop this style: [classic single pot macrame plant hanger on Amazon](https://www.amazon.com/s?k=macrame+plant+hanger+single+pot+cotton&tag={{AMAZON_TAG}})
+
+## 2. Double-tier two-pot hanger
+
+![Double-tier macrame plant hanger holding two potted plants at different heights in a small apartment](/assets/macrame-plant-hangers-small-apartments-under-25/idea-02.jpg)
+
+A double-tier hanger is two nets on one cord: a pot at the top, another pot partway down, and a single hanging point for both. It is the best value on this list, because it doubles your plant count without doubling the number of hooks you need — and in a small flat, hooks are a resource worth rationing. For under $25 you get a ready-made vertical display that would take two separate hangers and two separate fixings to copy.
+
+Why it works: the tiered arrangement is naturally flattering. The upper plant trails down past the lower one, the two pots sit at different heights so neither hides the other, and the whole thing reads as one intentional piece rather than two afterthoughts. It also solves the awkward empty space above a sideboard or a desk, where one small hanger would look lost but two stacked pots fill the vertical gap perfectly. Put a trailing plant on top and a bushy one below, and the vines will frame the lower pot like a curtain.
+
+Where it fits: a bare wall beside a bookshelf, the corner of a bedroom, or either side of a window where a single hanger would look lonely. The full length is usually 100 to 120 cm, so measure from your hook to the floor before you buy — you want the bottom pot to clear the furniture below it by at least 15 cm.
+
+Renter tip: the top pot is the awkward one to water, so choose a plant that likes to dry out between waterings, like a spider plant or a pothos. Keep the thirsty fern in the lower pot, where you can reach it easily.
+
+Shop this style: [double tier macrame plant hanger two pots on Amazon](https://www.amazon.com/s?k=double+tier+macrame+plant+hanger+2+pot&tag={{AMAZON_TAG}})
+
+## 3. Long tassel boho fringe hanger
+
+![Long tassel boho macrame plant hanger with fringe and a trailing plant in a cosy apartment corner](/assets/macrame-plant-hangers-small-apartments-under-25/idea-03.jpg)
+
+The long tassel hanger is the drama queen of this roundup. Everything is the same as the classic single-pot design, except the tassel below the pot keeps going — sometimes 40 or 50 cm of loose fringe that sways gently every time someone walks past. It is the most boho thing you can hang in a flat for under $25, and it turns a single plant into a floor-length feature.
+
+Why it works: the fringe fills vertical space that would otherwise sit empty. In a small flat, the gap between a hanging pot and the floor is often a dead zone — too low for a picture, too high for furniture — and a long tassel turns it into part of the display. The movement helps too: a still room feels static, but a tassel that sways in the draught from a window makes the whole corner feel alive. It also pairs beautifully with warm textures — a terracotta pot, a woven basket, a linen cushion — which is exactly the palette most small flats already have.
+
+Where it fits: a high ceiling corner, beside a tall window, or in the empty space at the end of a hallway where nothing else fits. It needs height to work — if your ceilings are low, the tassel will pool on the floor, which looks messy and gets dusty. Measure from the hook to the floor and subtract the pot height; you want at least 30 cm of clear fringe.
+
+Renter tip: if the fringe tangles in a draught, mist it lightly with water and comb it through with your fingers while it is still damp. It dries straight and soft, and the whole thing looks freshly made.
+
+Shop this style: [long tassel boho macrame plant hanger on Amazon](https://www.amazon.com/s?k=long+tassel+boho+macrame+plant+hanger&tag={{AMAZON_TAG}})
+
+## 4. Beaded macrame hanger with wooden beads
+
+![Beaded macrame plant hanger with wooden beads holding a small fern in a bright apartment](/assets/macrame-plant-hangers-small-apartments-under-25/idea-04.jpg)
+
+Wooden beads are the detail that lifts a plain cotton hanger from craft-fair simple to properly styled. They are threaded onto the cords at intervals — a cluster near the ring, a few spaced down the sides — and they add warmth, rhythm and a handmade feel that plain cord alone cannot quite manage. The beads are usually light wood, sometimes stained a warm walnut, and they catch the light in a way that makes the whole hanger look more expensive than it is.
+
+Why it works: beads break up the long vertical lines of the cords, which stops the hanger looking like a plain net and turns it into a piece of decor in its own right. They also suit the terracotta, cream and sage palette that dominates small-flat styling, and they echo the wooden rings and beads on other boho pieces — a wall hanging, a basket, a curtain tie-back — so the room starts to feel coordinated rather than collected at random. For a fern or a small leafy plant, the beads frame the pot beautifully without competing with the foliage.
+
+Where it fits: a bedroom, a reading nook, or anywhere the hanger will be seen up close rather than from across the room. The detail rewards a closer look, so hang it where you actually sit and look at it — beside an armchair, above a bedside table, or in a bathroom where you will notice it every morning.
+
+Renter tip: wooden beads and bathroom steam are not the best of friends, so if the hanger lives in a humid room, wipe the beads dry once a week. A quick wipe keeps them from going grey or rough.
+
+Shop this style: [wooden bead macrame plant hanger on Amazon](https://www.amazon.com/s?k=wooden+bead+macrame+plant+hanger&tag={{AMAZON_TAG}})
+
+## 5. Minimal cotton hanger with wooden ring
+
+![Minimal cotton macrame plant hanger with a wooden ring holding a small potted plant by a window](/assets/macrame-plant-hangers-small-apartments-under-25/idea-05.jpg)
+
+Not every flat wants fringe and beads. The minimal cotton hanger strips macrame back to its essentials: clean straight cords, a simple knot pattern, a smooth wooden ring at the top, and no tassel at all. It is the Scandinavian cousin of the boho classic — quiet, tidy, and designed to disappear so the plant takes centre stage. If your flat leans modern or your walls are already busy, this is the hanger that will not fight them.
+
+Why it works: the minimal design is the most versatile on this list. It suits a snake plant in a white ceramic pot just as well as a trailing pothos, and it looks equally at home in a kitchen, a hallway or a home office — places where a fringed boho piece might feel too casual. The wooden ring is also the strongest hanging point of any style here, because the cords are gathered and knotted directly through it rather than looped over a metal hook, so it sits securely on a command hook or an S-hook without slipping sideways.
+
+Where it fits: a home office desk corner, a hallway, or a kitchen window where you want greenery without visual clutter. Because there is no tassel, it also works in tighter spots — above a radiator cover, beside a tall cupboard — where a longer hanger would brush against something.
+
+Renter tip: the plain cotton shows dust faster than a busy fringe pattern, so give it a shake outside once a month. A lint roller run over the cords takes seconds and keeps the white cotton looking fresh.
+
+Shop this style: [minimal cotton macrame plant hanger wooden ring on Amazon](https://www.amazon.com/s?k=minimal+macrame+plant+hanger+wooden+ring&tag={{AMAZON_TAG}})
+
+## 6. Hanger for trailing plants with open weave
+
+![Open weave macrame plant hanger with trailing pothos vines cascading down in a small apartment](/assets/macrame-plant-hangers-small-apartments-under-25/idea-06.jpg)
+
+An open-weave hanger uses wider gaps between the knots, so the pot sits in a loose, airy net rather than a tight cradle. That matters for trailing plants, because their vines need somewhere to escape: in a tight net the stems get trapped against the cords and grow in odd directions, but in an open weave they spill out freely in every direction and drape over the sides in a proper green waterfall. If your pothos or string of pearls is the star, this is its stage.
+
+Why it works: the open pattern lets light reach the soil and air circulate around the pot, which trailing plants love — they are prone to soggy soil when the pot is wrapped tight, because moisture has nowhere to go. The loose weave also makes the hanger lighter and less visually heavy, so a big trailing plant does not look like it is being strangled by its own support. And because you can see the pot through the gaps, a pretty terracotta or patterned pot becomes part of the display instead of being hidden away.
+
+Where it fits: anywhere a trailing plant deserves the spotlight — a living-room corner, the end of a kitchen shelf, or flanking a window so the vines frame the light. Pair it with our [hanging planters guide for small apartments](/hanging-planters-small-apartments-under-25/) if you want to mix macrame with other hanging styles on the same wall.
+
+Renter tip: when the vines get long enough to reach the floor, train them back up through the weave rather than cutting them. A vine woven through the cords looks deliberate and lush, and it keeps the length under control without a single snip.
+
+Shop this style: [open weave macrame plant hanger trailing plants on Amazon](https://www.amazon.com/s?k=open+weave+macrame+plant+hanger+trailing&tag={{AMAZON_TAG}})
+
+## 7. Short hanger for small pots and shelves
+
+![Short macrame plant hanger holding a small potted succulent above a shelf in a small apartment](/assets/macrame-plant-hangers-small-apartments-under-25/idea-07.jpg)
+
+Short hangers are the unsung heroes of small flats. They are only 40 to 60 cm long, sized for pots of 10 to 15 cm, and they are designed for the spots where a full-length hanger would be absurd — hanging from the underside of a shelf, from a curtain rod over a kitchen sink, or from a hook on the side of a bookcase. They hold one small plant, and they do it exactly where a shelf plant would sit, except floating in the air instead of taking up the shelf.
+
+Why it works: small pots are the ones that clutter surfaces fastest. Three tiny succulents on a shelf leave no room for books; three tiny succulents hanging just below the shelf leave the shelf free and the plants visible. Short hangers also suit the plants that look lost in a big net — a single succulent, a baby spider plant, a small herb — because the proportions are right. The pot fills the net instead of rattling around in it, and the whole thing reads as intentional rather than improvised.
+
+Where it fits: under a kitchen shelf, from a tension rod across a window recess, or in a row of three along a curtain rod for a herb garden that does not eat counter space. They are also the best choice for a bathroom, where a short hanger keeps the plant clear of splashes and within reach for watering.
+
+Renter tip: a row of short hangers on one tension rod is the easiest herb garden a renter can own. Basil, mint and parsley in small pots, all hanging in the window, all within arm's reach of the chopping board — and the rod comes down in seconds when you move.
+
+Shop this style: [short macrame plant hanger small pots on Amazon](https://www.amazon.com/s?k=short+macrame+plant+hanger+small+pot&tag={{AMAZON_TAG}})
+
+## 8. Large statement hanger for big plants
+
+![Large statement macrame plant hanger holding a big leafy plant in a spacious apartment corner](/assets/macrame-plant-hangers-small-apartments-under-25/idea-08.jpg)
+
+Every flat has one plant that outgrew its pot, its shelf and its welcome on the floor — a monstera that now spans a metre, a fiddle leaf that touches the ceiling, a palm that owns the corner. A large statement hanger is built for that plant: thicker cords, a wider net, a reinforced wooden ring, and a weight rating that actually means something. It is the only hanger on this list where you should read the weight limit twice.
+
+Why it works: a big plant in a big hanger is a piece of furniture in its own right. It anchors a room the way a floor lamp or a large print does, and it solves the hardest small-flat problem of all — what to do with a plant that is too big for a shelf and too in the way on the floor. Hung in a corner, a large monstera stops being an obstacle and becomes the feature the whole room is arranged around. The thick cords and wide net also look right at this scale; a delicate hanger under a heavy plant looks wrong and, more importantly, is wrong.
+
+Where it fits: a corner with a high ceiling, beside a sofa, or in the dead space next to a wardrobe where nothing else fits. Measure twice: the pot plus the hanger plus the clearance below it needs a full 150 cm or more, and the hook needs to hold the wet weight with a margin. For anything over 5 kg, use a screw-in ceiling hook only if your tenancy allows it — otherwise, a heavy-duty command hook rated for the weight, on a smooth ceiling or a sturdy beam, is the damage-free option.
+
+Renter tip: water a large hanging plant in place with a long-spout watering can and a tray underneath the pot, and catch the drips before they reach the floor. Lifting a wet 5 kg pot out of its net is a two-person job and a spill waiting to happen.
+
+Shop this style: [large macrame plant hanger big plants on Amazon](https://www.amazon.com/s?k=large+macrame+plant+hanger+big+pot&tag={{AMAZON_TAG}})
+
+## 9. Boho fringe hanger with wooden beads and ring
+
+![Boho fringe macrame plant hanger with wooden beads and ring holding a trailing plant in a warm apartment](/assets/macrame-plant-hangers-small-apartments-under-25/idea-09.jpg)
+
+The last pick is the one that brings everything together: a boho fringe hanger with wooden beads threaded through the cords, a chunky wooden ring at the top, and a generous tassel below the pot. It is the most decorative hanger on this list, and the one that looks most like a piece of handmade craft rather than a plant accessory. If you want a single hanger that does the styling work of three, this is it.
+
+Why it works: the combination of beads, fringe and ring gives the eye three different textures to enjoy, which is why this style photographs so well and why it suits the spot in the flat that guests actually see — the living room, the entryway, the corner by the sofa. The beads add warmth, the fringe adds movement, and the ring adds a clean, finished top that sits neatly on any hook. It is also the most forgiving style for beginners, because the decoration hides any unevenness in the knotting — you would have to look very closely to spot a wobbly knot under all that fringe.
+
+Where it fits: the living room, the entryway, or the bedroom corner where you want one beautiful thing rather than a collection of small ones. Hang it where the light catches the beads in the afternoon, and pair it with a trailing plant so the vines and the fringe mingle into one long, soft cascade.
+
+Renter tip: this is the hanger to buy first if you are only buying one for a visible spot, and the classic single-pot hanger for everywhere else. One statement piece plus a few quiet ones is a better room than nine statement pieces competing for attention.
+
+Shop this style: [boho fringe macrame plant hanger wooden beads on Amazon](https://www.amazon.com/s?k=boho+fringe+macrame+plant+hanger+wooden+beads&tag={{AMAZON_TAG}})
+
+## How to hang macrame without damaging anything
+
+The hanger is only half the purchase; the fixing is the other half, and it is the half that protects your deposit. Command hooks are the renter's best friend here: clean the surface with rubbing alcohol first, press the strip on firmly for thirty seconds, wait an hour before you hang anything, and never exceed the stated weight. When you move out, pull the tab straight down slowly and the hook comes off cleanly.
+
+S-hooks over doors and cupboard tops are the next best option, and they need no adhesive at all. A tension rod across a window recess or between two walls holds two or three light hangers and comes down in seconds. Curtain rods work for short hangers, and a sturdy shelf bracket can hold a surprising amount of weight. What never works is a drawing pin, a nail in plasterboard, or a hook stuck to textured wallpaper — all three will fail, and the last one will take paint with it.
+
+Watering is the other half of damage-free hanging. Always water over a sink or with a tray under the pot, and wait for the drips to stop before you hang the plant back up. A plant that drips onto a wooden floor or a rug will leave a mark long before it leaves a puddle, and a saucer that overflows in a hanger is a stain on the ceiling below if you live in a flat with neighbours underneath.
+
+## Frequently Asked Questions
+
+### How much weight can a macrame plant hanger hold?
+
+Most budget cotton hangers are rated for 2 to 5 kg, which covers a small to medium pot with wet soil. Large statement hangers with thicker cords can hold 7 kg or more. Always check the listing, weigh your pot after watering, and match the hook's rating to the wet weight with a margin to spare. When in doubt, size up.
+
+### Can I hang a macrame plant hanger without drilling?
+
+Yes — that is the whole point for renters. Command hooks on smooth walls, S-hooks over doors, tension rods across window recesses, and sturdy curtain rods all work without a single hole. Avoid adhesive hooks on textured wallpaper or fresh paint, and never hang a heavy pot from a drawing pin or a nail in plasterboard.
+
+### What size pot fits a macrame plant hanger?
+
+Most single-pot hangers fit pots 15 to 20 cm across the top rim, short hangers fit 10 to 15 cm pots, and large statement hangers fit 25 cm pots and up. Measure your pot across the top rim, not the base, and check the hanger's stated fit range before you buy. If you are between sizes, size up — a loose hanger can be tightened with a knot.
+
+### Which plants look best in macrame hangers?
+
+Trailing plants are the natural choice: pothos, spider plants, string of pearls, ivy and philodendron all spill beautifully over the sides. Bushy ferns and small upright plants like snake plants work well in shorter hangers. Avoid very heavy plants and anything that needs daily watering, since lifting a wet pot out of a hanger gets old fast.
+
+### How do I clean a macrame plant hanger?
+
+Shake it outside once a month to dislodge dust, and run a lint roller over the cords if the cotton is white or cream. For a proper wash, soak it in cool water with a little mild detergent, rinse well, and hang it to dry in the open air — never tumble dry it, and never wash a hanger with wooden beads in hot water, as the beads can crack. Untangle the tassel with your fingers while it is still damp.
