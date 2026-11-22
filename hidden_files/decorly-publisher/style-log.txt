@@ -115,3 +115,7 @@ greenery-decor: B Guide (2026-11-20 grow-microgreens-indoors-winter-guide)
 small-spaces: C Roundup (2026-11-21 winter-solstice-decor-ideas-small-apartments-under-25); also A Listicle cosy-winter-bedroom-ideas-small-apartments same day
 rental-friendly: C Roundup (2026-11-21 budget-christmas-gifts-home-decor-lovers-under-25)
 greenery-decor: A Listicle (2026-11-21 snake-plant-care-ideas-small-apartments-winter); also C Roundup macrame-plant-hangers-small-apartments-under-25 same day
+# 2026-11-22 run (1/2/2 split):
+small-spaces: B Guide (2026-11-22 neo-deco-bedroom-ideas-small-apartments)
+rental-friendly: A Listicle (2026-11-22 renter-friendly-kwanzaa-decor-ideas-small-apartments); also B Guide host-boxing-day-gathering-small-rental-guide same day
+greenery-decor: B Guide (2026-11-22 force-hyacinth-bulbs-indoors-winter-guide); also A Listicle christmas-plant-gifts-small-apartments same day
