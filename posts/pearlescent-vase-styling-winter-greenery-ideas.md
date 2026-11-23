@@ -94,6 +94,15 @@ The final idea is a rule rather than an arrangement: never let pearlescent be th
 
 Apply the rule to a plant shelf: one pearlescent vase among three or four matte pots, holding the tallest or most visible stem, with the rest of the shelf in ceramic, terracotta and woven textures. The eye goes to the shimmer first and then travels across the shelf, which is exactly what a good display should do. If you already own a shelf full of matte pots, a single pearlescent vase is the cheapest way to refresh it — one purchase, and the whole shelf looks new.
 
+## Shop this look: Pearlescent vase styling essentials
+
+- **Tall pearlescent bud vase** — one long stem, one vase, and the winter light does the rest. [Shop pearlescent bud vase](https://www.amazon.com/s?k=pearlescent+bud+vase+tall&tag={{AMAZON_TAG}})
+- **Graduated trio of pearlescent vases** — tall, medium and short grouped tight on a shelf. [Shop pearlescent vase set](https://www.amazon.com/s?k=pearlescent+vase+set+of+3&tag={{AMAZON_TAG}})
+- **Amaryllis bulb kit** — grow your own sculpture-like blooms for next month. [Shop amaryllis bulb kit](https://www.amazon.com/s?k=amaryllis+bulb+kit+indoor&tag={{AMAZON_TAG}})
+- **Warm-white micro fairy lights with timer** — the opalescent glass diffuses them into a soft glow. [Shop micro fairy lights](https://www.amazon.com/s?k=warm+white+micro+fairy+lights+battery+timer&tag={{AMAZON_TAG}})
+- **Brass candlesticks** — warm metal grounds the cool pearlescent shimmer. [Shop brass candlesticks](https://www.amazon.com/s?k=brass+candlesticks+taper+pair&tag={{AMAZON_TAG}})
+- **Suction hook** — hangs a small vase in the window, exactly where the light is. [Shop suction hooks](https://www.amazon.com/s?k=suction+hooks+window+heavy+duty&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### Where can I buy a pearlescent vase on a budget?

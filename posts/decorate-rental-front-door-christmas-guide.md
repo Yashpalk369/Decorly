@@ -68,6 +68,16 @@ The takedown is where deposits are lost, and planning it now is what separates a
 
 Photograph the door again once everything is down, and compare it with the photograph you took in step one. Any mark you find, deal with immediately: a Magic Eraser on a scuff, a damp cloth on adhesive residue, a touch of white paint only if the landlord has already approved it. Then store everything in one labelled box — wreath in a bag, garland coiled loosely, lights with the batteries removed — so next December you start from a box rather than from scratch. A rental front door that goes up without damage and comes down without damage is a decoration you can repeat every year, and that is the real budget win.
 
+
+## Shop this look: Rental front door Christmas essentials
+
+- **Over-door wreath hanger, felt-backed** — holds the wreath with no nails, no screws, no adhesive. [Shop over door wreath hangers](https://www.amazon.com/s?k=over+door+wreath+hanger+felt+backed&tag={{AMAZON_TAG}})
+- **Artificial Christmas wreath, 45–60 cm** — the centrepiece, generous on a standard front door. [Shop artificial Christmas wreaths](https://www.amazon.com/s?k=artificial+christmas+wreath+45cm+60cm&tag={{AMAZON_TAG}})
+- **Pre-lit artificial garland** — draped along the top of the frame and down both sides. [Shop pre-lit Christmas garlands](https://www.amazon.com/s?k=pre+lit+artificial+christmas+garland&tag={{AMAZON_TAG}})
+- **Outdoor-rated adhesive hooks** — spaced every thirty to forty centimetres along the frame. [Shop outdoor adhesive hooks](https://www.amazon.com/s?k=outdoor+adhesive+hooks+command+strips&tag={{AMAZON_TAG}})
+- **Outdoor-rated battery fairy lights, warm white** — the evening glow with no extension lead through a window. [Shop outdoor battery fairy lights](https://www.amazon.com/s?k=outdoor+battery+fairy+lights+warm+white+timer&tag={{AMAZON_TAG}})
+- **Coir Christmas doormat** — layered over a patterned rug, it shakes clean with a single lift. [Shop coir Christmas doormats](https://www.amazon.com/s?k=coir+christmas+doormat&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### Will an over-door wreath hanger damage my door?

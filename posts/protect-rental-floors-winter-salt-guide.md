@@ -78,6 +78,15 @@ Photograph the entryway, the hallway, and any spot that already has wear, becaus
 
 No single mat saves a rental floor; the system does. A boot tray at the door, a washable runner beyond it, shoes off as the easy default, same-day wiping, and a photo record at the start and end of winter — together, these cost less than a single professional floor clean and protect the deposit that floor cleaning would be deducted from. Start at the front door this weekend, before the first real snow, and your floors will come out of winter looking like winter never happened.
 
+## Shop this look: Winter floor protection essentials
+
+- **Boot tray with raised lip** — catches meltwater at the exact point it enters the flat. [Shop boot tray](https://www.amazon.com/s?k=boot+tray+raised+lip+ridged&tag={{AMAZON_TAG}})
+- **Machine-washable runner** — catches the second wave of drips and grit down the hallway. [Shop washable runner rug](https://www.amazon.com/s?k=machine+washable+runner+rug+hallway&tag={{AMAZON_TAG}})
+- **Heavy-duty doormat with rubber backing** — takes the salt and water so the carpet underneath stays clean. [Shop heavy-duty doormat](https://www.amazon.com/s?k=heavy+duty+doormat+rubber+backing+low+pile&tag={{AMAZON_TAG}})
+- **Shoe basket** — open storage that makes shoes-off the path of least resistance. [Shop shoe basket](https://www.amazon.com/s?k=shoe+basket+entryway+storage&tag={{AMAZON_TAG}})
+- **Indoor slippers** — waiting in plain sight, so taking boots off feels like a treat. [Shop indoor slippers](https://www.amazon.com/s?k=indoor+slippers+house+warm&tag={{AMAZON_TAG}})
+- **Spray bottle** — keep the vinegar-and-water mix by the door for thirty-second salt clean-ups. [Shop spray bottle](https://www.amazon.com/s?k=spray+bottle+cleaning+labelled&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### Does road salt really damage indoor floors?

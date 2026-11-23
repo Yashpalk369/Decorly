@@ -114,6 +114,15 @@ Make the pouches from kraft envelopes or small drawstring bags, number them 1 to
 
 The countdown works best on a window you see every morning, like the kitchen window, where opening the day's pouch becomes part of the routine. Let children pick the treat inside, or fill the pouches with small acts of kindness — a compliment, a favour, a shared walk — and the window becomes the family's December centrepiece rather than just a decoration. When Christmas Day arrives, the empty pouches come down with the ribbon, fold flat into an envelope, and wait for next year, leaving nothing behind but a clean window.
 
+## Shop this look: Christmas window decor
+
+- **Battery fairy lights, 3 m, 40 LEDs** — warm white with a timer, run around the window frame for the highest-impact decoration on this list. [Shop battery fairy lights](https://www.amazon.com/s?k=battery+operated+warm+white+fairy+lights+40+led&tag={{AMAZON_TAG}})
+- **Static-cling snowflake decals** — stick with static alone, no glue, and peel off clean in January. [Shop static cling snowflake decals](https://www.amazon.com/s?k=static+cling+snowflake+window+decals&tag={{AMAZON_TAG}})
+- **Tension rod** — wedges in the window reveal and holds a garland with no screws or brackets. [Shop tension rods](https://www.amazon.com/s?k=tension+rod+adjustable+window&tag={{AMAZON_TAG}})
+- **Battery window candles, pair with timer** — the warm glow on the sill, with no flame near curtains. [Shop battery window candles](https://www.amazon.com/s?k=flameless+led+window+candles+timer+pair&tag={{AMAZON_TAG}})
+- **Clear suction hooks** — hang baubles and mini wreaths straight from the glass. [Shop suction hooks](https://www.amazon.com/s?k=clear+suction+hooks+window&tag={{AMAZON_TAG}})
+- **Shatterproof baubles** — lightweight, so the suction holds and a drop is no disaster. [Shop shatterproof baubles](https://www.amazon.com/s?k=shatterproof+christmas+baubles+assorted&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### Will Command strips damage my window frames?

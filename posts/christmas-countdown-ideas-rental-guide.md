@@ -68,6 +68,16 @@ The final step is the one renters care about most: taking it down without a trac
 
 If you made a paper chain, save it if you can — a chain that survives the season can be rehung next year, and a reused chain is a tradition rather than a craft project. Envelope boards are the most reusable format of all: swap the envelopes, refill the treats, and the board lasts for years. Store everything flat, in one labelled box or bag, with the hooks and string alongside it, so next December you open the box and the countdown is ready in ten minutes. A countdown that takes an evening to build the first year and ten minutes every year after is the best kind of Christmas decoration: cheap, damage-free, and better the second time around.
 
+
+## Shop this look: Christmas countdown supplies
+
+- **Fillable advent calendar, 24 drawers** — the honest shortcut: stands on a shelf, no making required. [Shop fillable advent calendars](https://www.amazon.com/s?k=fillable+advent+calendar+24+drawers&tag={{AMAZON_TAG}})
+- **Removable adhesive hooks** — one per 30 centimetres spreads the weight of a wall display. [Shop removable adhesive hooks](https://www.amazon.com/s?k=removable+adhesive+hooks+command+strips&tag={{AMAZON_TAG}})
+- **Small envelopes, pack of 25** — one per day, each holding a treat or a note. [Shop small kraft envelopes](https://www.amazon.com/s?k=small+kraft+envelopes+pack+of+25&tag={{AMAZON_TAG}})
+- **Foam board** — the base for an envelope wall that leans against the wall. [Shop foam board sheets](https://www.amazon.com/s?k=foam+board+sheets+craft&tag={{AMAZON_TAG}})
+- **Coloured paper, festive palette** — two or three colours look deliberate where five look like a classroom. [Shop coloured craft paper](https://www.amazon.com/s?k=coloured+craft+paper+red+cream+green&tag={{AMAZON_TAG}})
+- **Suction-cup hooks** — hang a countdown on glass or a mirror with no fixings at all. [Shop suction cup hooks](https://www.amazon.com/s?k=suction+cup+hooks+window&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### Can I hang a Christmas countdown in a rental without damaging the walls?

@@ -94,6 +94,15 @@ Choose a duvet cover in a colour you genuinely like, not a novelty print you wil
 
 Christmas in a rented flat does not have to mean a weekend of decorating, a pile of holes to fill in January, or a nervous wait for the deposit to come back. Ten minutes is genuinely enough: a cushion swap, a jar of lights, a branch in a vase, a tray on the coffee table. Start with the idea that fits the room you spend the most time in, and add one more each evening until the flat feels festive. Your walls will stay pristine, your landlord will never know anything happened, and the only trace of Christmas left behind in January will be the photographs.
 
+## Shop this look: 10-minute Christmas decor
+
+- **Festive cushion covers, envelope-style** — slip them over your everyday pads and the sofa is dressed in minutes. [Shop festive cushion covers](https://www.amazon.com/s?k=festive+cushion+covers+envelope+christmas&tag={{AMAZON_TAG}})
+- **Battery fairy lights** — coil them in a glass jar for an instant glowing centrepiece. [Shop battery fairy lights](https://www.amazon.com/s?k=battery+operated+warm+white+fairy+lights+jar&tag={{AMAZON_TAG}})
+- **Green washi tape** — build a Christmas tree shape on the wall with no damage. [Shop green washi tape](https://www.amazon.com/s?k=green+washi+tape+christmas&tag={{AMAZON_TAG}})
+- **Kraft wrapping paper with red ribbon** — wrap cabinet doors like giant presents. [Shop kraft wrapping paper](https://www.amazon.com/s?k=kraft+wrapping+paper+roll+red+ribbon&tag={{AMAZON_TAG}})
+- **Festive Christmas mugs** — line them up on an open shelf as a display you actually use every morning. [Shop festive Christmas mugs](https://www.amazon.com/s?k=festive+christmas+mugs+set&tag={{AMAZON_TAG}})
+- **Battery candle** — the safe glow for a tray vignette near curtains and cushions. [Shop battery candles](https://www.amazon.com/s?k=flameless+battery+candle+timer&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### Will washi tape damage my walls when I take my Christmas decor down?

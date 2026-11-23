@@ -92,6 +92,15 @@ The best movie nights end without a dreaded hour of cleaning, and that takes fiv
 
 When the credits roll, do a quick three-step reset: cushions back on the sofa, blankets folded into one pile, and the tray carried to the kitchen. The fairy lights come down with a gentle pull on the removable hooks, and the room is back to normal before the kettle boils for a last cup of tea. That is the whole point of a renter-friendly setup — nothing is stuck, screwed or stained, and the deposit stays safe. If you host regularly, keep a small box with the tickets, fairy lights, paper bags and seasonings together so the next movie night sets itself up in minutes. For more ideas on hosting in a small space, see our guide to [hosting a Christmas cookie swap](/host-christmas-cookie-swap-small-rental-guide/) — many of the same tricks apply — and our roundup of [cosy throw blankets for renters](/cozy-throw-blankets-renters-under-25/) to stock up your cushion pile.
 
+## Shop this look: Movie night essentials
+
+- **Floor cushions** — stack two for a backrest against the sofa base. [Shop floor cushions](https://www.amazon.com/s?k=floor+cushions+large+seating&tag={{AMAZON_TAG}})
+- **Mini projector** — point it at the largest blank wall for a cinematic feel. [Shop mini projectors](https://www.amazon.com/s?k=mini+projector+portable&tag={{AMAZON_TAG}})
+- **Bluetooth speaker** — a small one on a cushion adds warmth to thin TV sound. [Shop Bluetooth speakers](https://www.amazon.com/s?k=small+bluetooth+speaker+portable&tag={{AMAZON_TAG}})
+- **Battery fairy lights** — a couple of strings are the only light the room needs. [Shop battery fairy lights](https://www.amazon.com/s?k=battery+operated+fairy+lights+warm+white&tag={{AMAZON_TAG}})
+- **Battery Christmas candles** — flicker like real flames, safe around blankets and cushions. [Shop battery Christmas candles](https://www.amazon.com/s?k=battery+christmas+candles+flameless&tag={{AMAZON_TAG}})
+- **Popcorn kernels** — a bag costs pennies and makes far more than microwave bags. [Shop popcorn kernels](https://www.amazon.com/s?k=popcorn+kernels+popping+corn&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### How many people can I host in a small rental for a movie night?

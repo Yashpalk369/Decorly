@@ -98,6 +98,16 @@ Colourful maximalism in a small apartment is not a contradiction; it is a balanc
 
 If you are working with a single-room layout, our [studio apartment layout ideas](/studio-apartment-layout-ideas/) will help you place the colour so the sleeping, living and working zones each get their own moment without fighting each other. And if your budget is truly tight, remember that the best maximalist rooms are built slowly: a cushion here, a print there, a plant on the windowsill. The colour is the fun part. The calm is the discipline underneath it — and that part is free.
 
+
+## Shop this look: Colourful maximalist essentials
+
+- **Patterned cushion covers** — a large floral with a small stripe, in your three-colour palette. [Shop patterned cushion covers](https://www.amazon.com/s?k=patterned+cushion+covers+terracotta+sage&tag={{AMAZON_TAG}})
+- **Bold patterned rug** — anchors the seating area and pulls all your colours together. [Shop bold patterned rugs](https://www.amazon.com/s?k=bold+patterned+area+rug+terracotta&tag={{AMAZON_TAG}})
+- **Peel-and-stick wallpaper, one roll** — a single feature panel gives the bold moment without touching the landlord's paint. [Shop peel and stick wallpaper](https://www.amazon.com/s?k=peel+and+stick+wallpaper+bold+floral&tag={{AMAZON_TAG}})
+- **Colourful woven storage baskets** — hide the everyday mess while adding another layer of colour. [Shop colourful woven storage baskets](https://www.amazon.com/s?k=colourful+woven+storage+baskets&tag={{AMAZON_TAG}})
+- **Terracotta pots** — cheap, classic and endlessly reusable for plants as living colour. [Shop terracotta plant pots](https://www.amazon.com/s?k=terracotta+plant+pots+set&tag={{AMAZON_TAG}})
+- **Colourful pendant lampshade** — draws the eye upward and makes a low ceiling feel intentional. [Shop colourful pendant lampshades](https://www.amazon.com/s?k=colourful+pendant+lampshade&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### Does maximalism work in a really small flat?

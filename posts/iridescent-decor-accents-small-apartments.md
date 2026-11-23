@@ -116,6 +116,15 @@ Choose abstract art — soft waves, arcs, sunbursts or a simple gradient — rat
 
 One piece is enough for a small bedroom or a hallway; two matching prints side by side work above a sofa. Keep the frame light — white, pale wood or thin gold — so the art feels airy rather than heavy. When you move, the print comes down, the strip peels off, and the wall is exactly as you found it.
 
+## Shop this look: Iridescent accents
+
+- **Pearlescent vase** — one on the windowsill turns daylight into a slow colour show. [Shop pearlescent vases](https://www.amazon.com/s?k=pearlescent+vase+iridescent&tag={{AMAZON_TAG}})
+- **Iridescent candle holders** — a flickering flame makes the colour shift constantly. [Shop iridescent candle holders](https://www.amazon.com/s?k=iridescent+candle+holders+glass&tag={{AMAZON_TAG}})
+- **Shimmer cushion covers** — the fastest, cheapest rescue for a tired landlord-issue sofa. [Shop shimmer cushion covers](https://www.amazon.com/s?k=shimmer+cushion+covers+iridescent&tag={{AMAZON_TAG}})
+- **Starburst mirror** — draws the eye up and bounces light into dim corners. [Shop starburst mirrors](https://www.amazon.com/s?k=starburst+mirror+gold&tag={{AMAZON_TAG}})
+- **Opalescent tray** — gathers the clutter and makes the coffee table read as styled. [Shop opalescent trays](https://www.amazon.com/s?k=opalescent+tray+decorative&tag={{AMAZON_TAG}})
+- **Mother-of-pearl coasters** — small, practical, quietly luxurious. [Shop mother-of-pearl coasters](https://www.amazon.com/s?k=mother+of+pearl+coasters+set&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### Is iridescent decor too much for a small apartment?

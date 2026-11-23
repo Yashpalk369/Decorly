@@ -92,6 +92,15 @@ End the evening with a dessert display that doubles as decoration: a cake stand 
 
 Build the display on a cake stand you already own, or stack a dinner plate on top of an upturned bowl for a makeshift stand. Keep the desserts small and finger-food sized so nobody needs a plate and a fork at midnight, and add a few gold sprinkles or edible glitter for the New Year's Eve sparkle. Clear the candle cluster to the side table before the countdown so the dessert display has the centre of the table to itself.
 
+## Shop this look: New Year's Eve table
+
+- **Black table runner with gold edge** — velvet or satin, it sets the whole black-and-gold scheme in one move. [Shop black and gold table runners](https://www.amazon.com/s?k=black+table+runner+gold+edge+velvet&tag={{AMAZON_TAG}})
+- **Gold pillar and black taper candles** — cluster five to seven at different heights down the centre of the table. [Shop gold and black candles](https://www.amazon.com/s?k=gold+pillar+candles+black+taper+candles&tag={{AMAZON_TAG}})
+- **Champagne coupes** — fill vintage-style coupes with fairy lights for a centrepiece that glows like captured starlight. [Shop champagne coupes](https://www.amazon.com/s?k=vintage+champagne+coupe+glasses+set&tag={{AMAZON_TAG}})
+- **Gold charger plates** — a restaurant look for $2–3 each, and they protect a rented table from hot plates. [Shop gold charger plates](https://www.amazon.com/s?k=gold+charger+plates+plastic+set&tag={{AMAZON_TAG}})
+- **Black velvet napkins with gold napkin rings** — the tactile detail that makes guests feel the evening is special. [Shop velvet napkins and gold rings](https://www.amazon.com/s?k=black+velvet+napkins+gold+napkin+rings&tag={{AMAZON_TAG}})
+- **Mirror tray** — doubles the candlelight and catches the wax. [Shop mirror trays](https://www.amazon.com/s?k=mirror+tray+rectangular+decorative&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### What colours work best for a New Year's Eve table in a rental?

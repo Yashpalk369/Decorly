@@ -94,6 +94,16 @@ The November wreath has a practical advantage too: it buys you time. With the do
 
 November decor fails when it tries to be early Christmas or leftover Halloween. It works when it leans into what November actually is: the month of warm light, heavy textiles, and food cooked slowly. Pick three or four ideas from this list — a throw, a candle ritual, a garland, a bowl of autumn — and the flat will feel finished all month, with nothing to undo when December arrives except to add the Christmas boxes on top of a home that already feels warm.
 
+
+## Shop this look: Cosy November essentials
+
+- **Chunky knit throw, cream or rust** — one heavy knit makes a light summer sofa look winter-ready. [Shop chunky knit throws](https://www.amazon.com/s?k=chunky+knit+throw+blanket+cream&tag={{AMAZON_TAG}})
+- **Battery-operated pillar candles with timer** — the same glow as real candles, switching on every evening by themselves. [Shop battery pillar candles](https://www.amazon.com/s?k=battery+operated+pillar+candles+timer&tag={{AMAZON_TAG}})
+- **Plaid cushion covers, rust and cream** — two covers change the season for under $20. [Shop plaid cushion covers](https://www.amazon.com/s?k=plaid+cushion+covers+rust+cream&tag={{AMAZON_TAG}})
+- **Warm woven rug** — layered over what you have, it insulates the room visually and literally. [Shop warm woven rugs](https://www.amazon.com/s?k=warm+woven+area+rug+rust+terracotta&tag={{AMAZON_TAG}})
+- **Battery-operated fairy lights with timer** — dropped into a mason jar, a lamp that needs no socket. [Shop battery fairy lights](https://www.amazon.com/s?k=battery+operated+fairy+lights+timer+warm+white&tag={{AMAZON_TAG}})
+- **Dried orange garland** — autumnal now, festive in December, and widely sold if you would rather buy than bake. [Shop dried orange garlands](https://www.amazon.com/s?k=dried+orange+slice+garland&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### When should I start decorating for November?

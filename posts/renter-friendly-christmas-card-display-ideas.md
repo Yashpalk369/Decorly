@@ -94,6 +94,15 @@ Choose frames all in one finish — plain wood, black or brass — so the row lo
 
 Christmas cards are small, thoughtful things, and they deserve better than a heap on the sideboard. Any one of these ten ideas will show them off properly without a nail, a screw or a mark on your walls, and most of them cost less than a fiver to set up. Pick the one that fits the space you actually have — a string of lights, a ribbon ladder, a shelf you already own — and let the display grow as the cards arrive. Your walls will thank you in January, and your deposit will too.
 
+## Shop this look: Christmas card display essentials
+
+- **Battery fairy lights** — string them across the wall and peg cards to the glow. [Shop battery fairy lights](https://www.amazon.com/s?k=battery+operated+warm+white+fairy+lights&tag={{AMAZON_TAG}})
+- **Mini wooden pegs** — clip cards to lights, ribbon or twine, and reuse them year after year. [Shop mini wooden pegs](https://www.amazon.com/s?k=mini+wooden+pegs+clothespins+craft&tag={{AMAZON_TAG}})
+- **Festive washi tape** — holds cards to the wall and peels off cleanly in January. [Shop festive washi tape](https://www.amazon.com/s?k=festive+washi+tape+christmas&tag={{AMAZON_TAG}})
+- **Tension rod** — spans a window or alcove with pressure alone, no screws and no marks. [Shop tension rods](https://www.amazon.com/s?k=tension+rod+adjustable+window&tag={{AMAZON_TAG}})
+- **Freestanding cork pinboard** — a proper display surface that never touches the wall at all. [Shop freestanding cork pinboards](https://www.amazon.com/s?k=freestanding+cork+pinboard+desk&tag={{AMAZON_TAG}})
+- **Clip frames** — turn your favourite cards into framed art along the sideboard. [Shop clip frames](https://www.amazon.com/s?k=clip+frames+frameless+acrylic+picture+frames&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### Will washi tape damage my walls or leave marks?

@@ -76,6 +76,15 @@ The best dinner parties end with a clean-up plan, not a mountain of dishes at mi
 
 Do not try to finish everything on the night. Soak the roasting tin, wipe the table, take the rubbish out, and leave the rest for the morning. A small rental kitchen cannot hold a whole dinner party's washing up at once, so work in waves: glasses first, then plates, then pots. Thank your guests at the door, lock up, and go to bed knowing the deposit is safe and the room is already half clean.
 
+## Shop this look: Dinner party essentials
+
+- **Tablecloth** — red wine on a $12 tablecloth is laundry, not a deposit dispute. [Shop tablecloths](https://www.amazon.com/s?k=tablecloth+washable+dinner+party&tag={{AMAZON_TAG}})
+- **Folding chairs** — borrow or buy, so six can sit at one table. [Shop folding chairs](https://www.amazon.com/s?k=folding+chairs+sturdy+dining&tag={{AMAZON_TAG}})
+- **Battery candles** — glow without flames near a tablecloth. [Shop battery candles](https://www.amazon.com/s?k=flameless+battery+candles+led&tag={{AMAZON_TAG}})
+- **Warm-white fairy lights** — one string along a shelf is enough for the whole room. [Shop warm-white fairy lights](https://www.amazon.com/s?k=warm+white+fairy+lights+string&tag={{AMAZON_TAG}})
+- **Coasters** — one under every glass, all evening. [Shop coasters](https://www.amazon.com/s?k=coasters+set+for+drinks&tag={{AMAZON_TAG}})
+- **Trivets** — one under every hot dish. [Shop trivets](https://www.amazon.com/s?k=trivet+hot+dish+heat+resistant&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### How many guests can a small rental handle for a dinner party?

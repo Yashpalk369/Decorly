@@ -78,6 +78,15 @@ Properly stored, dried citrus lasts a full year and often longer, which means th
 
 Drying sounds like a project, but it starts with a single orange, a baking tray, and an oven on its lowest setting. Three hours later you have eight amber slices that glow in a window, scent a room, and cost less than a coffee. That is the whole appeal of dried decor: it turns the cheapest materials in the house into the most personal decorations in it, and it does so without a single purchase, a single hole in the wall, or a single thing that needs storing in a loft until next year.
 
+## Shop this look: Dried citrus and flower essentials
+
+- **Wire cooling rack** — slices dry on a rack, not flat on a tray, so they don't steam and stick. [Shop wire cooling racks](https://www.amazon.com/s?k=wire+cooling+rack+baking&tag={{AMAZON_TAG}})
+- **Baking tray** — the base under the rack for oven-drying citrus low and slow. [Shop baking trays](https://www.amazon.com/s?k=baking+tray+sheet+pan&tag={{AMAZON_TAG}})
+- **Twine** — tie flower bunches for hanging and thread the citrus garland. [Shop twine](https://www.amazon.com/s?k=twine+string+craft+jute&tag={{AMAZON_TAG}})
+- **Flower press** — for pansies, violas and ferns too delicate to hang-dry. [Shop flower presses](https://www.amazon.com/s?k=flower+press+kit&tag={{AMAZON_TAG}})
+- **Muslin bags** — fill with dried peel and spices for simmer-pot sachets. [Shop muslin bags](https://www.amazon.com/s?k=muslin+bags+small+drawstring&tag={{AMAZON_TAG}})
+- **Silica gel packets** — keep stored flowers dry so they last until spring. [Shop silica gel packets](https://www.amazon.com/s?k=silica+gel+packets+for+drying+flowers&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### How long do dried orange slices last?

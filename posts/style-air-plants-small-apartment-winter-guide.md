@@ -76,6 +76,15 @@ Air plants tell you what they need, if you know how to read them. Brown, crispy 
 
 Do not be afraid to move a plant that is unhappy. Air plants are portable by nature — that is their whole advantage in a small apartment. Try a brighter window, a different shelf, a hanging spot instead of a terrarium, and give each new spot two weeks before judging it. A plant that survives its first winter in your flat will thrive for years.
 
+## Shop this look: Air plant winter styling
+
+- **Tillandsia ionantha air plant** — small, tough, and blushes red in bright light — a winter-hardy starter. [Shop tillandsia ionantha](https://www.amazon.com/s?k=tillandsia+ionantha+air+plant+live&tag={{AMAZON_TAG}})
+- **Tillandsia xerographica air plant** — the big sculptural rosette that looks like a silver flower. [Shop tillandsia xerographica](https://www.amazon.com/s?k=tillandsia+xerographica+air+plant+large&tag={{AMAZON_TAG}})
+- **Open glass terrarium globe** — a wide-mouthed globe shows the plants off and still lets air move. [Shop glass terrarium globe](https://www.amazon.com/s?k=open+glass+terrarium+globe+air+plant&tag={{AMAZON_TAG}})
+- **Grow light on a timer** — a few hours a day keeps air plants healthy in a dark winter flat. [Shop grow light](https://www.amazon.com/s?k=grow+light+indoor+plants+timer&tag={{AMAZON_TAG}})
+- **Sphagnum moss** — tucked behind a mounted plant, it holds moisture and gives roots grip. [Shop sphagnum moss](https://www.amazon.com/s?k=sphagnum+moss+air+plant+mounting&tag={{AMAZON_TAG}})
+- **Driftwood mount** — a curved branch turns an air plant into wall art with no shelf space. [Shop driftwood](https://www.amazon.com/s?k=driftwood+branch+air+plant+mount&tag={{AMAZON_TAG}})
+
 ## Frequently asked questions
 
 ### Do air plants need soil?

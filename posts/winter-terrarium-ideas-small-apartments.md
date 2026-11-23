@@ -96,6 +96,15 @@ Keep it in a cool spot — a windowsill is ideal, because the cold glass and the
 
 A terrarium is proof that a small apartment is not a barrier to greenery — it is an invitation to think smaller and more creatively. One jar, one bowl or one teacup is enough for a whole garden, and ten of them together make a flat feel like a greenhouse. Start with one, learn what it needs, and add another when the first one thrives. By spring, your windowsills will be full, and you will wonder why you ever thought you had no room for plants.
 
+## Shop this look: Winter terrarium building
+
+- **Large glass jar with lid** — pebbles, moss and a lid are all a classic moss terrarium needs. [Shop large glass jar](https://www.amazon.com/s?k=large+glass+jar+with+lid+terrarium&tag={{AMAZON_TAG}})
+- **Open glass bowl terrarium** — a wide-mouthed bowl is the classic home for air plants and ferns. [Shop open glass bowl](https://www.amazon.com/s?k=open+glass+terrarium+bowl+plants&tag={{AMAZON_TAG}})
+- **Air plants, set of 3** — two or three air plants need no soil — just air and a weekly mist. [Shop air plants](https://www.amazon.com/s?k=air+plants+live+set+of+3+tillandsia&tag={{AMAZON_TAG}})
+- **Battery fairy lights** — a short string makes an air plant terrarium glow after dark. [Shop battery fairy lights](https://www.amazon.com/s?k=battery+operated+warm+white+fairy+lights&tag={{AMAZON_TAG}})
+- **Cactus soil** — a spoonful of free-draining cactus soil keeps succulents and cacti dry. [Shop cactus soil](https://www.amazon.com/s?k=cactus+succulent+potting+soil+mix&tag={{AMAZON_TAG}})
+- **Miniature fairy garden houses** — a tiny house or two turns a bowl of moss into a whole little world. [Shop miniature house](https://www.amazon.com/s?k=miniature+fairy+garden+house+terrarium&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### How often should I water a terrarium in winter?

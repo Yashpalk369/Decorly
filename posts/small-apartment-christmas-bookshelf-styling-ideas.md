@@ -92,6 +92,15 @@ The most important idea on this list is the one that asks you to do nothing. Lea
 
 This is also the practical shelf: the one that holds the books you actually read in December, the one the children or the cat can reach without knocking a bauble onto the floor. Christmas decorating in a small apartment is an editing exercise, and knowing when to stop is what separates a styled shelf from a cluttered one.
 
+## Shop this look: Christmas bookshelf styling
+
+- **Slim faux pine garland** — draped along the top shelf, it frames the whole bookcase. [Shop faux pine garlands](https://www.amazon.com/s?k=slim+faux+pine+christmas+garland&tag={{AMAZON_TAG}})
+- **Warm-white battery fairy lights** — woven through the garland and behind the books so the shelf glows from within. [Shop battery fairy lights](https://www.amazon.com/s?k=battery+operated+warm+white+fairy+lights+remote+timer&tag={{AMAZON_TAG}})
+- **Mini Christmas tree in a pot** — a tabletop pine or rosemary topiary at eye level on the middle shelf. [Shop mini potted Christmas trees](https://www.amazon.com/s?k=mini+christmas+tree+potted+tabletop&tag={{AMAZON_TAG}})
+- **Tiny ceramic houses** — three or four make a miniature winter village on a single shelf. [Shop miniature ceramic houses](https://www.amazon.com/s?k=miniature+ceramic+christmas+village+houses&tag={{AMAZON_TAG}})
+- **Bottle-brush trees** — a couple beside the houses complete the village scene. [Shop bottle brush trees](https://www.amazon.com/s?k=bottle+brush+christmas+trees+miniature&tag={{AMAZON_TAG}})
+- **Battery tea lights** — one inside a ceramic house makes a window glow. [Shop battery tea lights](https://www.amazon.com/s?k=battery+tea+lights+flameless+set&tag={{AMAZON_TAG}})
+
 ## Frequently asked questions
 
 ### How do I decorate a bookshelf for Christmas without it looking cluttered?

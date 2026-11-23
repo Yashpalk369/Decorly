@@ -84,6 +84,15 @@ Seasonal changes are simple to manage. In winter, move the most light-hungry bas
 
 A woven basket wall with trailing plants is one of those rare projects that is cheap, quick, renter-friendly and genuinely transformative. It brings warmth, texture and living greenery to a wall that was doing nothing, and it does it with materials that cost less than a single framed print. Start with three baskets and one good pothos if you are unsure, and let the wall grow with you — add a basket when you find a beautiful one, swap in a new trailing plant when the mood strikes, and enjoy watching the vines slowly take over. Your blank wall will never look bare again.
 
+## Shop this look: Woven basket wall
+
+- **Seagrass wall baskets** — a pale, fine weave that anchors the Afrohemian mix. [Shop seagrass baskets](https://www.amazon.com/s?k=seagrass+woven+wall+basket+decor&tag={{AMAZON_TAG}})
+- **Jute wall baskets** — a warm, rope-like roughness that contrasts with finer weaves. [Shop jute baskets](https://www.amazon.com/s?k=jute+woven+wall+basket+decor&tag={{AMAZON_TAG}})
+- **Rattan wall baskets** — a darker, more structured pattern to vary the wall. [Shop rattan baskets](https://www.amazon.com/s?k=rattan+woven+wall+basket+decor&tag={{AMAZON_TAG}})
+- **Golden pothos plant** — the classic trailer: fast-growing, low-light tolerant, and lush against weave. [Shop golden pothos](https://www.amazon.com/s?k=golden+pothos+live+plant+hanging&tag={{AMAZON_TAG}})
+- **String of pearls plant** — delicate beaded trails that contrast beautifully with chunky basket weave. [Shop string of pearls](https://www.amazon.com/s?k=string+of+pearls+live+plant+hanging&tag={{AMAZON_TAG}})
+- **Large adhesive hooks, 2–3 kg rated** — one hook per basket holds a basket plus a small plant and damp soil. [Shop adhesive hook](https://www.amazon.com/s?k=large+adhesive+hooks+wall+2+3+kg&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### How many baskets do I need for a basket wall?

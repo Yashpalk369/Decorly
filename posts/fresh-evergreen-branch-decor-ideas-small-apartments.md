@@ -92,6 +92,15 @@ A wall hanging made of branches tied to a wooden dowel is the most artistic idea
 
 Add a few hanging ornaments, dried orange slices or small pinecones tied to the branches, and the wall hanging becomes a full decoration. It takes up no floor space, needs one hook, and comes down in seconds. When the branches dry out, the wall hanging still looks good — dried evergreen keeps its shape and colour for months — so this is the one branch decoration you can leave up well into January. It is also the easiest to make with children, because the tying is simple and the result is forgiving.
 
+## Shop this look: Evergreen branch essentials
+
+- **Tall, slim vase** — one beautiful branch, bare or with miniature ornaments, is the minimalist's Christmas decoration. [Shop tall slim vases](https://www.amazon.com/s?k=tall+slim+vase+glass&tag={{AMAZON_TAG}})
+- **Battery fairy lights** — tuck a short string into the garland for evening glow. [Shop battery fairy lights](https://www.amazon.com/s?k=battery+operated+fairy+lights+warm+white&tag={{AMAZON_TAG}})
+- **Removable adhesive hooks** — hang the window swag with no damage to walls or frames. [Shop removable adhesive hooks](https://www.amazon.com/s?k=removable+adhesive+hooks+command+strips&tag={{AMAZON_TAG}})
+- **Miniature ornaments** — hang two or three from a single-stem vase. [Shop miniature ornaments](https://www.amazon.com/s?k=miniature+christmas+ornaments+small&tag={{AMAZON_TAG}})
+- **Wooden dowel** — the rail for a branch wall hanging. [Shop wooden dowels](https://www.amazon.com/s?k=wooden+dowel+rod+craft&tag={{AMAZON_TAG}})
+- **Battery candles** — the safe choice for a candle surround, convincing from across the room. [Shop battery candles](https://www.amazon.com/s?k=flameless+battery+candles+led&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### How long do fresh evergreen branches last indoors?

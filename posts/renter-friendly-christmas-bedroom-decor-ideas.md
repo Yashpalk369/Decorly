@@ -96,6 +96,15 @@ Dried orange slices are easy to make: slice an orange thinly, bake the slices lo
 
 A renter-friendly Christmas bedroom is not a smaller version of a homeowner's Christmas bedroom — it is a different thing altogether, and in a small room it is often the better one. Everything here hangs, leans, sits or drapes, and everything comes down in January without a mark on the walls. By Christmas Eve, your bedroom will be the cosiest room in the flat — and your deposit will be exactly where you left it.
 
+## Shop this look: Christmas bedroom essentials
+
+- **Large Command hooks** — hang stockings from the wardrobe door with no holes in anything. [Shop large Command hooks](https://www.amazon.com/s?k=large+command+hooks+3m&tag={{AMAZON_TAG}})
+- **Battery-operated warm-white fairy lights** — weave them through a sheer canopy over the bed for a soft glow to fall asleep under. [Shop battery fairy lights](https://www.amazon.com/s?k=battery+operated+warm+white+fairy+lights+timer&tag={{AMAZON_TAG}})
+- **Mini Christmas tree, 60–90 cm** — the right size for the floor beside the bed or a bedside table. [Shop mini Christmas trees](https://www.amazon.com/s?k=mini+christmas+tree+60+90cm+potted&tag={{AMAZON_TAG}})
+- **Peel-and-stick snowflake window clings** — static cling, no adhesive, nothing left behind in January. [Shop snowflake window clings](https://www.amazon.com/s?k=peel+and+stick+snowflake+window+clings+static&tag={{AMAZON_TAG}})
+- **Slim faux evergreen wreath** — hangs on the bedroom door from an over-door hanger, no nails involved. [Shop faux evergreen wreaths](https://www.amazon.com/s?k=slim+faux+evergreen+christmas+wreath&tag={{AMAZON_TAG}})
+- **Flameless battery candles, set of 3** — a safe flicker in glass jars on the nightstand. [Shop flameless battery candles](https://www.amazon.com/s?k=flameless+battery+candles+set+of+3+timer&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### How do I decorate a rented bedroom for Christmas without losing my deposit?

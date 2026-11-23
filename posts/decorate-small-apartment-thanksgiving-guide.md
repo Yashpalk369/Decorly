@@ -76,6 +76,16 @@ The last step of decorating is planning how it all comes down, because in a smal
 
 Keep a note in the box of what you bought, what it cost and what worked, so next year you shop from the box instead of from scratch. The pumpkins and leaves compost, the squash gets cooked, and the things you keep — the runner, the wreath, the [candle holders](/winter-candle-holders-small-apartments-under-25/) — are the start of next year's decor. A fifty-dollar Thanksgiving that leaves you with a box of reusable decorations and no clutter is a better investment than a two-hundred-dollar one that leaves you with bags of glitter and a flat you have to clean for a week.
 
+
+## Shop this look: Thanksgiving table essentials
+
+- **Linen tablecloth, cream or rust** — a warm, plain base layer that makes the table feel prepared. [Shop linen tablecloths](https://www.amazon.com/s?k=linen+tablecloth+cream+rust&tag={{AMAZON_TAG}})
+- **Kraft paper table runner** — a length down the middle as a runner, with the table underneath left bare. [Shop kraft paper table runners](https://www.amazon.com/s?k=kraft+paper+table+runner+roll&tag={{AMAZON_TAG}})
+- **Mini pumpkins, set of 3** — three small pumpkins or squash anchor a low centrepiece. [Shop mini pumpkins](https://www.amazon.com/s?k=mini+pumpkins+decorative+set&tag={{AMAZON_TAG}})
+- **Pillar candles, set of 3** — three or four of different heights on the table and windowsill. [Shop pillar candles](https://www.amazon.com/s?k=pillar+candles+set+of+3+unscented&tag={{AMAZON_TAG}})
+- **Battery candles** — the safe option if your lease bans open flames or candles sit near a tablecloth. [Shop battery candles](https://www.amazon.com/s?k=battery+candles+flameless+timer&tag={{AMAZON_TAG}})
+- **Small Thanksgiving wreath** — hung inside the front door, it dresses the entryway in thirty seconds. [Shop Thanksgiving wreaths](https://www.amazon.com/s?k=thanksgiving+wreath+small+autumn&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### How much should I spend decorating a small apartment for Thanksgiving?

@@ -92,6 +92,16 @@ Finish the room with a moon-phase garland — a string of moons in their differe
 
 Drape it in a gentle swag with the full moon at the centre and the crescent moons tapering away on either side, and let it hang slightly unevenly — a perfect straight line looks stiff, while a soft dip looks natural. With no mantelpiece, a shelf above the sofa works just as well — layer fairy lights behind it so the moons glow. Pair it with a pearlescent vase or two from idea seven, and you have a display that looks styled, for the price of a takeaway.
 
+
+## Shop this look: Celestial Christmas essentials
+
+- **Moon-and-star garland, gold foil** — strung across the window, it frames the view and costs no floor space. [Shop moon and star garlands](https://www.amazon.com/s?k=moon+and+star+garland+gold+foil&tag={{AMAZON_TAG}})
+- **Opalescent baubles, pack of 12** — pearly pink, blue and gold finishes make a mini tree feel finished. [Shop opalescent Christmas baubles](https://www.amazon.com/s?k=opalescent+christmas+baubles+pack&tag={{AMAZON_TAG}})
+- **Tabletop starburst light** — one spiky sputnik-style light throws a starry glow across the room. [Shop starburst table lights](https://www.amazon.com/s?k=starburst+table+light+gold&tag={{AMAZON_TAG}})
+- **Celestial throw pillow covers** — navy embroidered with gold stars, or cream with a crescent moon. [Shop celestial throw pillow covers](https://www.amazon.com/s?k=celestial+throw+pillow+covers+gold+stars&tag={{AMAZON_TAG}})
+- **Gold crescent-moon wall decals** — peel-and-stick moons and stars that come off cleanly in January. [Shop crescent moon wall decals](https://www.amazon.com/s?k=gold+crescent+moon+wall+decals+removable&tag={{AMAZON_TAG}})
+- **Moon-phase garland** — a string of moons from new to full, draped along a shelf or mantel. [Shop moon phase garlands](https://www.amazon.com/s?k=moon+phase+garland+wood+brass&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### Is celestial Christmas decor suitable for a very small flat?

@@ -96,6 +96,16 @@ In a rental, hang the mirror with a heavy-duty removable hook rated for its weig
 
 Dopamine decor is not a style you buy in one trip; it is a feeling you build one happy thing at a time. Start with the idea on this list that made you smile while reading it — the striped rug, the bright lamp, the books sorted by colour — and live with it for a week. If it still makes you happy on day seven, add the next one. A small living room does not need all ten ideas to feel joyful; it needs two or three that are truly yours. The colour, the pattern and the playfulness are just the tools. The happiness is the point.
 
+
+## Shop this look: Dopamine decor essentials
+
+- **Bright throw in mustard, teal or berry** — draped over the sofa, it makes the whole room feel colourful. [Shop bright throws](https://www.amazon.com/s?k=bright+throw+blanket+mustard+teal&tag={{AMAZON_TAG}})
+- **Striped rug, flat-weave cotton** — one purchase, instant energy, and it makes a narrow room feel wider. [Shop striped rugs](https://www.amazon.com/s?k=striped+area+rug+flat+weave+cotton&tag={{AMAZON_TAG}})
+- **Colour-block cushion covers** — three or five in different solid colours, covers not whole cushions. [Shop colour block cushion covers](https://www.amazon.com/s?k=colour+block+cushion+covers+bright&tag={{AMAZON_TAG}})
+- **Peel-and-stick wallpaper, bold print** — one wall behind the sofa, up in an afternoon, off cleanly when you move. [Shop peel and stick wallpaper](https://www.amazon.com/s?k=peel+and+stick+wallpaper+bold+floral&tag={{AMAZON_TAG}})
+- **Bright ceramic table lamp** — colour by day and warm light by night, the jewel of the room. [Shop bright ceramic table lamps](https://www.amazon.com/s?k=bright+ceramic+table+lamp+coral+mustard&tag={{AMAZON_TAG}})
+- **Bright plant pots, set of 3** — a trailing pothos in coral, a snake plant in mustard, a fern in teal. [Shop bright plant pots](https://www.amazon.com/s?k=bright+coloured+plant+pots+set&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### What is dopamine decor?

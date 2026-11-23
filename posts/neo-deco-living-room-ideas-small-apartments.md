@@ -94,6 +94,15 @@ Deco rooms were never lit by a single ceiling bulb, and yours should not be eith
 
 Battery candles are the renter's friend here: they go inside lanterns, on high shelves and in the bar cart without any fire risk, and a set with a timer switches itself on every evening. Save the real candles for the coffee table, where you can see them, and keep them in brass holders so even unlit they contribute to the scheme. Lighting is the least photogenic item on this list and the most transformative in real life — get the light right and the brass, the velvet and the geometry all look twice as expensive.
 
+## Shop this look: Neo Deco living room essentials
+
+- **Brass sunburst mirror** — the fastest way to make a small living room feel deco. [Shop brass sunburst mirror](https://www.amazon.com/s?k=brass+sunburst+mirror+wall&tag={{AMAZON_TAG}})
+- **Velvet cushion covers, emerald or sapphire** — jewel-tone drama with no deposit risk. [Shop velvet cushion covers](https://www.amazon.com/s?k=velvet+cushion+covers+emerald+sapphire&tag={{AMAZON_TAG}})
+- **Brass floor lamp with geometric shade** — warm light and style in a single slim purchase. [Shop brass floor lamp](https://www.amazon.com/s?k=brass+floor+lamp+geometric+shade&tag={{AMAZON_TAG}})
+- **Fan-pattern peel-and-stick wallpaper** — frames the television wall and comes down cleanly. [Shop fan-pattern peel-and-stick wallpaper](https://www.amazon.com/s?k=fan+pattern+peel+and+stick+wallpaper+gold&tag={{AMAZON_TAG}})
+- **Brass bar cart, two-tier** — drinks station, display shelf and sculpture in one corner. [Shop brass bar cart](https://www.amazon.com/s?k=brass+bar+cart+two+tier+glass&tag={{AMAZON_TAG}})
+- **Marble-look tray** — contains the coffee-table vignette, and guests notice it first. [Shop marble-look tray](https://www.amazon.com/s?k=marble+look+tray+decorative&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### Is Neo Deco renter-friendly?

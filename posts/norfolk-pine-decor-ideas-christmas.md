@@ -92,6 +92,15 @@ The best Norfolk pine decor idea is the one that happens in January. Once the de
 
 January care is simple but important. Move the tree to its brightest spot, keep it away from radiators and cold draughts, and water when the top few centimetres of soil feel dry — usually every ten to fourteen days in winter. Feed it lightly from spring onwards with a half-strength liquid houseplant feed once a month, and mist the foliage occasionally if your flat is centrally heated, since Norfolk pines love humidity and dry air is their biggest enemy indoors. With that routine, a Norfolk pine can grow thirty centimetres a year and live for decades, becoming a family Christmas tree that gets a little grander every December. That is the real magic of a living tree: the decorations change every year, but the tree itself is the tradition.
 
+## Shop this look: Norfolk pine Christmas decor
+
+- **Miniature baubles, pack of 12 or 20** — light enough for soft branches, in a tight palette. [Shop miniature baubles](https://www.amazon.com/s?k=miniature+christmas+baubles+pack&tag={{AMAZON_TAG}})
+- **Battery-operated warm-white fairy lights** — no cables, no socket hunting, cool-running for a living tree. [Shop battery fairy lights](https://www.amazon.com/s?k=battery+operated+warm+white+fairy+lights+micro+led&tag={{AMAZON_TAG}})
+- **Woven seagrass basket** — drop the nursery pot inside something beautiful. [Shop seagrass basket planter](https://www.amazon.com/s?k=woven+seagrass+basket+planter&tag={{AMAZON_TAG}})
+- **Terracotta pot, one size larger** — warm clay that complements the soft green needles. [Shop terracotta pots](https://www.amazon.com/s?k=terracotta+pot+with+drainage+hole&tag={{AMAZON_TAG}})
+- **Battery tea lights in glass holders** — a cluster around the tree, safe beside foliage. [Shop battery tea lights](https://www.amazon.com/s?k=battery+tea+lights+glass+holders&tag={{AMAZON_TAG}})
+- **Cream knitted tree skirt** — finishes the Scandi look without adding clutter. [Shop knitted tree skirt](https://www.amazon.com/s?k=cream+knitted+christmas+tree+skirt&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### How do you decorate a Norfolk pine for Christmas without damaging it?

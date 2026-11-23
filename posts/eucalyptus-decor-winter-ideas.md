@@ -94,6 +94,15 @@ Wrap the stems in damp paper towel inside the brown paper if the bunch will trav
 
 The real lesson of eucalyptus is not any single idea on this list — it is that one bunch, divided thoughtfully, decorates a whole flat. Shower, vase, shelf, table, door, bedroom jar: six places from one purchase, each taking a few stems and a few minutes. Buy the bunch this week, while it is fresh and cheap, and let winter smell like you meant it to.
 
+## Shop this look: Eucalyptus essentials
+
+- **Fresh eucalyptus bunch** — one bunch decorates the shower, vase, shelf, table, door and bedroom jar. [Shop fresh eucalyptus bunches](https://www.amazon.com/s?k=fresh+eucalyptus+bunch+stems&tag={{AMAZON_TAG}})
+- **Tall vase** — long stems fan out at the top and stand upright at the base. [Shop tall vases](https://www.amazon.com/s?k=tall+vase+cylinder+glass&tag={{AMAZON_TAG}})
+- **Wire wreath base** — wire small bundles around it in one direction for a full door wreath. [Shop wire wreath bases](https://www.amazon.com/s?k=wire+wreath+base+frame&tag={{AMAZON_TAG}})
+- **Removable adhesive hooks** — hang the wreath renter-safe, with no holes in the wall. [Shop removable adhesive hooks](https://www.amazon.com/s?k=removable+adhesive+hooks+command+strips&tag={{AMAZON_TAG}})
+- **Eucalyptus essential oil** — a single drop revives the scent of dried stems. [Shop eucalyptus essential oil](https://www.amazon.com/s?k=eucalyptus+essential+oil&tag={{AMAZON_TAG}})
+- **Wide, shallow bowl** — sprigs float on the surface instead of sinking. [Shop shallow bowls](https://www.amazon.com/s?k=wide+shallow+bowl+centrepiece&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### How long does fresh eucalyptus last?

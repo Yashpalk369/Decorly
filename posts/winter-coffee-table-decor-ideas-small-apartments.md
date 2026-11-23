@@ -96,6 +96,15 @@ A clear centre makes the whole arrangement look calmer, because the eye has some
 
 A winter coffee table does not need to look like a magazine spread. It needs to hold your tea, survive a board game night, and make you smile when you sit down at the end of the day. Start with a tray, add a candle and a book, and let the rest build slowly over the season.
 
+## Shop this look: Winter coffee table layers
+
+- **Wooden tray** — one tray gathers the decor and protects the table from rings and wax. [Shop wooden tray](https://www.amazon.com/s?k=wooden+decorative+tray+coffee+table&tag={{AMAZON_TAG}})
+- **Pillar candles, set of 3 heights** — three heights grouped close together multiply the glow. [Shop pillar candles](https://www.amazon.com/s?k=pillar+candles+set+of+3+different+heights&tag={{AMAZON_TAG}})
+- **Battery candles with flickering flame** — the same warm glow with none of the worry around pets or soft furnishings. [Shop battery candles](https://www.amazon.com/s?k=flameless+battery+candles+flickering+flame+set&tag={{AMAZON_TAG}})
+- **Battery fairy lights** — a short string coiled in a glass jar is the small-apartment answer to a fireplace. [Shop battery fairy lights](https://www.amazon.com/s?k=battery+operated+warm+white+fairy+lights&tag={{AMAZON_TAG}})
+- **Woven table runner, cream or terracotta** — laid flat under your decor, it softens the table and ties the room together. [Shop woven table runner](https://www.amazon.com/s?k=woven+table+runner+cream+terracotta&tag={{AMAZON_TAG}})
+- **Small vase** — a slim vase holds one evergreen stem or a few bare winter branches. [Shop small vase](https://www.amazon.com/s?k=small+bud+vase+ceramic+slim&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### How do I style a coffee table in a very small apartment?

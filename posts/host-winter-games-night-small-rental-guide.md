@@ -90,6 +90,15 @@ The deposit checklist is short: no stains on the carpet or sofa, no marks on the
 
 A big house with a games night feels empty; a small rental with six friends around a coffee table feels full in the best way. The closeness is the point — everyone can hear each other and reach the board. You do not need more space, more furniture or more money: just the right games, enough seats, snacks that will not stain, and neighbours who were warned in advance. Get those four things right and a winter games night in a small rental will be the best night in of the season.
 
+## Shop this look: Games night essentials
+
+- **Codenames board game** — a quick party game with a small footprint. [Shop Codenames](https://www.amazon.com/s?k=codenames+board+game&tag={{AMAZON_TAG}})
+- **Pack of playing cards** — one pack covers dozens of games on its own. [Shop playing cards](https://www.amazon.com/s?k=playing+cards+pack&tag={{AMAZON_TAG}})
+- **Dice set** — cards plus dice cover dozens of games. [Shop dice sets](https://www.amazon.com/s?k=dice+set+board+games&tag={{AMAZON_TAG}})
+- **Folding chair** — bring one per guest to fill the gaps without buying furniture. [Shop folding chairs](https://www.amazon.com/s?k=folding+chairs+portable&tag={{AMAZON_TAG}})
+- **Small Bluetooth speaker** — plenty for a small room, with no noise-complaint risk. [Shop Bluetooth speakers](https://www.amazon.com/s?k=small+bluetooth+speaker&tag={{AMAZON_TAG}})
+- **Battery lantern** — light aimed at the table without flooding the room. [Shop battery lanterns](https://www.amazon.com/s?k=battery+lantern+led+portable&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### How many people can I host for a games night in a small rental?

@@ -94,6 +94,16 @@ A village is only as good as its lighting, and in a rented flat that means batte
 
 Storage is the part everyone forgets until Twelfth Night, so plan it now. Wrap each house in a square of tissue paper or an old tea towel, pack them upright in a sturdy box with the trees and the snow in a labelled bag, and keep the batteries out of the compartments so they cannot leak over the summer. A single shoebox holds a small village easily, and because you built the display on a tray or a felt base, the whole scene can be lifted into the box in one piece. Our guide to [storing Christmas decor in a small rental](/store-christmas-decor-small-rental-ideas/) covers the rest. Come next November, the box opens, the lights go on, and the village is back — a little bigger, if you found a new house in the meantime. For glow without any flame at all, see our [battery Christmas candles for small apartments](/battery-christmas-candles-small-apartments-under-20/).
 
+
+## Shop this look: Miniature Christmas village essentials
+
+- **Miniature Christmas village houses, set of 3–6** — a church, two or three cottages and a tree make a complete scene. [Shop miniature Christmas village houses](https://www.amazon.com/s?k=miniature+christmas+village+houses+ceramic&tag={{AMAZON_TAG}})
+- **Battery-operated warm-white fairy lights** — no socket, no cable, with a timer that switches off after six hours. [Shop battery fairy lights](https://www.amazon.com/s?k=battery+operated+warm+white+fairy+lights+timer&tag={{AMAZON_TAG}})
+- **Wooden tray with raised edge** — the whole village lifts off the coffee table in under ten seconds. [Shop wooden serving trays](https://www.amazon.com/s?k=wooden+tray+raised+edge+serving&tag={{AMAZON_TAG}})
+- **Bottle-brush trees** — tuck a few between the houses to fill out the scene. [Shop bottle brush Christmas trees](https://www.amazon.com/s?k=bottle+brush+christmas+trees+mini&tag={{AMAZON_TAG}})
+- **Fake snow, bag** — a pinch under the houses stands in for a snowy street. [Shop fake snow for Christmas village](https://www.amazon.com/s?k=fake+snow+christmas+village+decoration&tag={{AMAZON_TAG}})
+- **Glass cloche dome** — one scene under glass looks deliberate and keeps dust and cats out. [Shop glass cloche domes](https://www.amazon.com/s?k=glass+cloche+dome+with+wooden+base&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### How many houses do I need for a small-space Christmas village?

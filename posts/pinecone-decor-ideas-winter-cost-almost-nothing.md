@@ -92,6 +92,15 @@ Line a windowsill with pinecones and pillar candles — alternating cone, candle
 
 Keep the candles in glass holders so the wax never reaches the sill, and use battery candles if the sill is narrow or within reach of curtains. A row of cones and candles along a sill is the simplest version of winter decorating there is: two objects, one surface, no skill required.
 
+## Shop this look: Pinecone decor supplies
+
+- **Hot glue gun** — the fastest way to attach cones to a wreath form. [Shop glue gun](https://www.amazon.com/s?k=hot+glue+gun+craft+small&tag={{AMAZON_TAG}})
+- **Wire wreath form** — pack pinecones tightly so no form shows through. [Shop wire wreath form](https://www.amazon.com/s?k=wire+wreath+form+metal+ring&tag={{AMAZON_TAG}})
+- **Glass lantern** — fill with small cones and a battery candle for a winter light. [Shop glass lantern](https://www.amazon.com/s?k=glass+lantern+candle+holder&tag={{AMAZON_TAG}})
+- **Battery candle** — glow through the pinecone scales with no fire risk. [Shop battery candles](https://www.amazon.com/s?k=battery+candles+flameless+timer&tag={{AMAZON_TAG}})
+- **Pillar candle** — the centrepiece's height and warm glow at dinner. [Shop pillar candles](https://www.amazon.com/s?k=pillar+candles+white+unscented&tag={{AMAZON_TAG}})
+- **Jute twine** — thread through the scales to string a garland or hang ornaments. [Shop jute twine](https://www.amazon.com/s?k=jute+twine+craft+string&tag={{AMAZON_TAG}})
+
 ## Frequently asked questions
 
 ### Where can I find pinecones for free?

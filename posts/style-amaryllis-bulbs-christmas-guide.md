@@ -94,6 +94,15 @@ Keep watering and feeding the plant through spring and summer as if it were an o
 
 In early autumn, stop watering and let the leaves die back naturally over about eight weeks, then cut off the dead foliage and store the bulb somewhere cool, dark and dry — a cupboard or a garage shelf works well. Rest it for eight to ten weeks, then repot it in fresh compost in early November and start the cycle again. The second-year flowers may be slightly smaller than the first, but a bulb that has been fed well through the summer will often surprise you with two stems. Even if you decide not to keep it, the pot, the stake and the compost can all be reused, so the only real cost of next Christmas's display is a new bulb.
 
+## Shop this look: Amaryllis Christmas display
+
+- **Large amaryllis bulbs, 30–32 cm** — a bigger bulb usually gives two flower stems with four blooms each. [Shop large amaryllis bulbs](https://www.amazon.com/s?k=amaryllis+bulbs+large+30+32+cm+red&tag={{AMAZON_TAG}})
+- **Terracotta pot, 15–18 cm** — a snug, heavy pot keeps a top-heavy stem stable on a windowsill. [Shop terracotta pot](https://www.amazon.com/s?k=terracotta+pot+15+18+cm+drainage+hole&tag={{AMAZON_TAG}})
+- **Bamboo cane plant stakes** — one slim cane, tied in two places, stops a tall stem toppling. [Shop bamboo cane](https://www.amazon.com/s?k=bamboo+cane+plant+stakes+support&tag={{AMAZON_TAG}})
+- **Soft garden twine** — a loose figure-of-eight loop holds the stem without cutting into it. [Shop garden twine](https://www.amazon.com/s?k=soft+garden+twine+plant+ties&tag={{AMAZON_TAG}})
+- **Woven basket cachepot** — slip the nursery pot inside for a rustic look, lined with a saucer. [Shop woven basket](https://www.amazon.com/s?k=woven+basket+planter+cachepot&tag={{AMAZON_TAG}})
+- **Clip-on grow light** — a cheap light fills the gap when winter windows give too little sun. [Shop clip-on grow light](https://www.amazon.com/s?k=clip+on+grow+light+indoor+plants&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### How long do amaryllis flowers last indoors?

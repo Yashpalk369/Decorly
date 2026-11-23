@@ -92,6 +92,15 @@ The cheapest idea on this list costs nothing at all: close the curtains the mome
 
 Make it a habit rather than a chore — close them when you turn the lights on, open them when you make the morning coffee. In a small rental this one habit can make the difference between a room that feels cold at 9pm and one that feels cosy. It also protects the curtains themselves: sun-faded fabric is a deposit question nobody needs.
 
+## Shop this look: Winter curtain essentials
+
+- **Thermal curtains** — a thick woven backing that seals the cold air behind the glass. [Shop thermal curtains](https://www.amazon.com/s?k=thermal+curtains+insulated+blackout&tag={{AMAZON_TAG}})
+- **Tension rod** — wedges inside the window frame with spring pressure, no screws needed. [Shop tension rods](https://www.amazon.com/s?k=tension+rod+adjustable+curtain&tag={{AMAZON_TAG}})
+- **Clip-on thermal curtain lining** — adds the insulating layer to curtains you already love, nothing to sew. [Shop thermal curtain linings](https://www.amazon.com/s?k=clip+on+thermal+curtain+lining&tag={{AMAZON_TAG}})
+- **Sheer curtain** — a second layer that traps still air behind the heavy curtain. [Shop sheer curtains](https://www.amazon.com/s?k=sheer+curtains+white+voile+panels&tag={{AMAZON_TAG}})
+- **Static-cling window film** — a removable insulating layer on the glass itself, no adhesive. [Shop static cling window film](https://www.amazon.com/s?k=static+cling+window+film+insulating&tag={{AMAZON_TAG}})
+- **Magnetic tape** — seals the curtain sides flat against the frame to stop side draughts. [Shop magnetic tape](https://www.amazon.com/s?k=magnetic+tape+adhesive+strip&tag={{AMAZON_TAG}})
+
 ## Frequently asked questions
 
 ### Can I hang thermal curtains in a rental without drilling?

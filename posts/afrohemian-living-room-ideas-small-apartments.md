@@ -92,6 +92,16 @@ Afrohemian rooms come alive in warm light, and lighting is where the style's ear
 
 A woven pendant shade costs $15–30 and is renter-friendly if it hangs from an existing ceiling hook or a plug-in swag cord, with no wiring needed. Battery candles are the safe choice in a small room full of textiles — they give the same flicker without the fire risk — and a string of warm fairy lights along a shelf or a basket wall adds a soft glow for pennies. Keep the overhead light off in the evenings and let the lamps and candles do the work; the room will look twice as expensive.
 
+
+## Shop this look: Afrohemian living room essentials
+
+- **Mudcloth pillow covers, black and cream** — two or three on a plain sofa set the whole tone. [Shop mudcloth pillow covers](https://www.amazon.com/s?k=mudcloth+pillow+covers+black+cream&tag={{AMAZON_TAG}})
+- **Flat woven baskets, set of 5–7** — seagrass, sisal and raffia in natural, black and ochre for a basket wall. [Shop woven basket wall decor](https://www.amazon.com/s?k=flat+woven+basket+wall+decor+set&tag={{AMAZON_TAG}})
+- **Carved wood side table** — one handcrafted piece anchors the room beside the sofa. [Shop carved wood side tables](https://www.amazon.com/s?k=carved+wood+side+table&tag={{AMAZON_TAG}})
+- **Jute rug, 120 x 180 cm** — natural fibre that grounds the seating area for under $60. [Shop jute area rugs](https://www.amazon.com/s?k=jute+area+rug+120x180&tag={{AMAZON_TAG}})
+- **Mudcloth wall hanging** — a genuine panel about a metre wide becomes the room's artwork. [Shop mudcloth wall hangings](https://www.amazon.com/s?k=mudcloth+wall+hanging+panel&tag={{AMAZON_TAG}})
+- **Terracotta pots, set of 3–5** — the Afrohemian pot, clustered in odd numbers. [Shop terracotta pots](https://www.amazon.com/s?k=terracotta+pots+set+small&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### What is Afrohemian decor?

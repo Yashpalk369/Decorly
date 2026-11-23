@@ -96,6 +96,15 @@ The trick is to keep the seasonal touches small and light, so they never crowd t
 
 You do not need ten shelves to have a green flat. One shelf — a windowsill, a ladder shelf, a floating shelf above the sofa — is enough to change how a small apartment feels in winter. Start with the shelf you already have, put your healthiest plants on it, and give them light and a little attention. By the time spring arrives, the shelf will be full, the plants will be thriving, and you will be looking for a second shelf. That is how a plant collection grows: one shelf at a time.
 
+## Shop this look: Winter plant shelf
+
+- **Wooden ladder shelf** — it leans against the wall, needs no fixing, and turns a dead corner green. [Shop ladder shelf](https://www.amazon.com/s?k=wooden+ladder+shelf+leaning+plant+display&tag={{AMAZON_TAG}})
+- **Floating shelves, set of 2–3** — two or three shelves above the sofa put greenery at eye level. [Shop floating shelves](https://www.amazon.com/s?k=floating+wall+shelves+set+wood&tag={{AMAZON_TAG}})
+- **Full-spectrum LED grow light bar** — a slim bar under a shelf gives plants spring light all winter. [Shop LED grow light bar](https://www.amazon.com/s?k=full+spectrum+led+grow+light+bar+indoor+plants&tag={{AMAZON_TAG}})
+- **Matching terracotta pots, set** — identical pots turn a mixed collection into one deliberate display. [Shop terracotta pots](https://www.amazon.com/s?k=terracotta+pots+set+matching+small&tag={{AMAZON_TAG}})
+- **Long-spout watering can** — a long spout reaches high shelves without dripping on the books below. [Shop long-spouted watering can](https://www.amazon.com/s?k=long+spout+watering+can+indoor+plants&tag={{AMAZON_TAG}})
+- **Plant saucers, set** — one saucer under every pot keeps drips off the shelf and the sofa. [Shop plant saucers](https://www.amazon.com/s?k=plant+saucers+set+terracotta+pot+trays&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### Where is the best place for a plant shelf in a small apartment?

@@ -76,6 +76,15 @@ A cookie swap is one of the cheapest parties you can host, and a little planning
 
 Set a budget before you shop and stick to it. A realistic target for the whole party is £20 to £30, or the equivalent in dollars: a few pounds for your baking ingredients, a few for hot chocolate and cider supplies, and a few for boxes and tissue paper. Buy the boxes and ribbon in a pack rather than individually, check the pound shop or discount aisle before the craft shop, and use what you already own for decoration — a sprig of greenery from the garden, a few [pinecones](/pinecone-decor-ideas-winter-cost-almost-nothing/), last year's [fairy lights](/hang-christmas-lights-rental-guide/). The table will look festive because of the cookies, not because of the decorations. And the biggest budget saver is the format itself: your guests supply most of the food, so you are providing the venue, the drinks and one batch of cookies — a genuinely small bill for a genuinely generous party.
 
+## Shop this look: Cookie swap essentials
+
+- **Airtight cookie tin** — bake two or three days early and store layers with baking paper between them. [Shop airtight cookie tins](https://www.amazon.com/s?k=airtight+cookie+tin+storage&tag={{AMAZON_TAG}})
+- **Wire cooling rack** — balance it over the sink to double your cooling space. [Shop wire cooling racks](https://www.amazon.com/s?k=wire+cooling+rack+baking&tag={{AMAZON_TAG}})
+- **Cake stand** — height makes a small table look generous. [Shop cake stands](https://www.amazon.com/s?k=cake+stand+tiered+display&tag={{AMAZON_TAG}})
+- **Bakery boxes** — plain boxes, dressed with tissue paper and ribbon, delight guests on the way home. [Shop bakery boxes](https://www.amazon.com/s?k=bakery+boxes+cardboard+takeaway&tag={{AMAZON_TAG}})
+- **Tissue paper** — line each box so cookies don't slide around. [Shop tissue paper](https://www.amazon.com/s?k=tissue+paper+gift+wrapping+pack&tag={{AMAZON_TAG}})
+- **Slow cooker** — keep hot chocolate or mulled cider warm on the lowest setting all afternoon. [Shop slow cookers](https://www.amazon.com/s?k=slow+cooker+small&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### How many people should I invite to a cookie swap in a small rental?

@@ -68,6 +68,15 @@ The last layer is the one you cannot see at all: sound and ritual. A playlist of
 
 Build one small ritual into your December evenings: light the candles at the same time each night, put the fairy lights on a timer, make a proper hot chocolate on Fridays. Rituals are free, they need no storage, and they are what make a small flat feel like Christmas rather than look like it. And when January comes, the whole thing packs away into a single box: the lights, the cushion covers, the candles and the wreath. No tree to dispose of, no needles in the carpet, no storage unit required — just a flat that felt properly festive all month, and a deposit that is completely intact.
 
+## Shop this look: Christmas without a tree
+
+- **Battery fairy lights, warm white 2700K** — several small pools of warm light at eye level, no trailing cables. [Shop battery fairy lights](https://www.amazon.com/s?k=battery+operated+warm+white+fairy+lights+2700k&tag={{AMAZON_TAG}})
+- **Battery pillar candles with flickering flame** — a convincing glow that is safe to leave on while you fall asleep on the sofa. [Shop battery pillar candles](https://www.amazon.com/s?k=battery+operated+pillar+candles+flickering+flame&tag={{AMAZON_TAG}})
+- **Reed diffuser, pine or spiced orange** — one signature scent by the front door greets you when you come home. [Shop reed diffuser](https://www.amazon.com/s?k=reed+diffuser+pine+spiced+orange+scent&tag={{AMAZON_TAG}})
+- **Removable adhesive hooks** — hang a greenery swag or a wreath with no holes in the wall. [Shop removable adhesive hooks](https://www.amazon.com/s?k=removable+adhesive+hooks+command&tag={{AMAZON_TAG}})
+- **Festive cushion covers, plaid or deep red** — two swapped covers recolour the whole sofa and fold flat in January. [Shop festive cushion covers](https://www.amazon.com/s?k=christmas+plaid+cushion+covers+set&tag={{AMAZON_TAG}})
+- **Small Christmas wreath** — lean it on a shelf or hang it inside the front door as your one focal point. [Shop small wreath](https://www.amazon.com/s?k=small+christmas+wreath+front+door&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### Can a small apartment really feel festive without a Christmas tree?

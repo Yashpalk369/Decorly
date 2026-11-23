@@ -64,6 +64,15 @@ Winter pests are sneaky because they arrive with the plants and then thrive in t
 
 You do not need a big kitchen or a green thumb to keep herbs alive indoors all winter — you need the brightest spot you have, a watering can you reach for only when the soil is dry, a pair of scissors you actually use, and a weekly glance at the undersides of the leaves. The herbs will repay you in the most practical way possible: a handful of basil in a pasta sauce, rosemary on roast potatoes, chives on scrambled eggs, mint in a cup of tea. Start with four or five plants you love to cook with, give them light and a little attention, and by the time the days lengthen in March, you will have a windowsill full of green and a kitchen that smells like a garden.
 
+## Shop this look: Winter herb garden essentials
+
+- **Terracotta pots** — breathable, classic pots that suit a sunny kitchen windowsill. [Shop terracotta pots](https://www.amazon.com/s?k=terracotta+pots+small+herbs&tag={{AMAZON_TAG}})
+- **LED grow light bar** — a slim bar under a shelf gives herbs a steady day length. [Shop LED grow light bar](https://www.amazon.com/s?k=led+grow+light+bar+indoor+herbs&tag={{AMAZON_TAG}})
+- **Plug-in timer** — runs the grow light ten to twelve hours a day, automatically. [Shop plug-in timer](https://www.amazon.com/s?k=plug+in+timer+outlet+indoor&tag={{AMAZON_TAG}})
+- **Liquid seaweed feed** — gentle, balanced feeding at half strength through winter. [Shop liquid seaweed feed](https://www.amazon.com/s?k=liquid+seaweed+fertilizer+houseplants&tag={{AMAZON_TAG}})
+- **Pebble tray** — a shallow tray of pebbles and water raises humidity around the pots. [Shop pebble tray for plants](https://www.amazon.com/s?k=pebble+tray+for+houseplants+humidity&tag={{AMAZON_TAG}})
+- **Sharp scissors** — snip the tops little and often to keep plants bushy, not leggy. [Shop herb scissors](https://www.amazon.com/s?k=herb+scissors+sharp+kitchen&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### Why is my basil dying indoors in winter?

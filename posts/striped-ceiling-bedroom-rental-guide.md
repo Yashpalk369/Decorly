@@ -68,6 +68,15 @@ A striped ceiling changes the whole balance of the room, so let it lead your sty
 
 Removal is the part renters worry about most, and it is the easiest step of all. When your lease ends, warm each stripe gently with a hairdryer on its lowest setting for 20 to 30 seconds, then peel slowly from one corner at a low angle. The heat softens the adhesive so the stripe lifts cleanly without taking paint with it. If any residue remains, roll it off with your thumb or wipe it with a damp cloth and a drop of washing-up liquid — never scrape with a blade. Do a final check with your landlord's inventory photos in hand, touch up nothing, and your deposit stays safe. That is the beauty of this project: a full FunHaus transformation for under £40, enjoyed for a year or more, and gone without a trace on moving day.
 
+## Shop this look: Striped ceiling essentials
+
+- **Removable peel-and-stick striped wallpaper** — narrow rolls made to come off cleanly and hold their own weight overhead. [Shop peel-and-stick striped wallpaper](https://www.amazon.com/s?k=peel+and+stick+striped+wallpaper+removable&tag={{AMAZON_TAG}})
+- **Washi tape, wide** — a cheaper, lighter option for narrow stripes or a subtle tone-on-tone effect. [Shop washi tape](https://www.amazon.com/s?k=wide+washi+tape+wall+decor&tag={{AMAZON_TAG}})
+- **Step ladder** — a sturdy ladder gets you safely up to the ceiling for the whole job. [Shop step ladder](https://www.amazon.com/s?k=sturdy+step+ladder+household&tag={{AMAZON_TAG}})
+- **Laser level** — a projected line keeps long stripes true far faster than a spirit level. [Shop laser level](https://www.amazon.com/s?k=laser+level+tool+self+leveling&tag={{AMAZON_TAG}})
+- **Sharp craft knife** — one smooth cut along the ruler trims stripe ends cleanly. [Shop craft knife](https://www.amazon.com/s?k=sharp+craft+knife+replacement+blades&tag={{AMAZON_TAG}})
+- **Smoothing tool** — press each stripe from the centre out to push air bubbles away. [Shop smoothing tool](https://www.amazon.com/s?k=wallpaper+smoothing+tool+squeegee&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### Will peel-and-stick stripes damage my rental ceiling?

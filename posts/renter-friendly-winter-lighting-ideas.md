@@ -96,6 +96,15 @@ Put it on the bedside table, set the wake-up time, and let it do its work. The g
 
 Winter lighting is not about buying ten new things. It is about layering the light you already have: a fairy light here, a dimmer there, a candle on the table, a lamp turned low. Start with the idea that solves your biggest annoyance — the harsh ceiling light, the dark corner, the gloomy mornings — and add one layer a week. By the time the shortest day arrives, your small flat will not just be lit. It will glow.
 
+## Shop this look: Winter lighting essentials
+
+- **Warm-white battery fairy lights** — drape them along a shelf or window frame for instant softness. [Shop battery fairy lights](https://www.amazon.com/s?k=battery+operated+warm+white+fairy+lights+timer&tag={{AMAZON_TAG}})
+- **Battery candles in lanterns** — flickering candlelight with no flame near cushions and curtains. [Shop battery candles and lanterns](https://www.amazon.com/s?k=flameless+battery+candles+lantern+set&tag={{AMAZON_TAG}})
+- **Himalayan salt lamp** — a soft amber glow for the bedside table. [Shop Himalayan salt lamps](https://www.amazon.com/s?k=himalayan+salt+lamp+small&tag={{AMAZON_TAG}})
+- **Plug-in dimmer** — turns the lamp you already own down to a soft glow. [Shop plug-in dimmers](https://www.amazon.com/s?k=plug+in+dimmer+switch+lamp&tag={{AMAZON_TAG}})
+- **Paper star lantern** — a folded star with a warm light inside, hung in the window. [Shop paper star lanterns](https://www.amazon.com/s?k=paper+star+lantern+light&tag={{AMAZON_TAG}})
+- **Warm-white LED strip lights, 2700K** — stuck behind the books, they make a shelf glow from within. [Shop LED strip lights](https://www.amazon.com/s?k=warm+white+led+strip+lights+2700k+battery&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### How can I make a rental flat feel cosy in winter without drilling?

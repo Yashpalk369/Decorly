@@ -76,6 +76,15 @@ A dried flower wreath needs almost no care, which is the whole point of making o
 
 If a stem snaps or a flower falls off, glue it back with a dab of hot glue and nobody will ever know. When spring comes, the wreath can move to a bedroom or a hallway, or be taken apart and the flowers reused in a vase — dried flowers last for months in a jar, and a wreath that becomes a bouquet is a wreath that never wastes a stem. A dried flower wreath made in November is still beautiful in March, and that is why it is worth an afternoon of your time.
 
+## Shop this look: Dried flower wreath kit
+
+- **Grapevine wreath ring, 30–40 cm** — light, grippy and the best base for dried flowers. [Shop grapevine wreath ring](https://www.amazon.com/s?k=grapevine+wreath+ring+30cm&tag={{AMAZON_TAG}})
+- **Thin florist wire** — two tight turns hold every bunch to the ring. [Shop florist wire](https://www.amazon.com/s?k=florist+wire+thin+green&tag={{AMAZON_TAG}})
+- **Sharp scissors or secateurs** — cut stems to ten centimetres for wiring. [Shop florist secateurs](https://www.amazon.com/s?k=florist+secateurs+sharp+small&tag={{AMAZON_TAG}})
+- **Glue gun** — the fastest way to fix small, fiddly pieces in seconds. [Shop glue gun](https://www.amazon.com/s?k=hot+glue+gun+craft+small&tag={{AMAZON_TAG}})
+- **Velvet ribbon** — the hanger and the final decoration in one. [Shop velvet ribbon](https://www.amazon.com/s?k=velvet+ribbon+for+wreath&tag={{AMAZON_TAG}})
+- **Removable adhesive hook** — hangs the wreath with no holes in a rental door. [Shop removable adhesive hooks](https://www.amazon.com/s?k=removable+adhesive+hooks+heavy+duty&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### How long does a dried flower wreath last?

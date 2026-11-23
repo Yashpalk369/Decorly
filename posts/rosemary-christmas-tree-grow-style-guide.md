@@ -76,6 +76,15 @@ When the decorations come down in January, your rosemary tree's second life begi
 
 Winter is the hardest season for an indoor rosemary, because central heating dries the air and short days limit the light. Keep the tree in its brightest spot, away from radiators, and resist the urge to water more often just because the air feels dry — the soil test from step four still applies. A light misting once a week can help the foliage, but it is no substitute for proper watering. From March onwards, when the days lengthen, you can move the tree outside to a balcony or doorstep during the day, bringing it back in at night until the frosts pass, and by late spring it can live outdoors full time. Feed it once a month through spring and summer with a weak liquid seaweed feed, and by next November you will have a bigger, bushier tree ready for another Christmas — a living decoration that gets better every year.
 
+## Shop this look: Rosemary Christmas tree essentials
+
+- **Cone-shaped rosemary topiary** — trained into a neat cone, it looks like a Christmas tree the moment it comes through the door. [Shop rosemary topiaries](https://www.amazon.com/s?k=rosemary+topiary+cone+shaped+live+plant&tag={{AMAZON_TAG}})
+- **Terracotta pot with drainage hole** — heavy enough to keep a top-heavy cone upright, and porous enough to let excess moisture out. [Shop terracotta pots with drainage](https://www.amazon.com/s?k=terracotta+pot+with+drainage+hole+saucer&tag={{AMAZON_TAG}})
+- **Horticultural grit or perlite** — mix with compost for the loose, free-draining soil rosemary needs. [Shop horticultural grit](https://www.amazon.com/s?k=horticultural+grit+perlite+for+plants&tag={{AMAZON_TAG}})
+- **Pruning scissors or secateurs** — clean cuts just above a leaf joint keep the cone neat. [Shop pruning scissors](https://www.amazon.com/s?k=pruning+scissors+secateurs+small&tag={{AMAZON_TAG}})
+- **Miniature baubles** — no bigger than a grape, light enough for delicate rosemary branches. [Shop miniature baubles](https://www.amazon.com/s?k=miniature+christmas+baubles+small+ornaments&tag={{AMAZON_TAG}})
+- **Battery fairy lights, 20 warm-white LEDs** — about right for a 45 cm tree, with no heavy transformer or trailing cable. [Shop battery fairy lights](https://www.amazon.com/s?k=battery+operated+warm+white+fairy+lights+20+led&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### How long will a rosemary Christmas tree last indoors?

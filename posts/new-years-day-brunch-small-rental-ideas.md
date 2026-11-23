@@ -92,6 +92,15 @@ The best part of a New Year's Day brunch is that it can be over — and the flat
 
 Give the plan a ten-minute slot on the morning's schedule — say 11.30 am — and ask two guests to help: one clears, one wipes, you wash. Three people can clear a brunch for eight in under ten minutes, and guests genuinely like helping; it is part of the sociable feeling of the morning. Paper decorations come down into a bag for the recycling, cushions go back on the sofa, the tray table folds away, and the room is a living room again. Starting the year with a clean flat and a clear afternoon is a better resolution than any list. For the morning-after side of the festive season, our [Christmas morning guide for small apartments](/christmas-morning-small-apartment-guide/) uses the same one-tray trick.
 
+## Shop this look: New Year's Day brunch essentials
+
+- **Slow cooker** — porridge cooks itself overnight while you sleep in. [Shop slow cooker](https://www.amazon.com/s?k=slow+cooker+small+family&tag={{AMAZON_TAG}})
+- **Cafetière** — proper coffee for the hot drinks station, no machine needed. [Shop cafetière](https://www.amazon.com/s?k=cafetiere+french+press+coffee+maker&tag={{AMAZON_TAG}})
+- **Paper bunting** — ten minutes up, gone by lunchtime, no marks on the wall. [Shop paper bunting](https://www.amazon.com/s?k=paper+bunting+gold+party&tag={{AMAZON_TAG}})
+- **Gold paper stars** — a handful in one colour makes cheap paper look deliberate. [Shop gold paper stars](https://www.amazon.com/s?k=gold+paper+stars+party+decorations&tag={{AMAZON_TAG}})
+- **Washi tape** — hangs paper decorations without damaging painted walls. [Shop washi tape](https://www.amazon.com/s?k=washi+tape+decorative+gold&tag={{AMAZON_TAG}})
+- **Floor cushions** — turn a seating shortage into the cosiest part of the morning. [Shop floor cushions](https://www.amazon.com/s?k=floor+cushions+large+soft&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### How many people can I host for a New Year's Day brunch in a small rental?

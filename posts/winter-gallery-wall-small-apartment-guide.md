@@ -72,6 +72,15 @@ Then live with the wall for a week before you judge it. You will notice things i
 
 A gallery wall is the most personal project in a small apartment, and winter is the best time to build one. It costs little, damages nothing, and turns the wall you stare at most into the wall you love most. Start with the frames you already own, follow the floor-first rule, and hang everything with strips. When the lamps come on tonight and the wall glows, you will wonder why the wall stayed blank for so long.
 
+## Shop this look: Winter gallery wall
+
+- **Removable adhesive picture hanging strips** — rated for the weight, they hold frames with no holes and peel off cleanly. [Shop removable adhesive strips](https://www.amazon.com/s?k=removable+adhesive+picture+hanging+strips&tag={{AMAZON_TAG}})
+- **Picture frames, mixed sizes** — a mix of wood, black, gold and white frames looks collected, not catalogue. [Shop picture frames](https://www.amazon.com/s?k=picture+frames+set+mixed+sizes+wall+gallery&tag={{AMAZON_TAG}})
+- **Battery picture light** — clipped above the centre piece, it makes the art glow after dark. [Shop battery picture light](https://www.amazon.com/s?k=battery+operated+picture+light+wireless&tag={{AMAZON_TAG}})
+- **Warm-white fairy lights** — a string along the top edge warms the whole wall in the evening. [Shop warm fairy lights](https://www.amazon.com/s?k=warm+white+fairy+lights+battery+operated&tag={{AMAZON_TAG}})
+- **Warm-toned art prints** — terracotta, mustard and sage prints repeat your colour story across the wall. [Shop art prints](https://www.amazon.com/s?k=warm+toned+art+prints+terracotta+mustard+sage&tag={{AMAZON_TAG}})
+- **Painter's tape** — mark the outer edges on the wall so you can see the shape before hanging. [Shop painter's tape](https://www.amazon.com/s?k=painter+tape+wall+safe&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### How do I hang a gallery wall in a rental without damage?

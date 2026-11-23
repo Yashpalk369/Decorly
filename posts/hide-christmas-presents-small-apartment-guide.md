@@ -92,6 +92,15 @@ Bring the presents out in batches, one hiding spot at a time, and check each one
 
 Keep a bin bag beside you as you stage, and put every empty box, spare bit of wrapping paper and stray bit of tape straight into it. The flat should look tidy when you go to bed, because a tidy room makes Christmas morning feel calm. Then do a final sweep: open every cupboard, check the car boot, check the neighbour's box. The only thing worse than a present found early is one found in March.
 
+## Shop this look: Present-hiding supplies
+
+- **Plastic storage boxes** — the "boring box" trick starts with a sturdy box. [Shop plastic storage boxes](https://www.amazon.com/s?k=plastic+storage+boxes+with+lids&tag={{AMAZON_TAG}})
+- **Wrapping paper** — wrap each present the day you buy it, so nothing sits around recognisable. [Shop wrapping paper](https://www.amazon.com/s?k=christmas+wrapping+paper+roll&tag={{AMAZON_TAG}})
+- **Ribbon** — finish the wrap so parcels can live anywhere. [Shop ribbon](https://www.amazon.com/s?k=ribbon+roll+gift+wrapping&tag={{AMAZON_TAG}})
+- **Tape** — part of the five-minute wrapping kit on top of the wardrobe. [Shop tape](https://www.amazon.com/s?k=clear+tape+gift+wrapping&tag={{AMAZON_TAG}})
+- **Scissors** — keep them in the kit, ready to pack away in five minutes. [Shop scissors](https://www.amazon.com/s?k=scissors+craft+household&tag={{AMAZON_TAG}})
+- **Marker pen** — label the boring boxes so nobody ever opens them. [Shop marker pens](https://www.amazon.com/s?k=marker+pen+permanent+black&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### Where is the best place to hide Christmas presents in a small flat?

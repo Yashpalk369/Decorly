@@ -76,6 +76,15 @@ Do not repot a Norfolk pine in winter. The plant is barely growing, the roots ar
 
 Use a free-draining houseplant compost with a handful of perlite or coarse sand mixed in, and make sure the new pot has drainage holes. Water thoroughly after repotting, then leave the plant alone for a week while it settles. A Norfolk pine only needs repotting every two or three years, so if the roots are not coming out of the drainage holes and the plant is growing well, leave it where it is — repotting a happy plant is a solution in search of a problem.
 
+## Shop this look: Norfolk pine care essentials
+
+- **Terracotta pot** — warm clay suits the soft green needles and reads as a houseplant. [Shop terracotta pots](https://www.amazon.com/s?k=terracotta+pot+with+drainage+hole&tag={{AMAZON_TAG}})
+- **Pebble tray** — evaporating water raises the humidity right around the plant. [Shop pebble tray for plants](https://www.amazon.com/s?k=pebble+tray+for+houseplants+humidity&tag={{AMAZON_TAG}})
+- **Spray bottle** — mist the branches two or three times a week in heated air. [Shop plant spray bottle](https://www.amazon.com/s?k=plant+spray+bottle+mister&tag={{AMAZON_TAG}})
+- **Sharp scissors** — trim dead branch tips cleanly back to healthy green wood. [Shop pruning scissors](https://www.amazon.com/s?k=sharp+pruning+scissors+houseplants&tag={{AMAZON_TAG}})
+- **Plant stand** — lifts the tree into a bright spot where a houseplant belongs. [Shop plant stand](https://www.amazon.com/s?k=plant+stand+indoor+small&tag={{AMAZON_TAG}})
+- **Free-draining houseplant compost** — with perlite mixed in, for the spring repot. [Shop houseplant compost](https://www.amazon.com/s?k=houseplant+compost+perlite+mix&tag={{AMAZON_TAG}})
+
 ## Frequently Asked Questions
 
 ### Why is my Norfolk pine turning brown after Christmas?
