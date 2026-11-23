@@ -104,17 +104,22 @@ Standard throws are sized for one person, which is fine until two people want to
 
 ## Frequently Asked Questions
 
-**What size throw blanket should I buy for a sofa?**
+### What size throw blanket should I buy for a sofa?
+
 A standard 50x60 inch throw suits one person; go 60x80 inches if two people share the sofa or you want a full wrap. Anything smaller than 50x60 is decorative only — it won't cover your legs, and an uncovered leg is a cold leg.
 
-**What is the best smallest throw blanket for a tiny sofa?**
+### What is the best smallest throw blanket for a tiny sofa?
+
 A 50x60 inch throw is the smallest size that still covers an adult properly — anything smaller is decorative only. On a tiny sofa, pick a 50x60 in a dense knit or sherpa rather than a larger thin throw: it stays on your lap instead of sliding off, it folds small for storage, and it still does the warming job. The chunky cable-knit and sherpa throws above both come in 50x60.
 
-**Are cheap throw blankets actually warm?**
+### Are cheap throw blankets actually warm?
+
 Yes, if you pick the right material. Sherpa-lined fleece and dense chunky knits are genuinely warm at $15–25; thin decorative throws are not. Check the fabric weight in the listing — heavier grams per square metre means a warmer blanket — and always choose machine-washable, because a throw you can't wash won't stay cozy for long.
 
-**How do I wash a throw blanket without ruining it?**
+### How do I wash a throw blanket without ruining it?
+
 Machine wash cold on a gentle cycle, and air-dry or tumble-dry low. Skip fabric softener on fleece and sherpa — it coats the fibres and reduces softness over time. Faux fur throws do best washed alone, inside a laundry bag, to keep the fur from matting.
 
-**Can one throw blanket really change how a rental looks?**
+### Can one throw blanket really change how a rental looks?
+
 Absolutely — it is the highest-impact, lowest-commitment decor move a renter has. A throw adds colour, texture and a styled layer to a sofa you didn't choose, costs under $25, and moves with you to the next flat. If you do one thing from this list, buy the throw.
