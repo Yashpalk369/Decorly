@@ -1,9 +1,9 @@
 ---
-title: 9 Cozy Throw Blankets Under $25 for Renters
+title: 9 Best Cozy Throw Blankets for Renters Under $25
 date: 2026-10-25
 category: rental-friendly
 tags: cozy throw blankets under 25, best throw blankets renters, budget throw blanket, chunky knit throw, sherpa throw blanket
-description: 9 cozy throw blankets under $25 for renters — chunky knits, sherpa and waffle weaves that warm up a rental living room without touching the walls.
+description: The best throw blankets for renters under $25 — chunky knits, sherpa and waffle weaves that warm up a small living room. Machine-washable, sized for real sofas.
 hero: hero-clay
 motif: 🧶
 ---
@@ -106,6 +106,9 @@ Standard throws are sized for one person, which is fine until two people want to
 
 **What size throw blanket should I buy for a sofa?**
 A standard 50x60 inch throw suits one person; go 60x80 inches if two people share the sofa or you want a full wrap. Anything smaller than 50x60 is decorative only — it won't cover your legs, and an uncovered leg is a cold leg.
+
+**What is the best smallest throw blanket for a tiny sofa?**
+A 50x60 inch throw is the smallest size that still covers an adult properly — anything smaller is decorative only. On a tiny sofa, pick a 50x60 in a dense knit or sherpa rather than a larger thin throw: it stays on your lap instead of sliding off, it folds small for storage, and it still does the warming job. The chunky cable-knit and sherpa throws above both come in 50x60.
 
 **Are cheap throw blankets actually warm?**
 Yes, if you pick the right material. Sherpa-lined fleece and dense chunky knits are genuinely warm at $15–25; thin decorative throws are not. Check the fabric weight in the listing — heavier grams per square metre means a warmer blanket — and always choose machine-washable, because a throw you can't wash won't stay cozy for long.

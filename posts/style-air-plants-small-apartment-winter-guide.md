@@ -97,7 +97,7 @@ Once a week, with a twenty to thirty minute soak in room-temperature water. Heat
 
 ### Can air plants survive in a dark apartment?
 
-They need bright, indirect light to thrive, and in winter that means the brightest window you have. In a very dark flat, a small grow light on a timer for a few hours a day will keep them healthy. A plant in a dark corner will slowly fade and die, so light is the one thing you cannot compromise on.
+They need bright, indirect light to thrive, and in winter that means the brightest window you have. In a very dark flat, a small grow light on a timer for a few hours a day will keep them healthy. A plant in a dark corner will slowly fade and die, so light is the one thing you cannot compromise on. If your flat is dark and you still want greenery, choose from our [low-light indoor plants for dark apartments](/low-light-indoor-plants-dark-apartments/) instead — air plants are the wrong tool for that room.
 
 ### Are air plants safe for pets?
 

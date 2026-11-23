@@ -111,7 +111,7 @@ Olive branches, eucalyptus, pampas grass, dried lavender, and succulents all rea
 Stand fresh branches in water, change the water every few days, and mist them regularly. Eucalyptus lasts two to three weeks in a steamy bathroom; olive branches last two to three weeks in a vase. Dried greenery — pampas, lavender, seed heads — needs no care at all.
 
 ### Which winter plants survive a dark apartment?
-Ivy, ferns in a terrarium, and succulents on the brightest sill are the most forgiving. For herbs on a dark windowsill, a small grow light makes the difference between surviving and thriving through winter.
+Ivy, ferns in a terrarium, and succulents on the brightest sill are the most forgiving — see the full list in our guide to [10 low-light indoor plants that thrive in dark apartments](/low-light-indoor-plants-dark-apartments/). For herbs on a dark windowsill, a small grow light makes the difference between surviving and thriving through winter.
 
 ### Is dried greenery safe in a small flat?
 Yes, with one caution: dried grass and seed heads are flammable, so keep them away from radiators, candles, and open flames. Otherwise they are ideal for small flats — no water, no light, no mess, and nothing to store in spring.

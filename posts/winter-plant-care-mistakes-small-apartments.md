@@ -108,7 +108,7 @@ Most houseplants need water only every two to three weeks in winter, and only wh
 
 ### Why are my houseplant leaves turning yellow in winter?
 
-Yellow leaves in winter are usually caused by overwatering, cold draughts or low light — often all three at once. Check the soil first: if it is wet, stop watering and let it dry out. Then move the plant away from draughty windows and closer to the brightest window you have. If only the oldest leaves are yellowing, that can be normal winter shedding.
+Yellow leaves in winter are usually caused by overwatering, cold draughts or low light — often all three at once. Check the soil first: if it is wet, stop watering and let it dry out. Then move the plant away from draughty windows and closer to the brightest window you have. If only the oldest leaves are yellowing, that can be normal winter shedding. If your flat is genuinely dark, the real fix may be swapping the plant rather than the spot — these [low-light indoor plants for dark apartments](/low-light-indoor-plants-dark-apartments/) are built for it.
 
 ### Should I move my plants away from the window in winter?
 
