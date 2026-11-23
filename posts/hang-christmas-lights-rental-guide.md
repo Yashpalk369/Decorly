@@ -78,14 +78,14 @@ Then store the lights properly, because you will buy them again next year if you
 
 ## Frequently Asked Questions
 
-**Will adhesive light clips damage rental walls?**
+### Will adhesive light clips damage rental walls?
 Not if you use clips designed for the job and remove them correctly. Stick them to smooth, clean, painted walls — not textured wallpaper or paint less than a month old — press firmly, wait an hour before hanging lights, and remove by pulling the tab slowly downward, parallel to the wall.
 
-**Can I hang Christmas lights outside a rental balcony?**
+### Can I hang Christmas lights outside a rental balcony?
 Yes, with outdoor-rated lights and a no-drill method: wrap them around the rail and secure with zip ties or rail clips. Use battery or solar lights if you have no outdoor socket, and never run an indoor extension lead outside.
 
-**How many clips do I need for a string of lights?**
+### How many clips do I need for a string of lights?
 One clip every 30–40 cm is enough for most indoor runs. Heavier strings, or strings with large bulbs, need clips every 25 cm. Buy a few extra clips — they are cheap, and running out mid-hang means a sagging middle section.
 
-**What is the safest way to hang lights on a ceiling in a rental?**
+### What is the safest way to hang lights on a ceiling in a rental?
 Clip-on hooks on a curtain rod, picture rail or ceiling track, or adhesive ceiling clips if your ceiling is smooth and painted. Never use nails or screws in a ceiling — the holes are hard to fill invisibly, and a ceiling repair is one of the most expensive deposit deductions.

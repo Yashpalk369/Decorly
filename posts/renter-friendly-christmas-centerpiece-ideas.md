@@ -106,14 +106,14 @@ The thread running through all ten ideas is not really about Christmas at all â€
 
 ## Frequently Asked Questions
 
-**How do I protect my table from candle heat at Christmas?**
+### How do I protect my table from candle heat at Christmas?
 Never put a candle directly on a wooden table. Use a candle in a glass holder, stand the holder on a tray, a ceramic plate, or a heat-proof mat, and keep real flames away from greenery, paper, and fabric. Battery candles remove the heat risk entirely and look convincing in [low light](/low-light-indoor-plants-dark-apartments/).
 
-**What should I put under a centrepiece to stop scratches?**
+### What should I put under a centrepiece to stop scratches?
 A folded tea towel, a cork mat, a felt pad, or a tray all work well. The key is that the protective layer is wider than the centrepiece itself, so nothing with a rough or heavy base touches the wood, even if the arrangement gets nudged during the meal.
 
-**Can I use fresh greenery on a dining table in a rental?**
+### Can I use fresh greenery on a dining table in a rental?
 Yes, as long as something waterproof sits underneath it. Fresh branches can leak sap and moisture that stain wood, so lay a tea towel, a length of wrapping paper, or a table runner under the greenery first, and clear fresh branches away the day after the meal before they drop needles.
 
-**Will a heavy centrepiece damage my table?**
+### Will a heavy centrepiece damage my table?
 A very heavy display can dent soft wood if it sits in one spot for weeks, so keep heavy centrepieces to the festive period itself, spread the weight with a board or tray, and lift rather than drag anything across the surface. Light, movable centrepieces like a board of jars or a tray of candles are the safest choice for a rental.

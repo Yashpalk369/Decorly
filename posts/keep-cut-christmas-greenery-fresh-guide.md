@@ -94,14 +94,14 @@ Dispose of greenery through garden waste or compost where available, and check f
 
 ## Frequently Asked Questions
 
-**How long should fresh Christmas greenery last indoors?**
+### How long should fresh Christmas greenery last indoors?
 With water, misting, and a cool spot, fir, pine, and cedar garlands last three to five weeks indoors. Spruce lasts noticeably less, often one to two weeks, which is why variety choice matters.
 
-**Should I spray my Christmas wreath with hairspray to preserve it?**
+### Should I spray my Christmas wreath with hairspray to preserve it?
 No — hairspray does not preserve greenery and it is flammable, which is the opposite of what you want near fairy lights. Misting with water and keeping the wreath cool works far better.
 
-**Can I keep cut greenery outside to make it last longer?**
+### Can I keep cut greenery outside to make it last longer?
 Yes, dramatically. Outdoor wreaths and garlands in cold weather last much longer than indoor ones, since cold air slows drying. An outdoor display is the lowest-maintenance option if you have a door or balcony.
 
-**Why is my garland shedding even though I mist it?**
+### Why is my garland shedding even though I mist it?
 Usually heat or variety: a garland over a radiator will shed despite misting, and spruce sheds faster than cedar or pine. Move it somewhere cooler and check which variety you bought before blaming the misting.

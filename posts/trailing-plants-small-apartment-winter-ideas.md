@@ -106,14 +106,14 @@ Trailing plants in winter need three things: less water than you think, as much 
 
 ## Frequently Asked Questions
 
-**Which trailing plant is best for a beginner in winter?**
+### Which trailing plant is best for a beginner in winter?
 Pothos. It tolerates low light, irregular watering, and dry winter air better than almost any other trailing plant, it grows fast, and cuttings root in water, so one plant becomes many.
 
-**How often should I water trailing plants in winter?**
+### How often should I water trailing plants in winter?
 Only when the top inch of soil feels dry — usually every two to three weeks in a heated flat, not weekly. Overwatering is the number one winter killer of houseplants, far ahead of cold or low light.
 
-**Can trailing plants survive a dark apartment in winter?**
+### Can trailing plants survive a dark apartment in winter?
 Pothos and philodendron can survive low light, though they will grow slowly and the variegation may fade. If a room gets almost no natural light, rotate the plant to a brighter room for a few days each week, or add a small grow light.
 
-**How do I keep trailing vines from getting tangled?**
+### How do I keep trailing vines from getting tangled?
 Gently separate the vines every few weeks while watering, and trim back any vine that grows into a knot rather than pulling it apart. Pruning also encourages bushier growth, so a trim in late winter sets the plant up for spring.

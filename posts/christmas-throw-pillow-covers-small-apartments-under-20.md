@@ -94,14 +94,14 @@ Where it fits: on a larger sofa or across a sofa and two chairs, where a set can
 
 ## Frequently Asked Questions
 
-**What size Christmas pillow cover should I buy?**
+### What size Christmas pillow cover should I buy?
 Match the cover to your existing insert, or buy one inch smaller than the insert for a plump look — an 18-inch cover on a 20-inch insert looks fuller than a 20-inch cover on a 20-inch insert.
 
-**Do pillow covers or full pillows store better in a small apartment?**
+### Do pillow covers or full pillows store better in a small apartment?
 Covers, by a wide margin. Four covers fold flat into a drawer or a zip bag, while four full pillows need a whole shelf or a vacuum bag.
 
-**How many festive cushions should a small sofa have?**
+### How many festive cushions should a small sofa have?
 Two to three on a two-seater, with at least one plain or solid cover among them. More than that and the sofa stops being somewhere to sit.
 
-**Can I wash Christmas pillow covers?**
+### Can I wash Christmas pillow covers?
 Most cotton, linen, and polyester covers machine-wash cold, but velvet and faux fur usually need a gentle cycle or hand wash. Check the label before December, not after a spill.

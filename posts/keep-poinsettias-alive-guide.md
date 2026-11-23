@@ -82,14 +82,14 @@ Reblooming takes one trick: from late September, the plant needs 14 hours of uni
 
 ## Frequently Asked Questions
 
-**Why are my poinsettia's leaves falling off?**
+### Why are my poinsettia's leaves falling off?
 The usual causes, in order: cold damage on the journey home, overwatering (especially in a foil wrapper with no drainage), a cold draft, or a hot radiator. Check the position first, then the watering — lift the pot to judge moisture rather than watering on a schedule, and empty any standing water from the wrapper or saucer.
 
-**How often should I water a poinsettia?**
+### How often should I water a poinsettia?
 Only when the top 2–3 cm of soil is dry and the pot feels light when lifted — typically every few days in a warm room, less often in a cool one. Water thoroughly until it drains, then empty the saucer after ten minutes. Never let the plant sit in standing water.
 
-**Are poinsettias poisonous to pets and children?**
+### Are poinsettias poisonous to pets and children?
 They are mildly toxic, not deadly — the old myth of fatal poinsettia poisoning has been debunked — but the sap can irritate mouths and stomachs, so keep the plant out of reach of pets and small children who might chew the leaves. Wash your hands after handling cut stems, since the milky sap irritates skin.
 
-**Can I really get a poinsettia to rebloom?**
+### Can I really get a poinsettia to rebloom?
 Yes, with strict darkness: 14 hours of uninterrupted dark per night for about eight weeks from late September. A dark cupboard each evening works. Even small light leaks can prevent colouring, so be consistent — but even if it doesn't rebloom, the plant makes a fine green houseplant for the rest of the year.

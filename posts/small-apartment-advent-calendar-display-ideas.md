@@ -102,14 +102,14 @@ Where it fits: a coffee table, a dining table centre, or an ottoman tray. Use bo
 
 ## Frequently Asked Questions
 
-**What is the best advent calendar idea for a very small apartment?**
+### What is the best advent calendar idea for a very small apartment?
 A door-hung pocket calendar or a fridge magnetic board, because both use surfaces you already have and take zero wall or floor space. If you have no free door, a coffee-table tray display needs no fixings at all.
 
-**How do I hang an advent calendar in a rental without damage?**
+### How do I hang an advent calendar in a rental without damage?
 Use over-the-door hooks, tension rods, or removable adhesive hooks rated for the weight. Avoid nails and screws entirely, and test adhesive hooks on a hidden spot first if your walls are freshly painted.
 
-**What should I put in a DIY advent calendar for adults?**
+### What should I put in a DIY advent calendar for adults?
 Small treats work best: chocolates, tea bags, miniature toiletries, or a daily activity note. Keep each day light and cheap — the ritual of opening is the treat, not the contents.
 
-**Can I reuse a DIY advent calendar next year?**
+### Can I reuse a DIY advent calendar next year?
 Yes, and most of these ideas are designed for it: fabric pockets, kraft envelopes, pouches, and jars all store flat or in one box. Refill them each November and the display itself becomes a tradition.

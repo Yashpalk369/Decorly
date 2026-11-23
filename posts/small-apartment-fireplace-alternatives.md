@@ -102,14 +102,14 @@ Where it fits: any corner with a comfortable seat and a small side table. The in
 
 ## Frequently Asked Questions
 
-**What is the best fireplace alternative for a small apartment?**
+### What is the best fireplace alternative for a small apartment?
 A small electric fireplace stove if you want heat and a focal point, or a cluster of pillar candles on a tray if you want atmosphere on a budget. Both need no installation and move with you when you move flat.
 
-**Can renters have a real flame fireplace alternative?**
+### Can renters have a real flame fireplace alternative?
 Pillar candles and tabletop ethanol burners give you real flame, but check your lease first — some buildings ban open flames. Flameless LED candles and electric stoves are the no-questions-asked options and still look convincing.
 
-**How do you hang stockings without a mantel?**
+### How do you hang stockings without a mantel?
 Use a freestanding mantel shelf, a tension rod inside a window frame or bookshelf, removable hooks on a console, or a peel-and-stick fireplace decal with hooks on the "mantel" line. All four come down without a trace.
 
-**Do electric fireplace stoves actually heat a room?**
+### Do electric fireplace stoves actually heat a room?
 Yes — most small models put out around 1,000–1,500 watts, enough to take the chill off a studio or small living room. They are best as a supplement to central heating, not a replacement, and the flame effect can run without heat in warmer weather.

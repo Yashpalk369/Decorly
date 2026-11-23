@@ -106,14 +106,14 @@ The best small-kitchen Christmas decor is the kind you barely notice as decor at
 
 ## Frequently Asked Questions
 
-**How do I decorate a tiny kitchen for Christmas without losing counter space?**
+### How do I decorate a tiny kitchen for Christmas without losing counter space?
 Decorate the edges: cabinet tops, cabinet doors, windowsills, and the underside of wall cabinets. Keep all decor off the main prep counters, and use one contained display — like a tiered tray — if you want ornaments out.
 
-**Is real greenery safe in a kitchen?**
+### Is real greenery safe in a kitchen?
 Yes, as long as it stays away from heat. Keep fresh pine and eucalyptus away from the hob, oven, and toaster, where heat dries them out. Near heat, use faux greenery instead — it looks the same and carries no fire risk.
 
-**What is the cheapest way to make a rental kitchen feel festive?**
+### What is the cheapest way to make a rental kitchen feel festive?
 Swap the tea towels and hand towel for festive ones, and add a string of battery fairy lights under the cabinets. Together they cost under $20 and change the whole room, with nothing to drill or damage.
 
-**Where should I put a Christmas tree in a small apartment with no living room space?**
+### Where should I put a Christmas tree in a small apartment with no living room space?
 On top of the fridge, on a tall shelf, or on the kitchen counter in the one unused corner. A 2-foot mini tree gives you the full Christmas tree effect in a footprint smaller than a dinner plate.

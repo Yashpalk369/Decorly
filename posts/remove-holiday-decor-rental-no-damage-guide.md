@@ -85,14 +85,14 @@ If you find damage you cannot fix — a larger paint peel, a cracked tile, a den
 
 ## Frequently Asked Questions
 
-**How do you remove Command strips without damaging paint?**
+### How do you remove Command strips without damaging paint?
 Pull the tab slowly straight down along the wall, keeping it flat against the surface — never pull outward. If a strip snaps, warm the remainder with a hairdryer and roll it off with your thumb.
 
-**What is the best way to fill small nail holes in a rental?**
+### What is the best way to fill small nail holes in a rental?
 Lightweight wall filler pressed in with a fingertip, smoothed flush, dried and lightly sanded. For white walls this is usually invisible without repainting.
 
-**How do I get glitter out of carpet after Christmas?**
+### How do I get glitter out of carpet after Christmas?
 Vacuum twice in different directions, then use a loop of packing tape sticky-side-out around your hand to lift what remains from carpet and upholstery.
 
-**Should I tell my landlord about damage from holiday decor?**
+### Should I tell my landlord about damage from holiday decor?
 Yes, if you cannot fix it cleanly yourself. Damage reported promptly with photos is almost always treated more leniently than damage discovered at a move-out inspection.

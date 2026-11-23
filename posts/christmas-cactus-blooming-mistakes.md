@@ -94,14 +94,14 @@ What to do instead: check the segments. Pointed, claw-like segments mean Thanksg
 
 ## Frequently Asked Questions
 
-**Why is my Christmas cactus not blooming?**
+### Why is my Christmas cactus not blooming?
 The usual causes are warm nights, light after dark, or both: the plant needs cool nights (13–16°C) and 12–14 hours of uninterrupted darkness for several weeks in autumn to set buds. Overwatering, underwatering and repotting in autumn are the next most common causes.
 
-**Why do Christmas cactus buds fall off?**
+### Why do Christmas cactus buds fall off?
 Bud blast is usually triggered by a sudden change once buds have formed — moving the plant, a cold draught, or letting the soil dry out. Keep the plant still, water steadily and keep it away from radiators while buds are forming.
 
-**How do I force a Christmas cactus to bloom?**
+### How do I force a Christmas cactus to bloom?
 From September, give it cool nights, long dark nights and steady watering for six weeks, and stop feeding. Most healthy plants respond within that period; a plant that does not may be a Thanksgiving cactus blooming in November instead.
 
-**Is my plant a Christmas cactus or a Thanksgiving cactus?**
+### Is my plant a Christmas cactus or a Thanksgiving cactus?
 Check the segments: pointed, claw-like segments are Thanksgiving cactus (blooms late November); smooth, rounded segments are true Christmas cactus (blooms December to January). Care is the same for both.

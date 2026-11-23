@@ -94,14 +94,14 @@ Keep a small box by the tree for recovered ornaments and hooks, so the sweep is 
 
 ## Frequently Asked Questions
 
-**Are real [Christmas tree](/small-apartment-christmas-tree-ideas/)s safe with pets?**
+### Are real [Christmas tree](/small-apartment-christmas-tree-ideas/)s safe with pets?
 Mostly yes, with care: anchor the tree, cover the stand water, vacuum fallen needles regularly, and keep fragile ornaments high. Pine needles can irritate a pet's stomach if eaten in quantity, so sweeping up is part of pet-proofing.
 
-**What [Christmas plants](/christmas-plants-for-small-apartments/) are most dangerous for pets?**
+### What [Christmas plants](/christmas-plants-for-small-apartments/) are most dangerous for pets?
 Lilies are the most dangerous for cats, even in small amounts. Mistletoe, amaryllis, and poinsettias are also toxic. When in doubt, choose a pet-safe plant or a faux version.
 
-**Can I use Command hooks to anchor a Christmas tree in a rental?**
+### Can I use Command hooks to anchor a Christmas tree in a rental?
 Yes, if the hook is rated for well above the pulling force you expect — choose a hook rated for several kilos, test it before decorating, and remove it slowly in January following the manufacturer's instructions to avoid paint damage.
 
-**How do I stop my cat climbing the Christmas tree?**
+### How do I stop my cat climbing the Christmas tree?
 Anchor the tree, keep launchpad furniture away from it, put shatterproof ornaments low, and give the cat an alternative high perch nearby. Some cats will still try; the goal is to make the attempt harmless, not impossible.

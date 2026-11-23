@@ -122,14 +122,14 @@ This is a particularly good idea for ground-floor and street-facing rentals, whe
 
 ## Frequently Asked Questions
 
-**How can I decorate for Thanksgiving without damaging my rental?**
+### How can I decorate for Thanksgiving without damaging my rental?
 Stick to surfaces you own or that are damage-free: tables, doors (over-door hooks), shelves, and windows (painter's tape). Avoid nails, screws, and strong adhesives on walls. Every idea in this post uses one of those safe surfaces, so your deposit is never at risk.
 
-**What is the cheapest way to make a rental feel festive for Thanksgiving?**
+### What is the cheapest way to make a rental feel festive for Thanksgiving?
 Foraged branches, candles in jars you already own, and paper decorations — a centerpiece, candlelight, and a gratitude wall together cost under $10 and transform a room. Spend money only on the one item you will reuse every year, like a table runner or a faux wreath.
 
-**Can I hang a wreath on a rental front door?**
+### Can I hang a wreath on a rental front door?
 Yes, with an over-the-door hook — no nails, no holes, and it comes off cleanly. Add felt pads where the hook touches the door to prevent marks on soft finishes. If your building restricts door decorations, hang the wreath inside the door instead.
 
-**When should I put up Thanksgiving decor?**
+### When should I put up Thanksgiving decor?
 The week before Thanksgiving is ideal — early enough to enjoy it, late enough that it still feels special. Most of these ideas take under an hour total, so there is no need to start weeks ahead, and everything packs away the weekend after the holiday.

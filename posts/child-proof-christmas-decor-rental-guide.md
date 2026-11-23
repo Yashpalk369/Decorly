@@ -82,14 +82,14 @@ Child-proofing is not about removing the magic; it is about moving it to where i
 
 ## Frequently Asked Questions
 
-**Can I anchor a [Christmas tree](/small-apartment-christmas-tree-ideas/) in a rental without drilling?**
+### Can I anchor a [Christmas tree](/small-apartment-christmas-tree-ideas/) in a rental without drilling?
 Yes. Tie the top third of the trunk to the wall with clear fishing line hooked over a removable adhesive hook rated for several kilos, and place the tree in a corner for extra stability. Remove the hook slowly in January following the manufacturer's instructions to avoid paint damage.
 
-**What ornaments are safest for toddlers?**
+### What ornaments are safest for toddlers?
 Plastic, wood, felt, and fabric ornaments are the safest choices for the lower branches, since they bounce or squash rather than shatter. Hang them with wire hooks twisted closed around the branch, and keep glass, ceramic, and heirloom ornaments on the top two-thirds of the tree.
 
-**Which Christmas plants should I avoid with small children?**
+### Which Christmas plants should I avoid with small children?
 Avoid mistletoe berries, holly berries, amaryllis, and poinsettias around toddlers, since all of them can cause illness if eaten. Choose Christmas cactus, rosemary, Norfolk Island pine, or orchids instead, or use faux versions of toxic favourites.
 
-**Are flameless candles really safe around toddlers?**
+### Are flameless candles really safe around toddlers?
 Yes, flameless LED candles are the safest option in a home with small children, since they produce no heat or flame. Choose battery packs with screw-closed covers, keep spare batteries out of reach, and use them inside lanterns or hurricanes for a realistic glow.

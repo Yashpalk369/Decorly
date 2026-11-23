@@ -118,20 +118,20 @@ First impressions set the tone: a festive doormat ($8–12) plus a lantern fille
 
 ## Frequently Asked Questions
 
-**Can I put up a real Christmas tree in a rental?**
+### Can I put up a real Christmas tree in a rental?
 Usually yes — there's rarely a lease clause against it. The real constraints are space and mess: a full-size tree sheds needles into carpet you'll be charged for, and it dominates a small flat. A mini tree or a potted living tree you keep afterwards is the renter-smart move.
 
-**How do I [hang Christmas lights](/hang-christmas-lights-rental-guide/) without drilling?**
+### How do I [hang Christmas lights](/hang-christmas-lights-rental-guide/) without drilling?
 [Adhesive hooks](/no-drill-wall-decor-renters/) rated for the weight, suction cups on glass, and over-the-door hangers cover 95% of renter needs. For rooflines or balconies, gutter clips or railing hooks need no screws. Always check the hook's weight rating and let adhesive cure the full recommended time.
 
-**Will Command hooks damage my paint when removed?**
+### Will Command hooks damage my paint when removed?
 Used correctly, no — that's the whole point of them. The key is pulling the tab straight down slowly (never yanking outward), and not exceeding the weight rating. In very old or already-flaking paint, test one in a hidden spot first.
 
-**How early is too early to decorate for Christmas?**
+### How early is too early to decorate for Christmas?
 Pinterest data says Christmas decor interest starts climbing in mid-October, so decorating in late October or early November is perfectly normal now. If your lease or housemates have opinions, the day after Thanksgiving remains the classic start.
 
-**How do I store Christmas decor in a small rental?**
+### How do I store Christmas decor in a small rental?
 One under-bed box or a single vacuum bag holds all twelve of these ideas — garlands coil, pillow covers fold flat, the mini tree's basket nests inside itself. Label the box clearly and it's a one-trip job every December.
 
-**What's the cheapest way to make a rental smell like Christmas?**
+### What's the cheapest way to make a rental smell like Christmas?
 Simmer orange slices, cinnamon sticks, cloves, and a sprig of rosemary in a pot of water on the stove for an hour. It costs pennies, fills the whole flat with Christmas scent, and there's nothing to store afterwards.

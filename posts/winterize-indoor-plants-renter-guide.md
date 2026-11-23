@@ -78,20 +78,20 @@ Finally, resist the urge to repot. Winter-repotted plants sit in damp, oversized
 
 ## Frequently Asked Questions
 
-**Do indoor plants really go dormant in winter?**
+### Do indoor plants really go dormant in winter?
 Most do, at least partially. Lower light and cooler rooms slow their metabolism dramatically — you'll see little to no new growth from November to February. That's normal, not a problem. Treat them like they're resting: less water, no food, stable conditions.
 
-**My apartment has the heating blasting — is that bad for plants?**
+### My apartment has the heating blasting — is that bad for plants?
 It's the dryness, not the warmth, that hurts. Most houseplants are fine at 18–24°C; what they hate is the 25% humidity that comes with it. Pebble trays, grouping, and keeping plants away from direct heat blasts solve 90% of heating-season problems.
 
-**Should I mist my plants in winter?**
+### Should I mist my plants in winter?
 Misting gives a humidity boost that lasts about ten minutes — it's more ritual than remedy. Pebble trays and grouping work far better. If you love misting, do it in the morning so leaves dry by evening; wet leaves overnight invite fungal problems.
 
-**Can I still buy new plants in winter?**
+### Can I still buy new plants in winter?
 You can, but transport is the risk: tropical plants chill-damage in minutes in freezing air. If you buy, bag the plant, get it into a warm car immediately, and don't leave it in a cold hallway. Better yet, wait for spring — or buy from a shop you can walk to with the plant inside your coat.
 
-**Why are my plant's leaves turning yellow in winter?**
+### Why are my plant's leaves turning yellow in winter?
 Usually overwatering (see Step 3) — winter's classic. But also check: cold draft exposure, a new position too far from light, or natural shedding of the oldest leaves. One or two yellow lower leaves on an otherwise healthy plant is normal winter behaviour, not an emergency.
 
-**When should I start fertilizing again?**
+### When should I start fertilizing again?
 When you see clear new growth — fresh leaves unfurling, stems extending — which for most indoor plants means March or April. Start at half strength for the first feed of the season, then resume your normal schedule.

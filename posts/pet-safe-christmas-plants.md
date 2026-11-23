@@ -98,14 +98,14 @@ Not every festive favourite is safe, and knowing the short danger list matters a
 
 ## Frequently Asked Questions
 
-**Are Christmas cacti really safe for cats and dogs?**
+### Are Christmas cacti really safe for cats and dogs?
 Yes. Christmas cactus is listed as non-toxic to both cats and dogs. A nibble may cause mild stomach upset if a pet eats a lot, but it is not poisonous.
 
-**Is rosemary safe for pets?**
+### Is rosemary safe for pets?
 Yes, rosemary is non-toxic to cats and dogs in the small amounts a pet might nibble from a plant. It is also a culinary herb, so a plant on the kitchen sill does double duty.
 
-**What should I do if my pet eats a toxic Christmas plant?**
+### What should I do if my pet eats a toxic Christmas plant?
 Remove the plant, note how much was eaten, and call your vet or a pet poison helpline immediately — do not wait for symptoms with lilies in particular, where early treatment matters most.
 
-**Are faux [Christmas plants](/christmas-plants-for-small-apartments/) a better option with pets?**
+### Are faux [Christmas plants](/christmas-plants-for-small-apartments/) a better option with pets?
 Faux plants remove the toxicity risk but add a chewing and ingestion risk from plastic and fabric pieces. For persistent chewers, a high shelf or a hanging plant — real and safe — is often the better answer.

@@ -82,14 +82,14 @@ Your plants are tougher than you think, and a holiday is not the threat to them 
 
 ## Frequently Asked Questions
 
-**How long can houseplants survive without water?**
+### How long can houseplants survive without water?
 Most common houseplants survive one to two weeks without watering, and drought-tolerant plants like snake plants, ZZ plants and cacti can manage three to four weeks. Thirsty tropical plants like ferns and calatheas are the exception and need a wick system or a plant sitter for anything over a week.
 
-**Should I leave the heating on for my plants while I am away?**
+### Should I leave the heating on for my plants while I am away?
 Keep the heating at its normal background level, around 15–18°C, rather than turning it off entirely. Freezing temperatures damage tropical plants quickly, and a cold flat also dries the air. Avoid placing plants right next to radiators, where the hot, dry air will crisp their leaves.
 
-**Is it better to move plants into the bathroom while I travel?**
+### Is it better to move plants into the bathroom while I travel?
 Yes, for humidity-loving plants it is often the best spot in a flat, since bathrooms stay naturally damper and usually have a window for light. Just make sure the room gets some daylight and is not pitch dark, and move plants back to their normal spots when you return.
 
-**What if I come home to a plant that looks dead?**
+### What if I come home to a plant that looks dead?
 Do not throw it away straight away. Many plants that look dead after a dry spell still have living roots — water it thoroughly, trim the dead leaves, and give it two to three weeks of normal care. If the stems are still flexible and green underneath the surface, there is a good chance it will regrow.

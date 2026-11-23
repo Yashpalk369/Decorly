@@ -112,14 +112,14 @@ Use a railing planter or a narrow trough so the herbs don't eat floor space, and
 
 ## Frequently Asked Questions
 
-**Can I really use a small balcony in winter, or is it just for looks?**
+### Can I really use a small balcony in winter, or is it just for looks?
 You can genuinely use it, but only if you solve wind and seating comfort first. A sheltered corner with a warm chair and a throw is usable on most winter days above freezing. Think short, pleasant visits — morning coffee, a reading chapter, a phone call — not summer-long lounging, and it will get used all season.
 
-**What plants survive winter on an apartment balcony?**
+### What plants survive winter on an apartment balcony?
 Dwarf conifers, boxwood, ivy, winter heather, rosemary and thyme are the reliable choices in pots. They need far less water in winter, good drainage, and pots raised off the ground. Tender plants like basil and most flowers will not survive a frost — bring those inside before the first cold snap.
 
-**Are electric patio heaters allowed on rental balconies?**
+### Are electric patio heaters allowed on rental balconies?
 It depends on your lease and building rules, so check both before buying. Many buildings allow small electric heaters but ban gas heaters and open flames. If heaters are banned, layered textiles, a wind screen and a hot drink still make a balcony comfortable for short winter visits.
 
-**How do I keep balcony cushions from getting ruined in winter?**
+### How do I keep balcony cushions from getting ruined in winter?
 Use weatherproof covers, and store the soft layers — throws and wool cushions — in a bench or bring them inside between uses. The ten seconds it takes to carry a throw in and out is what keeps it looking good in February instead of sodden and mildewed.

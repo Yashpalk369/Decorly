@@ -118,17 +118,17 @@ If your window has even a 40 cm deep sill or a radiator cover beneath it, you ha
 
 ## Frequently Asked Questions
 
-**Will fairy lights or garlands damage my window frames?**
+### Will fairy lights or garlands damage my window frames?
 Not if you hang them right. Use the curtain rod, removable adhesive hooks, or suction cups — never nails, screws, or anything that pierces the trim. LED fairy lights run cool, so there's no heat damage risk to paint or uPVC.
 
-**How do I hang a garland with no drilling allowed?**
+### How do I hang a garland with no drilling allowed?
 Removable adhesive hooks rated for the garland's weight (check the packet — most hold 1–2 kg), placed on the wall above the trim rather than on the trim itself. For heavy fresh garlands, use two hooks per swag point. Remove slowly with dental floss warmed by a hairdryer to protect the paint.
 
-**Are suction-cup hooks reliable in cold weather?**
+### Are suction-cup hooks reliable in cold weather?
 Mostly yes, with one trick: clean the glass with rubbing alcohol first and apply the cup to the interior pane (room-temperature glass holds better than cold exterior glass). In very cold snaps, check them weekly — a wreath falling at 2 a.m. is nobody's idea of Christmas magic.
 
-**How much electricity do LED window lights use?**
+### How much electricity do LED window lights use?
 Almost none. A typical 100-LED curtain draws about 3–5 watts — running it six hours a night for all of December costs well under a dollar. Battery sets are even simpler, though you'll go through a set of AAs every couple of weeks.
 
-**What if my windows have blinds instead of curtains?**
+### What if my windows have blinds instead of curtains?
 Ideas 3, 4, 5, 6, 7 and 10 all work with blinds — decals, sill displays, suction-cup wreaths, candles, spray snow, and ornaments hung from the blind's headrail or a tension rod inside the frame. Only the light curtain and rod-hung ideas assume curtains.

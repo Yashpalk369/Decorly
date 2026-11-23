@@ -85,14 +85,14 @@ Before you close it up, do a two-minute restock note: what ran out, what you nev
 
 ## Frequently Asked Questions
 
-**Where should I put a gift-wrapping station in a small apartment?**
+### Where should I put a gift-wrapping station in a small apartment?
 Anywhere it can be closed away: a rolling cart that lives in a closet, a shelf in a wardrobe, or a corner with a folding table. The spot matters less than the rule that everything lives in one container.
 
-**How do I store wrapping paper so it does not get ruined?**
+### How do I store wrapping paper so it does not get ruined?
 Store rolls upright in a tall bin or umbrella stand, never flat under a bed where they get crushed. Kept upright and dry, wrapping paper lasts for years.
 
-**What supplies does a wrapping station actually need?**
+### What supplies does a wrapping station actually need?
 Three good paper rolls, sharp scissors, a weighted tape dispenser, ribbon, tags and a pen. That is the whole kit — everything beyond it is decoration, not necessity.
 
-**How do I keep wrapping from taking over my flat all December?**
+### How do I keep wrapping from taking over my flat all December?
 Wrap in batches, clear the surface every evening even if gifts are unfinished, and keep all supplies in one cart or bin that rolls away. A station with a boundary stays joyful; a station without one becomes clutter.

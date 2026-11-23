@@ -94,14 +94,14 @@ Where it fits: anywhere an adhesive hook will hold — smooth ceilings, tiled wa
 
 ## Frequently Asked Questions
 
-**How do I hang a planter in a rental without drilling?**
+### How do I hang a planter in a rental without drilling?
 Use adhesive ceiling hooks rated for the planter's wet weight, tension rods across windows, or wall brackets that use Command strips. For heavy ceramic planters, a proper ceiling hook is safer — check your lease, and fill the hole with white filler when you move out.
 
-**How do I water a hanging planter without dripping everywhere?**
+### How do I water a hanging planter without dripping everywhere?
 Take it down and water it over the sink or bath, let it drain fully, then rehang it. If it is too high to take down easily, use a pot with a saucer inside the hanger, or a self-watering planter with a reservoir.
 
-**What plants are best in hanging planters?**
+### What plants are best in hanging planters?
 [Trailing plants](/trailing-plants-small-apartment-winter-ideas/): pothos, philodendron, string of hearts, spider plants, and trailing ferns. They spill over the edge and show off the hanging form. Avoid heavy, top-heavy plants that make the hanger swing.
 
-**How much weight can an adhesive ceiling hook hold?**
+### How much weight can an adhesive ceiling hook hold?
 Most adhesive hooks hold 3 to 7 pounds. Weigh your planter with wet soil and a plant before hanging — wet soil is much heavier than dry, and a planter that holds dry may fail when freshly watered.

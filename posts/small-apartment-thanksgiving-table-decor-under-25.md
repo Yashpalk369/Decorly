@@ -94,14 +94,14 @@ Where it fits: scattered on the runner between candles, tucked into napkin folds
 
 ## Frequently Asked Questions
 
-**How do you decorate a small Thanksgiving table without crowding it?**
+### How do you decorate a small Thanksgiving table without crowding it?
 Keep the centrepiece long and low, use candlelight instead of height, and put colour in the linens rather than in bulky objects. One runner, one low bowl or garland, and candles are enough — everything else should be flat, edible or useful.
 
-**What is the cheapest way to make a Thanksgiving table look expensive?**
+### What is the cheapest way to make a Thanksgiving table look expensive?
 Candlelight and cloth napkins. Warm light flatters everything on the table, and cloth napkins signal occasion for less than the cost of a takeaway. A linen-look runner is the third piece that ties them together.
 
-**Can I use real pumpkins and greenery on a small table?**
+### Can I use real pumpkins and greenery on a small table?
 Yes — mini pumpkins and flat-laid eucalyptus are ideal for small tables because they are low and need no vase. Skip tall arrangements and big pillar candles, which block sightlines and eat serving space.
 
-**What should I avoid on a small Thanksgiving table?**
+### What should I avoid on a small Thanksgiving table?
 Anything tall, anything that cannot be moved when the food arrives, and anything scented so strongly it competes with dinner. Keep the centrepiece below eye level when seated, and leave at least one clear hand-width of table in front of each guest.

@@ -94,14 +94,14 @@ Where it fits: anywhere you already garden — the windowsill with the other pla
 
 ## Frequently Asked Questions
 
-**When should I plant amaryllis for Christmas blooms?**
+### When should I plant amaryllis for Christmas blooms?
 Plant in early November — most amaryllis take six to eight weeks from planting to flowers. Planted later, they bloom in January instead.
 
-**Do waxed amaryllis bulbs need water?**
+### Do waxed amaryllis bulbs need water?
 No. Waxed bulbs grow using energy stored in the bulb and need no soil, pot or water — just bright light and a stable surface.
 
-**Are amaryllis safe around pets?**
+### Are amaryllis safe around pets?
 No — amaryllis bulbs and flowers are mildly toxic to cats and dogs if chewed. Keep them out of reach of curious pets, or choose a high shelf or hanging spot.
 
-**Can amaryllis bulbs rebloom next year?**
+### Can amaryllis bulbs rebloom next year?
 Yes, except waxed bulbs. After flowering, keep watering and feeding the leaves until they yellow, then let the bulb rest dry for eight to ten weeks before replanting — it may bloom again the following winter.

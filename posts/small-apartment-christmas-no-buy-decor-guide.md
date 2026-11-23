@@ -92,14 +92,14 @@ Best of all, nothing here risks your deposit or fills your cupboards. When Janua
 
 ## Frequently Asked Questions
 
-**Can I really decorate for Christmas without buying anything?**
+### Can I really decorate for Christmas without buying anything?
 Yes — most homes already contain everything this guide uses: string lights from previous years, candles, jars, scrap paper, textiles, kitchen ingredients and houseplants. The audit in step one usually surprises people with how much they already own. Anything you genuinely lack, like greenery, can usually be gathered free from a garden or a neighbour with permission.
 
-**How do I hang decorations in a rented apartment without damaging the walls?**
+### How do I hang decorations in a rented apartment without damaging the walls?
 Use damage-free methods only: small pieces of tape for paper stars, existing hooks and picture rails, string draped over curtain rods and shelf edges, and decorations that sit on surfaces rather than hanging. Command-style adhesive hooks also remove cleanly if used as directed. Avoid nails, screws and anything that pierces paint or plaster, and always test tape on a hidden spot first.
 
-**Will paper decorations and greenery look cheap compared with shop-bought decor?**
+### Will paper decorations and greenery look cheap compared with shop-bought decor?
 Not if you keep them simple and consistent. A small number of well-made paper stars in two or three colours looks far more stylish than a jumble of unrelated ornaments, and real greenery always looks more expensive than plastic. The trick is restraint: in a small apartment, a few beautiful handmade pieces beat a room crammed with decorations every time.
 
-**How long will free greenery and edible decorations last?**
+### How long will free greenery and edible decorations last?
 Fresh cuttings kept in water and misted regularly usually last two to three weeks indoors, so gather them in mid-December rather than early in the month. Dried orange slices and popcorn garlands last the whole season if kept dry and away from damp windows. Replace any greenery that dries out or drops needles, and compost it rather than throwing it away.

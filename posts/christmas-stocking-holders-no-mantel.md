@@ -104,14 +104,14 @@ A rail strip is a single bar with several hooks, mounted with adhesive strips ra
 
 ## Frequently Asked Questions
 
-**How much weight can a stocking holder hold?**
+### How much weight can a stocking holder hold?
 Check the rating before you buy, not after you fill the stocking. A filled stocking typically weighs 1–2 kg. Freestanding stands and weighted figurines handle this easily; adhesive hooks and rails need a rating of at least 2 kg per stocking, and tension rods should carry lighter stockings only.
 
-**Will adhesive stocking hooks damage rental walls?**
+### Will adhesive stocking hooks damage rental walls?
 Not if you use them correctly. Stick them to smooth, clean, painted walls — never textured wallpaper or freshly painted walls (wait at least a month after painting). Remove them by pulling the tab slowly downward, parallel to the wall, and never by yanking the hook outward.
 
-**Where should stockings go in a flat with no fireplace?**
+### Where should stockings go in a flat with no fireplace?
 Wherever the family gathers: above the console table, along a bookshelf, on a banister, or in a window. The tradition is the stockings themselves, not the fireplace — children remember finding their stocking, not what it hung from.
 
-**Can I hang stockings from a curtain rod?**
+### Can I hang stockings from a curtain rod?
 Only if the rod is a sturdy, wall-mounted rod — never a tension rod or a flimsy cafe rod, which can bend or fall under the weight of filled stockings. A tension rod inside a window frame is a better bet than a curtain rod, because the frame supports it on both sides.

@@ -102,14 +102,14 @@ If the hook is in an awkward spot — too high, or behind the door's swing — a
 
 ## Frequently Asked Questions
 
-**What is the safest way to hang a wreath in a rental?**
+### What is the safest way to hang a wreath in a rental?
 An over-the-door hanger for the front door, or a large adhesive hook rated for double the wreath's weight for a wall or interior door. Both remove without a trace when used as directed.
 
-**Will adhesive hooks damage rental paint?**
+### Will adhesive hooks damage rental paint?
 Not if the surface is smooth, clean and fully cured, and you remove the hook by pulling the tab slowly parallel to the wall. Avoid adhesive on fresh paint (under a month old), textured wallpaper or brick.
 
-**How heavy a wreath can an adhesive hook hold?**
+### How heavy a wreath can an adhesive hook hold?
 Dedicated wreath hooks typically hold 3–7 kg, which covers most faux wreaths and many fresh ones. Weigh a fresh wreath before hanging — it is heavier than it looks, and it gains weight as it absorbs water.
 
-**Can I hang a wreath on a glass door?**
+### Can I hang a wreath on a glass door?
 Yes, with a suction-cup hook for a light faux wreath, or a magnetic hanger if the door is metal. For a heavy fresh wreath on glass, a freestanding stand is the safer choice.

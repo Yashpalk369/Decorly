@@ -94,14 +94,14 @@ Where it fits: inside the front door of any flat with low clearance, or anywhere
 
 ## Frequently Asked Questions
 
-**What size doormat should I buy for an apartment?**
+### What size doormat should I buy for an apartment?
 The standard 18 by 30 inches fits most apartment doors. If you have porch room, 24 by 36 inches makes a bigger impression, but measure your door clearance and your hallway width first — a mat wider than the door frame looks wrong.
 
-**Will a thick coir mat jam my apartment door?**
+### Will a thick coir mat jam my apartment door?
 It can, if your door sits close to the floor. Test the clearance with a coin: if a coin barely slides under the door, buy a low-profile or washable mat instead of thick coir, or place the coir mat outside and a thin mat inside.
 
-**How do I keep a Christmas doormat clean all winter?**
+### How do I keep a Christmas doormat clean all winter?
 Shake coir mats outside weekly, and machine-wash washable mats every few weeks. A layering base rug underneath catches the worst of the mud and extends the life of the festive mat on top.
 
-**When should I put a Christmas doormat down and take it up?**
+### When should I put a Christmas doormat down and take it up?
 Late November is the sweet spot for putting it down, and early January for taking it up. A winter-themed mat like a snowflake can stay out through January; a "Merry Christmas" mat should come in once the tree does.

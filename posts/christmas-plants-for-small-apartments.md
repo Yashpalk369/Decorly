@@ -114,17 +114,17 @@ Not a plant to keep — a styling move. A bundle of cut winterberry stems ($10�
 
 ## Frequently Asked Questions
 
-**Are Christmas plants safe around cats and dogs?**
+### Are Christmas plants safe around cats and dogs?
 Some are, some aren't. Pet-safe picks from this list: Norfolk pine, rosemary, Christmas cactus, frosty fern, and dwarf Alberta spruce. Keep poinsettias, amaryllis, paperwhites, cyclamen, and winterberry out of reach — they're mildly to moderately toxic if chewed. When in doubt, hang the plant or put it in a closed room.
 
-**How long will a poinsettia actually last?**
+### How long will a poinsettia actually last?
 With bright indirect light, no draughts, and careful watering (only when the top inch is dry), a [poinsettia](/keep-poinsettias-alive-guide/) holds its colour for 2–3 months. The number-one killer is overwatering in a foil-wrapped pot with no drainage — poke holes in the foil or remove it.
 
-**Can I keep a Norfolk pine alive all year?**
+### Can I keep a Norfolk pine alive all year?
 Easily — it's a houseplant that happens to look like a Christmas tree. Bright indirect light, regular misting or a humidifier nearby, and even watering keep it happy. It hates sudden moves and dry radiator heat, so find its spot in January and leave it there.
 
-**How do I get my Christmas cactus to bloom again next year?**
+### How do I get my Christmas cactus to bloom again next year?
 It needs 12–14 hours of uninterrupted darkness and cool nights (12–15°C) for about six weeks in autumn to set buds. A spare bedroom you don't light at night is perfect. Once buds form, don't move it — Christmas cacti drop buds when relocated.
 
-**What's the absolute cheapest festive plant option?**
+### What's the absolute cheapest festive plant option?
 A bundle of winterberry or eucalyptus stems ($10–12) in a vase you own, or a supermarket rosemary cone ($8–10) that you then cook with. Both beat cut flowers on cost-per-week by a mile.

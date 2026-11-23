@@ -104,17 +104,17 @@ The classic Christmas plant gift: a boxed amaryllis kit ($10–15) that the reci
 
 ## Frequently Asked Questions
 
-**Is a plant actually a good gift for a beginner?**
+### Is a plant actually a good gift for a beginner?
 Yes — if you pick a forgiving one. Pothos-level easy picks from this list: hoya heart, pilea, air plants, and monstera all tolerate beginner mistakes. Avoid gifting anything fussy (maidenhair ferns, calatheas) unless you know the recipient's skill level. When in doubt, gift the tools or planters instead — they can't be killed.
 
-**When should I order plant gifts for Christmas?**
+### When should I order plant gifts for Christmas?
 Order live plants by early December at the latest — cold snaps in transit are the real risk, and most sellers add heat packs on request. Bulb kits and tools can wait until mid-December. If you're cutting it close, buy locally and gift in person.
 
-**Are these plants safe around pets?**
+### Are these plants safe around pets?
 Mixed. Pet-safe picks: hoya heart, pilea, air plants, and Christmas cactus. Keep monsteras, orchids (mild), and amaryllis away from curious cats and dogs — they're toxic if chewed. If the recipient has pets and you're unsure, the grow light, planters, or tool set are the safe play.
 
-**What if the plant arrives damaged?**
+### What if the plant arrives damaged?
 Reputable sellers replace or refund damaged live plants — photograph the box and plant immediately on arrival and contact the seller the same day. This is another reason to order early: it leaves time for a replacement before Christmas.
 
-**How do I wrap a plant gift?**
+### How do I wrap a plant gift?
 Don't wrap the plant itself — wrap the pot. A square of kraft paper or fabric tied with ribbon around the pot looks far better than struggling with a box, and the plant stays happy. Tuck the care card (light, water, pet notes) into the ribbon so it doesn't get lost.

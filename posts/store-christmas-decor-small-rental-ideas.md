@@ -102,14 +102,14 @@ Where it fits: in your January routine, not your December shopping. As you pack 
 
 ## Frequently Asked Questions
 
-**Where do you store Christmas decor in a small apartment with no attic?**
+### Where do you store Christmas decor in a small apartment with no attic?
 Under the bed, on top of wardrobes, in closet carts and on the backs of doors — the dead spaces your flat already has. Flat bins, vacuum bags and wreath bags are designed for exactly these spots.
 
-**How do I keep ornaments from breaking in storage?**
+### How do I keep ornaments from breaking in storage?
 Use divided boxes so nothing stacks on anything fragile, wrap glass and heirloom pieces in tissue, and never store heavy items on top of ornament boxes.
 
-**Should I keep the original box my artificial tree came in?**
+### Should I keep the original box my artificial tree came in?
 No — a zippered tree bag is sturdier, easier to carry and fits in more places. The original box tears and rarely closes properly after the first year.
 
-**How do I stop my Christmas collection growing every year?**
+### How do I stop my Christmas collection growing every year?
 Apply one-in-one-out: every new decoration means one donated or discarded. Pack-away time in January is the moment to cull — anything you did not display this year goes in the donation bag.

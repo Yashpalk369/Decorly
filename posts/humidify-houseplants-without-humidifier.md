@@ -94,14 +94,14 @@ Keep the moss damp, not soaking, and replace it every few months when it starts 
 
 ## Frequently Asked Questions
 
-**How do I know if my flat is too dry for my plants?**
+### How do I know if my flat is too dry for my plants?
 Crispy brown leaf edges and tips are the classic sign, especially on ferns and calatheas. A cheap hygrometer (under $10) tells you the actual number: below 40% is dry for most tropical plants, and below 30% will damage all but succulents and cacti.
 
-**Is misting enough to humidify plants?**
+### Is misting enough to humidify plants?
 On its own, no — mist evaporates within 30 minutes. Misting helps as a supplement to grouping, pebble trays or a bathroom move, but if misting is your only method, your plants are still living in dry air most of the day.
 
-**Can high humidity damage my flat?**
+### Can high humidity damage my flat?
 Humidity around plants (40–60%) is also comfortable for people and will not damage a flat. Problems start above 70% sustained, with condensation on windows and mould on cold walls. The methods here raise local humidity around plants, not whole-flat humidity to dangerous levels — but keep rooms ventilated in winter regardless.
 
-**Which houseplants need the most humidity?**
+### Which houseplants need the most humidity?
 Ferns, calatheas, marantas, peace lilies and most tropical foliage plants want 50–60% or more. Succulents, cacti, snake plants and ZZ plants are happy in dry air and can actually suffer if you humidify them too much — keep those away from your humidity tricks.

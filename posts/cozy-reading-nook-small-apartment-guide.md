@@ -82,14 +82,14 @@ Protect the ritual from the flat's other jobs. If the nook chair becomes the pla
 
 ## Frequently Asked Questions
 
-**How much space do I really need for a reading nook?**
+### How much space do I really need for a reading nook?
 About one square metre — roughly 90 cm by 90 cm for a chair and a small side surface. A window corner, the end of a bookshelf wall, or even a wide hallway landing can work. If you can't spare a chair's footprint, a floor cushion with a backrest pillow against a wall is a genuine alternative.
 
-**What is the best lighting for reading in a small apartment?**
+### What is the best lighting for reading in a small apartment?
 Layered warm light: soft ambient light for the room, a task lamp over your shoulder for the page, and a small accent glow (candle or fairy lights) for atmosphere. Avoid a single bright overhead light, which creates glare and shadows, and avoid cool-white bulbs, which feel clinical in a cozy corner.
 
-**Can I build a reading nook in a rental without drilling?**
+### Can I build a reading nook in a rental without drilling?
 Yes, entirely. A freestanding chair, a floor lamp, a side table or stool, and a basket for books need no fixings at all. If you want wall storage, leaning ladder shelves and adhesive hooks give you most of the benefit of shelves with zero holes.
 
-**How do I stop my reading nook becoming a dumping ground?**
+### How do I stop my reading nook becoming a dumping ground?
 Give everything else a home first, and keep one rule: only the throw and the current book live on the chair. A small basket beside the chair catches the books, and a side table catches the mug — when those two spots are full, the nook is full, and the clutter has to go elsewhere.

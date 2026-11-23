@@ -104,14 +104,14 @@ A propagation station — a wooden stand holding glass tubes or bottles — is w
 
 ## Frequently Asked Questions
 
-**What size planter fits a standard windowsill?**
+### What size planter fits a standard windowsill?
 Measure your sill first — most flat windowsills are 12–20 cm deep. A pot should be at least 2 cm narrower than the sill depth, so it sits stably and does not overhang the edge. For sills under 12 cm, use suction-cup or magnetic planters instead of pots.
 
-**Do windowsill planters need drainage holes?**
+### Do windowsill planters need drainage holes?
 Yes, always. A pot without drainage drowns roots and, on a painted sill, the standing water damages the paint. If you love a pot without a hole, use it as a cover pot: keep the plant in a nursery pot with holes inside it, and empty the cover pot after watering.
 
-**How do I stop planters from staining a rental windowsill?**
+### How do I stop planters from staining a rental windowsill?
 Use a saucer or a waterproof tray under every pot, and wipe the sill when you water. Cork or felt pads under saucers add another layer of protection, and they stop ceramic from scratching paint when you slide a pot.
 
-**Are heavy ceramic pots safe on a windowsill?**
+### Are heavy ceramic pots safe on a windowsill?
 Small ceramic pots are fine, but keep them away from the edge and out of reach of cats and children who might knock them. For high sills or sills above a bed or a walkway, choose lighter materials — bamboo, plastic or tin — so a fall is an inconvenience rather than a hazard.

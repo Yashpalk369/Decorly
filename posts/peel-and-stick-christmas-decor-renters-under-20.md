@@ -94,14 +94,14 @@ Where it fits: scattered across a tiled backsplash, on the front of a plain cabi
 
 ## Frequently Asked Questions
 
-**Do peel-and-stick Christmas decorations damage rental walls?**
+### Do peel-and-stick Christmas decorations damage rental walls?
 Good removable decals do not, provided the paint is fully cured (at least a month old), the surface is smooth and clean, and you peel slowly in a warm room, warming stubborn spots with a hairdryer. Avoid them on textured wallpaper, fresh paint and brick.
 
-**What is the difference between static clings and adhesive decals?**
+### What is the difference between static clings and adhesive decals?
 Static clings stick to glass with static electricity and no glue, so they leave nothing and reposition endlessly. Adhesive decals stick with glue and suit walls and tiles, but must be labelled removable — permanent decals will damage paint on removal.
 
-**How do I remove peel-and-stick decor cleanly in January?**
+### How do I remove peel-and-stick decor cleanly in January?
 Warm the room, peel slowly from one corner, and keep the strip close to the surface as you pull. For stubborn adhesive, warm it with a hairdryer for ten seconds, then roll the residue off with your thumb or a little cooking oil on a cloth.
 
-**Can I reuse peel-and-stick Christmas decor next year?**
+### Can I reuse peel-and-stick Christmas decor next year?
 Static window clings, yes — store them flat between baking paper. Adhesive wall decals sometimes survive one careful removal, but plan on them being single-season; washi tape and snow spray are single-use by nature.

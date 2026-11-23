@@ -78,14 +78,14 @@ When flowering finishes, the honest news is that forced paperwhites rarely bloom
 
 ## Frequently Asked Questions
 
-**When should I plant paperwhites for Christmas?**
+### When should I plant paperwhites for Christmas?
 Plant in early to mid-November for Christmas-week blooms, counting back four to six weeks from when you want flowers. Planting in the first week of November gives early December flowers; mid-November planting lands right on Christmas week.
 
-**Do paperwhite bulbs need chilling before forcing?**
+### Do paperwhite bulbs need chilling before forcing?
 No — unlike tulips and hyacinths, paperwhites need no cold period at all. That is what makes them the easiest indoor bulb for Christmas: plant, water, light, and they bloom.
 
-**Why do my paperwhites fall over?**
+### Why do my paperwhites fall over?
 Tall, fast growth in a warm room makes weak stems. Stake early with canes and twine, keep the bowl in a cool, bright spot, and consider the dilute-alcohol trick once shoots reach 10 cm to keep stems shorter and sturdier.
 
-**Can I reuse paperwhite bulbs after forcing?**
+### Can I reuse paperwhite bulbs after forcing?
 Forced paperwhites rarely rebloom well, because forcing exhausts the bulb. Compost spent bulbs and buy fresh ones each autumn — they are inexpensive, and fresh bulbs give the most reliable display.

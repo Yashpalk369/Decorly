@@ -108,14 +108,14 @@ The best small-bedroom Christmas decor is the kind you notice every evening when
 
 ## Frequently Asked Questions
 
-**How do I decorate a small bedroom for Christmas without it feeling cluttered?**
+### How do I decorate a small bedroom for Christmas without it feeling cluttered?
 Stick to surfaces that are already there — the headboard, the dresser, the mirror and the windowsill — and decorate with light rather than objects. One string of fairy lights and a bedding swap will change the whole room, and every extra piece should earn its place. If a decoration needs floor space, it probably does not belong in a small bedroom.
 
-**What Christmas decorations are safe for a rented bedroom?**
+### What Christmas decorations are safe for a rented bedroom?
 Anything that hangs from a removable adhesive hook, rests on a surface, or drapes over existing furniture is renter-safe. Avoid nails, screws and anything that leaves a mark on walls or ceilings. Battery-operated lights remove the need for extra sockets, and flameless candles give you the glow of candlelight without breaking a no-candles clause in your tenancy agreement.
 
-**How much should I budget for Christmas bedroom decor in a small apartment?**
+### How much should I budget for Christmas bedroom decor in a small apartment?
 You can transform a small bedroom for $25 to $50, especially if you already own a throw and a spare set of bedding. Fairy lights cost a few dollars, cushion covers are among the cheapest festive buys, and a mini tree on the dresser is usually under $20. Start with lights and bedding, then add one piece a year — a good wreath, a quality throw — and the collection builds itself.
 
-**When should I put up Christmas bedroom decor?**
+### When should I put up Christmas bedroom decor?
 Most people decorate bedrooms later than living rooms, and that is a sensible approach in a small flat: start in late November or the first weekend of December, when the evenings get properly dark and the fairy lights actually earn their keep. Pack it away in the first week of January, while you still have the energy, and store everything in one labelled box ready for next year.

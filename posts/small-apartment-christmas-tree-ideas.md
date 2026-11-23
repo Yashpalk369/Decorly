@@ -102,20 +102,20 @@ A felt tree wall hanging ($12–15) with sewn-on pockets works as tree, advent c
 
 ## Frequently Asked Questions
 
-**What size Christmas tree fits a small apartment?**
+### What size Christmas tree fits a small apartment?
 Match the tree to your room, not your dreams: for a studio or small living room, stay under 4 ft tall for tabletop trees or choose a slim pencil tree (5–6 ft tall, 2 ft wide) for floor placement. Measure your ceiling first — you need at least 30 cm clearance above the tree for a topper.
 
-**Is a real or artificial tree better for a small flat?**
+### Is a real or artificial tree better for a small flat?
 Artificial wins for small spaces: no needle drop in carpet, no watering, and it stores compactly. A small real tree is lovely but messy and needs a stand with a wide footprint. The compromise is a living potted tree like a Norfolk pine — real, small, and it stays as a houseplant.
 
-**How do I make a small Christmas tree look full and expensive?**
+### How do I make a small Christmas tree look full and expensive?
 Three tricks: fluff every branch (most artificial trees look sparse because nobody separates the tips), use a tight ornament palette of one colour plus metallics, and add one garland spiral or ribbon to fill gaps. Warm white lights (not multicolour) do the rest.
 
-**Where do I store a Christmas tree in a tiny flat with no loft?**
+### Where do I store a Christmas tree in a tiny flat with no loft?
 Choose the format for your storage, not just your December: pop-up trees slide under beds, half trees lean behind wardrobes, tomato-cage trees nest into a carrier bag, and ladder trees just become shelves. If it can't store flat, don't buy it.
 
-**Can I have a Christmas tree in a studio with cats?**
+### Can I have a Christmas tree in a studio with cats?
 Yes — pick a wall-mounted half tree, a suspended tree, or a felt wall tree, all out of batting range. If you want a floor tree, anchor it: a heavy basket base plus a wall tether (adhesive hook + twine) stops the classic 3 a.m. tree toppling.
 
-**When is the cheapest time to buy a small Christmas tree?**
+### When is the cheapest time to buy a small Christmas tree?
 Early November sales beat December prices by 20–30%, and the day-after-Christmas clearance (50–75% off) is unbeatable if you can wait a year. Buy lights and ornaments in January too — they're the priciest part of the setup.

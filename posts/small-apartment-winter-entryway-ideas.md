@@ -102,14 +102,14 @@ Keep it to one or two touches, not five. In a small space, a single warm light a
 
 ## Frequently Asked Questions
 
-**How do I keep a small entryway from smelling damp in winter?**
+### How do I keep a small entryway from smelling damp in winter?
 Airflow and a dry boot tray. Empty the tray weekly, never let boots sit in standing water, and choose open storage (slatted benches, open baskets) over closed cupboards so damp gear can dry. A small sachet of baking soda in the basket absorbs odours without any scent.
 
-**What is the best flooring protection for a rental entryway?**
+### What is the best flooring protection for a rental entryway?
 Layered mats: coir outside, washable rug inside. Together they catch grit and water before they reach the floor, which is what protects both the floor and your deposit. Avoid adhesive-backed mats on hard floors, which can leave residue.
 
-**How can I add entryway storage without drilling?**
+### How can I add entryway storage without drilling?
 Over-door organizers, adhesive hooks rated for wet-coat weight, freestanding benches and console tables all add storage with no holes. If you do want to drill, ask your landlord first — many allow small fixings if you fill them before moving out.
 
-**How do I stop winter gear from taking over the whole flat?**
+### How do I stop winter gear from taking over the whole flat?
 Give every item a home in the entryway and enforce one rule: gear lives in the entryway, nowhere else. A boot tray, a hook per coat and a basket per person are enough — the system fails only when the entryway has no capacity for the gear, so add capacity before you add rules.

@@ -106,14 +106,14 @@ Whatever spot you choose, the same three rules keep your deposit safe. First, we
 
 ## Frequently Asked Questions
 
-**How do I hang garland without nails in a rental?**
+### How do I hang garland without nails in a rental?
 Use Command hooks rated for the garland's weight, over-door hooks, tension rods, or drape it over furniture that supports it, like a banister or shelf. Clean the surface first and wait an hour after sticking a hook before hanging anything heavy.
 
-**Will Command hooks hold a heavy garland?**
+### Will Command hooks hold a heavy garland?
 Yes, if you choose the right size and use enough of them. Spread the weight across several medium or large hooks rather than trusting one hook, and add the weight of ornaments and lights to the garland's weight when you check the limit.
 
-**Is real or faux garland better for a rental?**
+### Is real or faux garland better for a rental?
 Faux, in most cases. It is lighter, it does not shed needles into carpets you do not own, it is reusable for years, and it is safer near candles and electronics. Real garland smells wonderful but dries out fast in a heated flat.
 
-**How do I remove garland hooks without damaging paint?**
+### How do I remove garland hooks without damaging paint?
 Pull the adhesive strip straight down slowly, following the packet instructions, rather than pulling the hook away from the wall. If a strip snaps, slide dental floss behind the hook base to release it. Touch up any mark with a dab of matching paint.
