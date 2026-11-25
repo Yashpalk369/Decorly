@@ -127,3 +127,7 @@ greenery-decor: B Guide (2026-11-23 style-amaryllis-bulbs-christmas-guide)
 small-spaces: B Guide (2026-11-24 best-electric-fireplaces-small-apartments); also A Listicle best-bedding-bundles-small-bedrooms same day
 rental-friendly: B Guide (2026-11-24 renter-friendly-kitchen-sink-upgrades)
 greenery-decor: A Listicle (2026-11-24 plants-for-apartments-with-no-windows); also C Roundup easiest-houseplants-small-apartments-under-25 same day
+# 2026-11-25 run (1/2/2 split):
+small-spaces: A Listicle (2026-11-25 small-home-office-ideas-apartments)
+rental-friendly: A Listicle (2026-11-25 renter-friendly-bathroom-upgrades); also C Roundup small-apartment-kitchen-decor-ideas-renters same day
+greenery-decor: A Listicle (2026-11-25 pothos-care-ideas-small-apartments); also B Guide zz-plant-care-small-apartments-guide same day
