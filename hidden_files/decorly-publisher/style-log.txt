@@ -131,3 +131,7 @@ greenery-decor: A Listicle (2026-11-24 plants-for-apartments-with-no-windows); a
 small-spaces: A Listicle (2026-11-25 small-home-office-ideas-apartments)
 rental-friendly: A Listicle (2026-11-25 renter-friendly-bathroom-upgrades); also C Roundup small-apartment-kitchen-decor-ideas-renters same day
 greenery-decor: A Listicle (2026-11-25 pothos-care-ideas-small-apartments); also B Guide zz-plant-care-small-apartments-guide same day
+# 2026-11-26 run (2/2/1 split):
+small-spaces: C Roundup (2026-11-26 dopamine-decor-small-bedroom-ideas); also B Guide small-living-room-layout-ideas-renters same day
+rental-friendly: A Listicle (2026-11-26 woven-basket-wall-decor-ideas); also B Guide renter-friendly-entryway-ideas-small-apartments same day
+greenery-decor: A Listicle (2026-11-26 spider-plant-care-small-apartments)
