@@ -135,3 +135,7 @@ greenery-decor: A Listicle (2026-11-25 pothos-care-ideas-small-apartments); also
 small-spaces: C Roundup (2026-11-26 dopamine-decor-small-bedroom-ideas); also B Guide small-living-room-layout-ideas-renters same day
 rental-friendly: A Listicle (2026-11-26 woven-basket-wall-decor-ideas); also B Guide renter-friendly-entryway-ideas-small-apartments same day
 greenery-decor: A Listicle (2026-11-26 spider-plant-care-small-apartments)
+# 2026-11-27 run (1/2/2 split):
+small-spaces: A Listicle (2026-11-27 winter-living-room-decor-ideas-small-apartments)
+rental-friendly: B Guide (2026-11-27 peel-and-stick-wallpaper-rental-ideas); also C Roundup black-friday-home-decor-deals-small-apartments same day
+greenery-decor: B Guide (2026-11-27 calathea-care-small-apartments); also C Roundup air-purifying-plants-small-apartments same day
